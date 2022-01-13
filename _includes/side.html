@@ -1,0 +1,10 @@
+{% assign posts = site.posts | where_exp:"post", "post.url != page.url" | sample:15 %}
+{% for post in posts %}
+    <div class="mb-4">
+        <a href="{{site.url}}{{post.url}}">
+        <div class="d-flex align-items-center justify-content-center shadow-sm"><img class="w-100" src="{{site.url}}/img/iph.png" data-src="https://ytimg.googleusercontent.com/vi/{{post.vid_id}}/mqdefault.jpg" alt="{{ post.title | strip_html | escape }}">
+        <div class="play-btn"></div></div>
+        </a>
+        <h2 class="h6 mt-2 bwr">{{ post.title | strip_html | escape }}</h2>
+    </div>
+{% endfor %}
