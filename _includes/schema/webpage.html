@@ -1,0 +1,22 @@
+<script type="application/ld+json">
+      {
+       "@context":"https://schema.org",
+       "@type":"WebSite",
+       "name":{{ site.title | append: site.title_sep | append: site.title_slog | jsonify }},
+       "description":{{ site.description | jsonify }},
+       "url":"{{site.url}}/",
+       "image":"{{site.url}}/logo.png",
+       "publisher":{
+          "@type":"Organization",
+          "name":{{ site.title | jsonify }},
+          "url":"{{site.url}}/",
+          "logo":{
+             "@type":"ImageObject",
+             "url":"{{site.url}}/logo.png"
+          },
+          "sameAs":[
+            "{{site.url}}/"
+          ]
+       }
+      }
+    </script>
