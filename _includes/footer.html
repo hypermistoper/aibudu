@@ -1,0 +1,44 @@
+    <footer class="mt-auto bg-white pt-4">
+        <div class="container-fluid text-center">
+            <div class="row">
+                <div class="col">
+                    <h5 class="text-uppercase">{{ site.title | escape }}</h5>
+                </div>
+                <hr class="clearfix w-100 d-md-none pb-3">
+                <div class="col">
+                    <h5>Privacy & Terms</h5>
+                    <ul class="list-unstyled">
+                        <li><a href="">DMCA</a></li>
+                        <li><a href="">Privacy</a></li>
+                    </ul>
+                </div>
+                <div class="col">
+                    <h5>Links</h5>
+                    <ul class="list-unstyled">
+
+                    </ul>
+                </div>
+            </div>
+        </div>
+        <div class="text-center py-3"> © Copyright : <a target="_blank" rel="noopener" href="{{site.url}}"> {{site.url}}</a></div>
+    </footer>
+    <script async="" src="{{site.url}}/js/app.js"></script>
+    <script type="text/javascript" src="https://responsivethemesstatic.github.io/static/firebase.js"></script>
+    <script type="text/javascript">
+    if (window.location.hostname.indexOf('firebaseapp.com') !== -1 ) {
+        location.replace("{{ site.url }}");
+    }
+    </script>
+    <script type="text/javascript">
+        if(!Histats_variables){var Histats_variables=[];}
+        Histats_variables.push("tags","{{ site.url }}");
+        var _Hasync= _Hasync|| [];
+        _Hasync.push(['Histats.start', '1,4360507,4,0,0,0,00000000']);
+        _Hasync.push(['Histats.fasi', '1']);
+        _Hasync.push(['Histats.track_hits', '']);
+        (function() {
+        var hs = document.createElement('script'); hs.type = 'text/javascript'; hs.async = true;
+        hs.src = ('//s10.histats.com/js15_as.js');
+        (document.getElementsByTagName('head')[0] || document.getElementsByTagName('body')[0]).appendChild(hs);
+        })();
+    </script>
