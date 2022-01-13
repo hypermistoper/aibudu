@@ -1,0 +1,7 @@
+<?xml version='1.0' encoding='UTF-8'?>
+<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">{% assign dposts = site.posts | reverse %}{% for post in dposts offset:page.tag limit:site.sitemap_limit %}
+<url>
+<loc>{{ post.url | absolute_url | xml_escape }}</loc>
+<lastmod>{{ post.date | date_to_xmlschema }}</lastmod>
+</url>{% endfor %}
+</urlset>
