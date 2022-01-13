@@ -1,0 +1,81 @@
+---
+layout: err
+title: Search
+---
+
+
+<script type="text/javascript">
+ function getShuffledArr (arr){
+        return [...arr].map( (_, i, arrCopy) => {
+            var rand = i + ( Math.floor( Math.random() * (arrCopy.length - i) ) );
+            [arrCopy[rand], arrCopy[i]] = [arrCopy[i], arrCopy[rand]]
+            return arrCopy[i]
+        })
+    }
+var global_data = '';
+function getUrlParameter(name) {
+    name = name.replace(/[\[]/, '\\[').replace(/[\]]/, '\\]');
+    var regex = new RegExp('[\\?&]' + name + '=([^&#]*)');
+    var results = regex.exec(location.search);
+    return results === null ? '' : decodeURIComponent(results[1].replace(/\+/g, ' '));
+};
+var getJSON = function(url, callback) {
+    var xhr = new XMLHttpRequest();
+    xhr.open('GET', url, true);
+    xhr.responseType = 'json';
+    xhr.onload = function() {
+      var status = xhr.status;
+      if (status === 200) {
+        callback(null, xhr.response);
+      } else {
+        callback(status, xhr.response);
+      }
+    };
+    xhr.send();
+};
+var category = getUrlParameter('cat');
+var search = getUrlParameter('s');
+if(category !== "" || search !== ""){
+	getJSON('data.json',
+	function(err, data) {
+	  if (err == null) {
+			global_data = data;
+            global_data = getShuffledArr(global_data);
+			next();
+		} else {
+			document.getElementById("srch").innerHTML = "Nothing found.";
+			document.getElementById("bleck").innerHTML = "<p>It looks like nothing was found at this location.</p>";
+		}
+	});
+} else {
+			document.getElementById("srch").innerHTML = "Query empty.";
+			document.getElementById("bleck").innerHTML = "<p>Search query empty</p>";
+		}
+function next(){
+//console.log(global_data);
+var trx = 0;
+for (var i = 0; i < global_data.length; i++) {
+	if(search !== "" && global_data[i]['title'].toUpperCase().indexOf(search.toUpperCase()) > -1){
+		document.getElementById("srch").innerHTML = search;
+		document.getElementById("bleck").innerHTML += ' <div class="col-12 col-md-4 py-1">\
+    <a href="'+global_data[i]['url']+'">\
+        <div class="d-flex align-items-center justify-content-center shadow-sm"><img class="w-100" src="{{site.url}}/img/iph.png" data-src="https://ytimg.googleusercontent.com/vi/'+global_data[i]['vid_id']+'/mqdefault.jpg" alt="'+global_data[i]['title']+'">\
+            <div class="play-btn"></div>\
+        </div>\
+    </a>\
+    <h2 class="h6 mt-2 bwr">'+global_data[i]['title']+'</h2>\
+</div>';
+		trx += 1;
+	} 
+	if(trx > 11){
+		break;
+	}
+ }
+ if(trx == 0){
+		document.getElementById("srch").innerHTML = "Nothing found.";
+		document.getElementById("bleck").innerHTML = "<p>It looks like nothing was found at this location.</p>";
+	}else{
+    $("img").unveil(200);
+    }
+}
+</script>
