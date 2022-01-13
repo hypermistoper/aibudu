@@ -1,0 +1,15 @@
+---
+title: "Vùng Không Xác Định | Oneway Radio - Tĩnh Nguyện Hằng Ngày 13\/01\/2022"
+image: "https:\/\/i.ytimg.com\/vi\/lCFu85eplkw\/hqdefault.jpg"
+vid_id: "lCFu85eplkw"
+categories: "Nonprofits-Activism"
+tags: ["oneway","oneway media","one way radio"]
+date: "2022-01-14T00:32:53+03:00"
+vid_date: "2022-01-12T22:00:13Z"
+duration: "PT13M10S"
+viewcount: "4960"
+likeCount: "394"
+dislikeCount: ""
+channel: "Oneway Radio"
+---
+{% raw %}Cuộc đời con người có nhiều lĩnh vực, nhiều giai đoạn có thể xem như là “vùng không xác định” vì chúng ta không biết cuộc đời sẽ đem đến cho mình những gì. Điều quan trọng không phải là biết hay không biết, nhưng là mình bước đi như thế nào khi ở trong vùng không xác định.<br />   <br />Hôm nay, ngày 13/01/2022, chương trình Tĩnh Nguyện Hằng Ngày thân mời quý thính giả cùng suy gẫm Lời Chúa với tác giả Sue Bohnert qua chủ đề VÙNG KHÔNG XÁC ĐỊNH<br /><br />“Bởi đức tin, Áp-ra-ham vâng lời Chúa gọi, đi đến xứ mình sẽ nhận làm cơ nghiệp; ông đi mà không biết mình đi đâu” (Hê-bơ-rơ 11:8)<br />---<br />Đọc nội dung đầy đủ tại: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/tinh-nguyen-hang-ngay-1301-vung-khong-xac-dinh-84162.html">https://oneway.vn/radio/tinh-nguyen-hang-ngay-1301-vung-khong-xac-dinh-84162.html</a><br />Link bài tiếng Hoa: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/113-84178.html">https://oneway.vn/radio/113-84178.html</a><br />Link bài tiếng H'Mông: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/thov-vajtswv-txhua-hnub-1301-thaj-chaw-tsis-paub-84180.html">https://oneway.vn/radio/thov-vajtswv-txhua-hnub-1301-thaj-chaw-tsis-paub-84180.html</a><br />Link bài tiếng K'Ho: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/tonggume-konhwal-o-rgoi-git-ngai-1312022-84182.html">https://oneway.vn/radio/tonggume-konhwal-o-rgoi-git-ngai-1312022-84182.html</a><br />Link bài tiếng Jarai: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/lo-13012022-anih-u-th-o-kran-84183.html">https://oneway.vn/radio/lo-13012022-anih-u-th-o-kran-84183.html</a><br /><br /><br /><br />Hãy giữ kết nối với chúng tôi tại:<br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/www.oneway.vn">https://facebook.com/www.oneway.vn</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/onewayradio">https://www.instagram.com/onewayradio</a><br />Website: <a rel="nofollow" target="blank" href="https://www.oneway.vn">https://www.oneway.vn</a><br />Messenger: <a rel="nofollow" target="blank" href="https://m.me/www.oneway.vn">https://m.me/www.oneway.vn</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/OnewayRadioOnline">https://www.youtube.com/c/OnewayRadioOnline</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/2cLKW2JcAKaGsu9kJrACPj">https://open.spotify.com/show/2cLKW2JcAKaGsu9kJrACPj</a><br />Apple Podcast: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/vn/channel/oneway-media/id6442608866">https://podcasts.apple.com/vn/channel/oneway-media/id6442608866</a><br />Hotline: 0896 164 199{% endraw %}
