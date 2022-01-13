@@ -1,0 +1,15 @@
+---
+layout: default
+---
+{% for post in site.posts limit:50 %}<div class="col-12 col-md-4 py-1">
+    <a href="{{site.url}}{{post.url}}">
+        <div class="d-flex align-items-center justify-content-center shadow-sm"><img class="w-100" src="{{site.url}}/img/iph.png" data-src="https://ytimg.googleusercontent.com/vi/{{post.vid_id}}/mqdefault.jpg" alt="{{ post.title | strip_html | escape }}">
+            <div class="play-btn"></div>
+        </div>
+    </a>
+    <h2 class="h6 mt-2 bwr">{{ post.title | strip_html | escape }}</h2>
+</div>{% if forloop.index == 4 %}
+<div class="col-12 col-md-4 py-1">
+<div class="{{ site.title | downcase  | strip_html | escape }} resp-container" id="sidebar_300"></div>
+</div>{% endif %}{% if forloop.index == 8 %}
+<div class="{{ site.title | downcase  | strip_html | escape }} resp-container" style="max-width: 90%;" id="extra_bottomads">{% include rame.html %}</div>{% endif %}{% endfor %}
