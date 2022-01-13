@@ -1,0 +1,22 @@
+---
+layout: err
+title: 404 Page not found
+permalink: /404.html
+---
+
+{% assign posts = site.posts | where_exp:"post", "post.url != page.url" | sample:49 %}
+{% for post in posts %}
+<div class="col-12 col-md-4 py-1">
+    <a href="{{site.url}}{{post.url}}">
+        <div class="d-flex align-items-center justify-content-center shadow-sm"><img class="w-100" src="{{site.url}}/img/iph.png" data-src="https://ytimg.googleusercontent.com/vi/{{post.vid_id}}/mqdefault.jpg" alt="{{ post.title | strip_html | escape }}">
+            <div class="play-btn"></div>
+        </div>
+    </a>
+    <h2 class="h6 mt-2">{{ post.title | strip_html | escape }}</h2>
+</div>
+{% if forloop.index == 4 %}
+<div class="col-12 col-md-4 py-1">
+<div class="{{ site.title | downcase  | strip_html | escape }} resp-container" id="sidebar_300"></div>
+</div>
+{% endif %}
+{% endfor %}
