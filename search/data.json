@@ -1,0 +1,15 @@
+---
+layout: null
+---
+[
+  {% for post in site.posts limit:50000 %}
+    {
+      "title":{{ post.title | escape | jsonify }},
+      "categories":{{ post.categories[0] | escape | jsonify }},
+      "image":{{ post.image | escape | jsonify }},
+      "url":{{ site.url | append: post.url | escape | jsonify }},
+      "date":"{{ post.date | date_to_xmlschema }}",
+	  "vid_id":{{ post.vid_id | escape | jsonify }}
+    } {% unless forloop.last %},{% endunless %}
+  {% endfor %}
+]
