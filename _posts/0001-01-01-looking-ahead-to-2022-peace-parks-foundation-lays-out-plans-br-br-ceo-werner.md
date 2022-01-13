@@ -1,0 +1,15 @@
+---
+title: "Looking Ahead To 2022"
+image: "https:\/\/i.ytimg.com\/vi\/4KqiprHncZ0\/hqdefault.jpg"
+vid_id: "4KqiprHncZ0"
+categories: "Nonprofits-Activism"
+tags: ["Looking","Ahead"]
+date: "2022-01-13T19:06:59+03:00"
+vid_date: "2022-01-04T03:00:02Z"
+duration: "PT7M56S"
+viewcount: "20"
+likeCount: "3"
+dislikeCount: ""
+channel: "Peace Parks TV"
+---
+{% raw %}Peace Parks Foundation lays out plans:<br /><br />CEO Werner Myburgh talks about the year ahead for Peace Parks Foundation and why it is going to be another massive one for conservation in southern Africa. Across the transfrontier conservation regions Peace Parks will continue to work closely with partners to rewild and rejuvenate landscapes and develop sustainable livelihoods for communities in the areas. <br /><br />With so much planned for the coming year, some of the highlights are: <br /><br />In Zinave there will be a unique translocation with the highest number of giraffe ever translocated in one go, as well as bringing in more lions. A community development program will be developed with The Hunger Project, helping to increase food security for those living around the park. <br /><br />Banhine National Park will see a community development programme rolled out to those living around the park focusing on more environmentally friendly cattle husbandry. Alongside the signing of a long term co-management agreement with the Government of Mozambique, this will be an exciting year for Banhine. <br /><br />There will be continued efforts in Limpopo National to support the development of the region for tourism and growing the community support programme. <br /><br />More cheetah will be translocated into Maputo National Park, formerly known as Maputo Special Reserve. A new lodge will open by the beach, which will unlock travel opportunities for budget travellers. <br /><br />Sioma Ngwezi, Nyika National Park and Vwaza Marsh Wildlife Park, are all about to enter a new phase in their development. With the upcoming signing of co-management agreements and the unlocking of much donor funding, there will be many positive changes ahead for the regions.<br /><br />In the Simalaha Community Conservancy, there will be increased water supply to regions with the opening up of additional pans. This will enhance water security for over 1500 households, helping with agriculture and providing water security for cattle in the Herding 4 Health programme. As well as this, seven boreholes and multi-use systems will be opened for use by people and animals. The buffalo sanctuary will also be extended with water provided by the Kasaya River. Beehives will be distributed to newly-trained  honey farmers and high-value crops will be trialled while training more Conservation Agriculture farmers. <br /><br />The list goes on. <br /><br />If you would like to keep up with these and many more exciting developments across the transfrontier conservation areas in southern Africa, follow Peace Parks TV for daily updates.{% endraw %}
