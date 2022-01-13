@@ -1,0 +1,15 @@
+---
+title: "Advanced SQL Tutorial | Stored Procedures + Use Cases"
+image: "https:\/\/i.ytimg.com\/vi\/NrBJmtD0kEw\/hqdefault.jpg"
+vid_id: "NrBJmtD0kEw"
+categories: "Education"
+tags: ["Data Analyst","Data Analyst job","Data Analyst Career"]
+date: "2022-01-13T22:11:43+03:00"
+vid_date: "2021-03-16T11:00:07Z"
+duration: "PT6M15S"
+viewcount: "39155"
+likeCount: "1019"
+dislikeCount: ""
+channel: "Alex The Analyst"
+---
+{% raw %}In today's Advanced SQL lesson we walk through how to use Stored Procedures.  <br /><br />Link to SQL Code: <a rel="nofollow" target="blank" href="https://github.com/AlexTheAnalyst/SQL-Code/blob/master/Stored%20Procedures.sql">https://github.com/AlexTheAnalyst/SQL-Code/blob/master/Stored%20Procedures.sql</a><br />____________________________________________ <br /><br />SUBSCRIBE!<br />Do you want to become a Data Analyst? That's what this channel is all about! My goal is to help you learn everything you need in order to start your career or even switch your career into Data Analytics. Be sure to subscribe to not miss out on any content!<br />____________________________________________ <br /><br />RESOURCES:<br /><br />Udemy Courses:<br />Python for Data Analysis and Visualization- <a rel="nofollow" target="blank" href="https://bit.ly/3hhX4LX">https://bit.ly/3hhX4LX</a><br />Statistics for Data Science - <a rel="nofollow" target="blank" href="https://bit.ly/37jqDbq">https://bit.ly/37jqDbq</a><br />SQL for Data Analysts (SSMS) - <a rel="nofollow" target="blank" href="https://bit.ly/3fkqEij">https://bit.ly/3fkqEij</a><br />Tableau A-Z - <a rel="nofollow" target="blank" href="http://bit.ly/385lYvN">http://bit.ly/385lYvN</a><br /><br />Coursera Courses:<br />Database and SQL for Data Science - <a rel="nofollow" target="blank" href="https://bit.ly/2zUk0zL">https://bit.ly/2zUk0zL</a><br />Data Analysis with Python - <a rel="nofollow" target="blank" href="https://bit.ly/3geiVDG">https://bit.ly/3geiVDG</a><br />Data Analysis Specialization - <a rel="nofollow" target="blank" href="https://bit.ly/3dYJ6w0">https://bit.ly/3dYJ6w0</a><br />Tableau Data Visualization - <a rel="nofollow" target="blank" href="https://bit.ly/2AHCNPd">https://bit.ly/2AHCNPd</a><br /><br />*Please note I may earn a small commission for any purchase through these links - Thanks for supporting the channel!*<br />____________________________________________ <br /><br />SUPPORT MY CHANNEL - PATREON/MERCH<br /><br />Patreon Page - <a rel="nofollow" target="blank" href="https://www.patreon.com/AlexTheAnalyst">https://www.patreon.com/AlexTheAnalyst</a><br /><br />Alex The Analyst Shop - teespring.com/stores/alex-the-analyst-shop<br /><br />____________________________________________ <br /><br />Websites: <br />GitHub: <a rel="nofollow" target="blank" href="https://github.com/AlexTheAnalyst">https://github.com/AlexTheAnalyst</a><br />____________________________________________<br /><br />*All opinions or statements in this video are my own and do not reflect the opinion of the company I work for or have ever worked for*{% endraw %}
