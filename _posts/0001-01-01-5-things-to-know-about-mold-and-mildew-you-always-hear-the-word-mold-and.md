@@ -1,0 +1,15 @@
+---
+title: "5 Things to Know About Mold and Mildew"
+image: "https:\/\/i.ytimg.com\/vi\/RykVde7GjII\/hqdefault.jpg"
+vid_id: "RykVde7GjII"
+categories: "Education"
+tags: ["mold","mildew","black mold"]
+date: "2022-01-14T18:03:03+03:00"
+vid_date: "2021-06-26T13:00:14Z"
+duration: "PT8M35S"
+viewcount: "860"
+likeCount: "46"
+dislikeCount: ""
+channel: "LookMold"
+---
+{% raw %}You always hear the word mold and mildew but do you really understand what comes with them?  <br /><br />In this video, I go over 5 things to know about Mold and Mildew.<br /><br />What is the difference between these two? <br /><br />And how can you even identify these things in your house, food, or something?<br /> <br />For today's topic, we will discuss everything that comes with this Mold and mildew. <br /><br />Make sure to watch this video all the way to the end to find out more about Mold and mildew, and then leave a like, subscribe to the channel, and click the Bell Icon to be notified of future content!<br /><br />#MOLD&amp;MILDEWS #5THINGSABOUTMOLD #5THINGSABOUTMILDEWS<br /><br /> Related Video Links:<br /><br />4 Things You Should Know about Mold &amp; Mildew! (Clean My Space)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=xRZd0mnjpNE">https://www.youtube.com/watch?v=xRZd0mnjpNE</a><br /><br />9 Signs You Have Toxic Mold In Your Home<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9W7SS7YwFp0">https://www.youtube.com/watch?v=9W7SS7YwFp0</a><br /><br />Why Mold Is So Hard To Kill<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=xqs626gtTjU">https://www.youtube.com/watch?v=xqs626gtTjU</a><br /><br />10 Warning Signs of Mold Toxicity in Your Home - Black Mold Symptoms<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=jXj-fE9us8A">https://www.youtube.com/watch?v=jXj-fE9us8A</a><br /><br />Mold Smell: Don't Risk These Alarming Signs You May Have A Problem<br /><a rel="nofollow" target="blank" href="https://lookmold.com/detect/testing/why-does-mold-smell">https://lookmold.com/detect/testing/why-does-mold-smell</a><br /><br /><br />Disclaimer: I do not take any ownership of the music displayed in this video. Ownership belongs to the respected owner(s). Used under fair use policy.* Music used for entertainment purposes displayed in this video. Ownership belongs to the respected owner(s). Used under fair use policy.* Music used for entertainment purposes only.<br /> <br />The Content is for informational purposes only, you should not construe any such information or other material as legal, tax, investment, financial, or other advice. Nothing contained on our Site constitutes a solicitation, recommendation, endorsement, or offer by HII or any third party service provider to buy or sell any securities or other financial instruments in this or in in any other jurisdiction in which such solicitation or offer would be unlawful under the securities laws of such jurisdiction.{% endraw %}
