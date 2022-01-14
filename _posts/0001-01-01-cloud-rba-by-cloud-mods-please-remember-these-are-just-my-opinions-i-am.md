@@ -1,0 +1,15 @@
+---
+title: "Cloud RBA by Cloud Mods"
+image: "https:\/\/i.ytimg.com\/vi\/B_An6cBR-2k\/hqdefault.jpg"
+vid_id: "B_An6cBR-2k"
+categories: "People-Blogs"
+tags: ["todds reviews","APV","ego"]
+date: "2022-01-14T08:51:24+03:00"
+vid_date: "2022-01-14T00:53:57Z"
+duration: "PT16M35S"
+viewcount: "558"
+likeCount: "71"
+dislikeCount: ""
+channel: "Todds Reviews"
+---
+{% raw %}PLEASE, remember these are just my opinions, I am just some bloke in a shed with a webcam after all, so I would strongly advise that you research everything before you buy, never go off just my opinion, read and view as many reviews as you can.  The majority of my reviews are for products I have received free for review, this in no way affects my opinion.<br /><br />Unless other wise stated, any premade coils used in my videos have been supplied by <a rel="nofollow" target="blank" href="https://www.facebook.com/pccoils/">https://www.facebook.com/pccoils/</a><br /><br />Ensure that you check your resistances and batteries before firing any device, vaping safety must always be your first priority.<br /><br /><a rel="nofollow" target="blank" href="http://www.steam-engine.org/ohm.asp">http://www.steam-engine.org/ohm.asp</a><br /><br />Battery advice and info here - <a rel="nofollow" target="blank" href="https://www.e-cigarette-forum.com/forum/blogs/mooch.256958/">https://www.e-cigarette-forum.com/forum/blogs/mooch.256958/</a><br /><br />For 2022, all charity donations shall be going to;<br /><br />Macmillan Cancer Support - <a rel="nofollow" target="blank" href="https://www.justgiving.com/fundraising/mark-todd3">https://www.justgiving.com/fundraising/mark-todd3</a><br />Dogs Trust - <a rel="nofollow" target="blank" href="https://www.justgiving.com/fundraising/mark-todd15">https://www.justgiving.com/fundraising/mark-todd15</a> <br />Mind (Mental Health) - <a rel="nofollow" target="blank" href="https://www.justgiving.com/fundraising/mark-todd14">https://www.justgiving.com/fundraising/mark-todd14</a><br /><br />Links:<br /><br />Music by - <a rel="nofollow" target="blank" href="https://soundcloud.com/dyallas">https://soundcloud.com/dyallas</a><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/toddsreviews/">https://www.facebook.com/toddsreviews/</a><br />Facebook Group - <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/toddsreviews/">https://www.facebook.com/groups/toddsreviews/</a><br />Website - <a rel="nofollow" target="blank" href="http://www.toddsreviews.com/">http://www.toddsreviews.com/</a><br />Pinterest - <a rel="nofollow" target="blank" href="https://www.pinterest.co.uk/toddsreviews/ecig-pics/">https://www.pinterest.co.uk/toddsreviews/ecig-pics/</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/ToddsReviews">https://twitter.com/ToddsReviews</a><br />Email - todd@toddsreviews.com<br />Equipment I use:<br /><br />Grecian 2000 light brown<br />VO5 Hair Gel<br />Panasonic  HC-V720<br />A Shed<br />Working Cocker Spaniel (painting by <a rel="nofollow" target="blank" href="http://www.btbartist.co.uk/)">http://www.btbartist.co.uk/)</a><br />A very patient wife.{% endraw %}
