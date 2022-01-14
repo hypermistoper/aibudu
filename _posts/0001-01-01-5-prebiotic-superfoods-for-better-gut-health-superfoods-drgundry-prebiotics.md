@@ -1,0 +1,15 @@
+---
+title: "5 Prebiotic Superfoods for better gut health"
+image: "https:\/\/i.ytimg.com\/vi\/Fignz2sGpwo\/hqdefault.jpg"
+vid_id: "Fignz2sGpwo"
+categories: "People-Blogs"
+tags: ["Gundry MD","Prebiotics","Superfoods"]
+date: "2022-01-14T12:44:49+03:00"
+vid_date: "2021-04-21T00:00:03Z"
+duration: "PT7M50S"
+viewcount: "426241"
+likeCount: "10761"
+dislikeCount: ""
+channel: "Gundry MD"
+---
+{% raw %}#Superfoods #DrGundry #Prebiotics<br />Your gut is connected to, affects, and may even manage several other systems in your body. There’s almost nobody part you can name that isn’t affected by your gut health. So if your gut isn’t healthy, how can the rest of your body stay healthy? You’ve probably heard of both probiotics and prebiotics and know about their potential gut health benefits. But what are the best prebiotic foods around and how can they help support the health of your gut? Let’s take a look.<br /><br />Of course, you want to feed probiotics the right food so they’ll grow. This is because having a healthy amount of good bacteria in your gut may support: Overall gut health and digestion, Weight loss, The distribution of vitamins, Immune function, and Skin health.<br /><br />Read more about Prebiotics Foods on the official Gundry MD blog: <a rel="nofollow" target="blank" href="https://gundrymd.com/prebiotic-foods/">https://gundrymd.com/prebiotic-foods/</a><br /><br />Try Prebiothive for yourself: <br /><a rel="nofollow" target="blank" href="http://gundrymd.com/cmd.php?ad=999235">http://gundrymd.com/cmd.php?ad=999235</a><br /><br />Our breakthrough formula uses a potent combination of prebiotics to support the “good” bacteria in your gut by supplying the nutrition to help them thrive. At the same time, the formula helps reduce the number – and impact – of the “bad” bacteria. The result is a healthier digestive tract, feelings of increased energy, and a healthier appetite to support better metabolism.<br /><br />- Recipes -<br />Baked Okra Chips Recipe: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=sma6gvV3yXM">https://www.youtube.com/watch?v=sma6gvV3yXM</a><br /><br />Fried Artichoke Hearts Recipe:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=cFx97DGswik&amp;t=2s">https://www.youtube.com/watch?v=cFx97DGswik&amp;t=2s</a><br /><br />- Time Stamps - <br />00:25 - What are Prebiotics &amp; Probiotics?<br />02:08 - Problem with some prebiotic supplements<br />02:44 - Prebiotic food #1 - Flax Seeds <br />03:36 - Prebiotic food #2 - Artichokes <br />04:40 - Prebiotic food #3 - Leeks <br />05:28 - Prebiotic food #4 - Okra<br />06:22 - Prebiotic food #5 - Jicama <br /><br />- Follow Gundry MD -<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/GundryMD/​">https://www.facebook.com/GundryMD/​</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/gundrymd/​">https://www.instagram.com/gundrymd/​</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/gundrymd/​">https://www.pinterest.com/gundrymd/​</a>{% endraw %}
