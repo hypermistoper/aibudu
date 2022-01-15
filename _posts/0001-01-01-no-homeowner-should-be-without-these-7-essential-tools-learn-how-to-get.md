@@ -1,0 +1,15 @@
+---
+title: "No homeowner should be without these 7 ESSENTIAL TOOLS"
+image: "https:\/\/i.ytimg.com\/vi\/D3Pg9B8Ucrs\/hqdefault.jpg"
+vid_id: "D3Pg9B8Ucrs"
+categories: "Howto-Style"
+tags: ["woodworking","woodworking project","how-to"]
+date: "2022-01-15T23:34:45+03:00"
+vid_date: "2022-01-11T16:58:06Z"
+duration: "PT5M54S"
+viewcount: "63270"
+likeCount: "2748"
+dislikeCount: ""
+channel: "Steve Ramsey - Woodworking for Mere Mortals"
+---
+{% raw %}Learn how to get started woodworking and set up shop for less than $1000. Download my FREE GUIDE ► <a rel="nofollow" target="blank" href="https://mytoollist.com">https://mytoollist.com</a><br /><br />ESSENTIAL tools for new homeowners ►<br /><br />Drill &amp; Driver set: <a rel="nofollow" target="blank" href="https://amzn.to/333FYiS">https://amzn.to/333FYiS</a><br />Drill &amp; driver bits: <a rel="nofollow" target="blank" href="https://amzn.to/3nisuGF">https://amzn.to/3nisuGF</a><br />Wrench set: <a rel="nofollow" target="blank" href="https://amzn.to/3HTZSvh">https://amzn.to/3HTZSvh</a> <br />Screwdriver set: <a rel="nofollow" target="blank" href="https://amzn.to/3K4rS12">https://amzn.to/3K4rS12</a> <br />Multi-bit screwdriver: <a rel="nofollow" target="blank" href="https://amzn.to/3zLcbqW">https://amzn.to/3zLcbqW</a><br />16 oz. hammer: <a rel="nofollow" target="blank" href="https://amzn.to/3fdpoj2">https://amzn.to/3fdpoj2</a> <br />Set of pliers: <a rel="nofollow" target="blank" href="https://amzn.to/3qgouID">https://amzn.to/3qgouID</a><br />Hex key (Allen wrench) set: <a rel="nofollow" target="blank" href="https://amzn.to/3racgQZ">https://amzn.to/3racgQZ</a><br />25' Tape measure: <a rel="nofollow" target="blank" href="https://amzn.to/3zLX3cV">https://amzn.to/3zLX3cV</a> <br /><br />MY PODCASTS: <br />Chad and Steve Have a Podcast: Where YouTubers Tell Their Stories► <a rel="nofollow" target="blank" href="http://chadandsteve.com/">http://chadandsteve.com/</a> <br />The Woodworking Talk Show: Conversations with YouTube Woodworkers► <a rel="nofollow" target="blank" href="https://bit.ly/thewoodworkingtalkshow">https://bit.ly/thewoodworkingtalkshow</a><br /><br />Sign up for my free monthly newsletter► <a rel="nofollow" target="blank" href="http://notesfromsteve.com/">http://notesfromsteve.com/</a><br /><br />PATREON ►► <a rel="nofollow" target="blank" href="https://www.patreon.com/wwmm">https://www.patreon.com/wwmm</a><br />TOOLS I USE► <a rel="nofollow" target="blank" href="https://amzn.to/2F3hxQc">https://amzn.to/2F3hxQc</a><br />WWMM T-SHIRTS► <a rel="nofollow" target="blank" href="http://amzn.to/2scxfYl">http://amzn.to/2scxfYl</a><br />FACEBOOK► <a rel="nofollow" target="blank" href="https://www.facebook.com/WoodworkingForMereMortals">https://www.facebook.com/WoodworkingForMereMortals</a><br />INSTAGRAM► <a rel="nofollow" target="blank" href="http://instagram.com/steveramsey_wwmm">http://instagram.com/steveramsey_wwmm</a><br /><br />MAILING ADDRESS:<br /><br />WWMM<br />448 Ignacio Blvd. # 237<br />Novato CA 94949<br />----------------<br />Woodworking for Mere Mortals® is a registered trademark of  ZRAM Media, LLC.<br />#woodworking #tools{% endraw %}
