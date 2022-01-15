@@ -1,0 +1,15 @@
+---
+title: "This is Why YOU Should NEVER TRUST TWINS Gacha"
+image: "https:\/\/i.ytimg.com\/vi\/kbexrb3rSMo\/hqdefault.jpg"
+vid_id: "kbexrb3rSMo"
+categories: "Gaming"
+tags: ["cheridet","gacha","gacha life"]
+date: "2022-01-15T07:23:42+03:00"
+vid_date: "2022-01-09T08:00:15Z"
+duration: "PT13M31S"
+viewcount: "130944"
+likeCount: "5328"
+dislikeCount: ""
+channel: "Cheridet"
+---
+{% raw %}Welcome to the Gacha world and today I react to These Twins Creep! This is Why You Should NEVER TRUST TWINS! They're up to something and its definitely NOT GOOD! They might try to take YOUR soul!<br />✨ Original Gacha: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=g1UraT9RJXA&amp;ab_channel=isola">https://www.youtube.com/watch?v=g1UraT9RJXA&amp;ab_channel=isola</a><br /><br />#gacha #gachahorror #cheridet<br /><br />🌸 Subscribe Today: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/Cheridet?sub_confirmation=1">https://www.youtube.com/user/Cheridet?sub_confirmation=1</a><br /><br />🌸 Social Media 🌸<br />♡ Merch Store: <a rel="nofollow" target="blank" href="https://cheridet.com">https://cheridet.com</a><br />♡ Pokemon Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCqHfbBGQseHN2sSBW4ckE3g/featured">https://www.youtube.com/channel/UCqHfbBGQseHN2sSBW4ckE3g/featured</a><br />♡ Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Cheridet">https://twitter.com/Cheridet</a><br />♡ Tik Tok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@cheritree">https://www.tiktok.com/@cheritree</a><br />♡ Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/cheridet">https://www.instagram.com/cheridet</a><br /><br />🌸 Watch Next:<br />🌻 BREAKING all the Rules in SQUID GAME <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=pXB025v5dz8&amp;list=PLLNUvGRre31yFyRHCArX7xL3rC2XECDw9&amp;index=2&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=pXB025v5dz8&amp;list=PLLNUvGRre31yFyRHCArX7xL3rC2XECDw9&amp;index=2&amp;ab_channel=Cheridet</a><br />🌻 Huggy Wuggy has a SECRET <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ERHsSJhKlr8&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=1&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=ERHsSJhKlr8&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=1&amp;ab_channel=Cheridet</a><br />🌻 Disturbing Girl Games You Shouldn't Play <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=XBqyTghXRsc&amp;list=PLLNUvGRre31yn4xPbSDwcXiSZLEqxVVQ_&amp;index=3&amp;t=3s&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=XBqyTghXRsc&amp;list=PLLNUvGRre31yn4xPbSDwcXiSZLEqxVVQ_&amp;index=3&amp;t=3s&amp;ab_channel=Cheridet</a><br />🌻 I Tried Babysitting and Now I DON'T Want BABIES EVER <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=FTQr2UtxBwE&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=2&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=FTQr2UtxBwE&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=2&amp;ab_channel=Cheridet</a>{% endraw %}
