@@ -1,0 +1,15 @@
+---
+title: "XRP RIPPLE *TIME TO MAKE A DECISION!* XRP'S TIME IS UP. BREAKOUT OR MEGA DUMP IMMINENT!"
+image: "https:\/\/i.ytimg.com\/vi\/5whJYgMLA7M\/hqdefault.jpg"
+vid_id: "5whJYgMLA7M"
+categories: "Education"
+tags: ["xrp","xrp ripple","ripple xrp"]
+date: "2022-01-16T18:23:33+03:00"
+vid_date: "2022-01-16T14:23:16Z"
+duration: "PT11M6S"
+viewcount: "682"
+likeCount: "56"
+dislikeCount: ""
+channel: "CryptoTV"
+---
+{% raw %}I don't accept donations, use that money to invest in yourself instead! If you want to support me, use any of the affiliate links below, also leave a like &amp; SUBSCRIBE, that's completely free. Thank you very much!<br /><br />BITYARD | Short &amp; Leverage XRP/RIPPLE: <a rel="nofollow" target="blank" href="https://www.bityard.com/?ru=y3P985">https://www.bityard.com/?ru=y3P985</a><br /><br />JOIN MY DISCORD! <a rel="nofollow" target="blank" href="https://discord.gg/gEYCfRvyEu">https://discord.gg/gEYCfRvyEu</a><br /><br />PATREON: Gain Access To All My Crypto Charts &amp; Trades! <a rel="nofollow" target="blank" href="https://www.patreon.com/CryptoTV">https://www.patreon.com/CryptoTV</a><br /><br />Bitcoin Ticker Display: <a rel="nofollow" target="blank" href="https://cryptocoindisplay.com/?ref=ylhswpgrdz">https://cryptocoindisplay.com/?ref=ylhswpgrdz</a><br />Use Code &quot;CRYPTOTV10&quot; for 10% Off At Checkout!<br /><br />Get Your Crypto Iphone Accessories Here! Use &quot;CRYPTOTV&quot; for 7% Off!<br /><a rel="nofollow" target="blank" href="https://bit.ly/3FGHaar">https://bit.ly/3FGHaar</a><br /><br />MatchX M2 Pro Miner Here! <a rel="nofollow" target="blank" href="https://bit.ly/3lU90Io">https://bit.ly/3lU90Io</a><br />Mine $14+ In Crypto Every Day!<br /><br />Keep Your Crypto Safe! With the Ledger Nano S:<br /><a rel="nofollow" target="blank" href="https://www.ledger.com/products/ledge...">https://www.ledger.com/products/ledge...</a><br /><br />BITCOIN-GEAR: <a rel="nofollow" target="blank" href="https://bit.ly/3a1GYEo">https://bit.ly/3a1GYEo</a><br /><br />Amazon Store:<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/cryptotv">https://www.amazon.com/shop/cryptotv</a><br /><br />Email: CryptoTVOfficial@gmail.com<br /><br />**FOLLOW ME!**<br />Instagram: @Hschreier19<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/CryptoVofficial?l...">https://twitter.com/CryptoVofficial?l...</a><br /><br />Legal Disclaimer: I am not a financial advisor nor is any content in this video presented as financial advice. The information provided in this blog post and any other posts that I make and any accompanying material is for informational purposes only. It should not be considered financial or investment advice of any kind. One should consult with a financial or investment professional to determine what may be best for your individual needs. Plain English: This is only my opinion, make of it what you wish. What does this mean? It means it's not advice nor recommendation to either buy or sell anything! It's only meant for use as informative or entertainment purposes.{% endraw %}
