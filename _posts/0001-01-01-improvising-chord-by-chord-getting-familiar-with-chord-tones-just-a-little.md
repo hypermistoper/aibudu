@@ -1,0 +1,15 @@
+---
+title: "Improvising Chord by Chord | Getting Familiar with Chord Tones"
+image: "https:\/\/i.ytimg.com\/vi\/F1e4ZC_KiXE\/hqdefault.jpg"
+vid_id: "F1e4ZC_KiXE"
+categories: "Music"
+tags: ["danthecomposer","piano lessons","how to play piano"]
+date: "2022-01-16T12:06:10+03:00"
+vid_date: "2021-12-10T11:41:36Z"
+duration: "PT10M2S"
+viewcount: "1352"
+likeCount: "77"
+dislikeCount: ""
+channel: "danthecomposer"
+---
+{% raw %}Just a little easy video reminding you of the three steps to improvisation: chord tones, notes of interest (9, 13, b5 usually) and chromatic connections between those.  I'm using the simple song: I've Got a Crush on You, in Bb.  Chords provided in the video.<br />---<br />Video Management Website:  <a rel="nofollow" target="blank" href="https://www.dan-the-composer.com">https://www.dan-the-composer.com</a><br /><br />7 Important Playlists:  <a rel="nofollow" target="blank" href="http://piano-jazz.blogspot.com/2020/02/guided-channel-playlist-tour.html">http://piano-jazz.blogspot.com/2020/02/guided-channel-playlist-tour.html</a><br /><br />Playlist for beginners - newer videos:  <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL4cPpP-Ua6NWl43cy2XiArwodqSmWBOzC">https://www.youtube.com/playlist?list=PL4cPpP-Ua6NWl43cy2XiArwodqSmWBOzC</a><br /><br />Support me via Patreon:  <a rel="nofollow" target="blank" href="https://www.patreon.com/danthecomposer">https://www.patreon.com/danthecomposer</a><br /><br />Timestamps:<br />00:00 - Intro/Performance<br />01:14 - Basic idea/Chord progression discussion<br />02:29 - Examples on BbM7<br />04:11 - Notes of interest examples<br />05:30 - 2 beats not 4<br />06:15 - Dbdim examples<br />07:45 - Next chords examples<br />08:48 - Silence is also a note!<br />09:18 - Final review<br /><br />(You would do well to press the bell next to my Subscribe button and choose to be notified for all new uploads).<br /><br />danthecomposer Piano Challenge:  <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ScTnOKnvtFY">https://www.youtube.com/watch?v=ScTnOKnvtFY</a><br /><br />Likes, comments and subscriptions always welcome!<br /><br />Follow me on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/danthecomposer/">https://www.instagram.com/danthecomposer/</a><br /><br />My Facebook Page on which you can discover all my work in one place and follow it easily:  <a rel="nofollow" target="blank" href="https://www.facebook.com/danthecomposer1">https://www.facebook.com/danthecomposer1</a><br /><br />My blog:  <a rel="nofollow" target="blank" href="http://piano-jazz.blogspot.com/">http://piano-jazz.blogspot.com/</a><br /><br />My compositions:  <a rel="nofollow" target="blank" href="https://soundcloud.com/danthecomposer">https://soundcloud.com/danthecomposer</a><br /><br />Ten Mins @ the Piano Playlist:  <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL4cPpP-Ua6NUFebhir7tx1CrW03zbb0d0">https://www.youtube.com/playlist?list=PL4cPpP-Ua6NUFebhir7tx1CrW03zbb0d0</a>{% endraw %}
