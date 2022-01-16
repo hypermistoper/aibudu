@@ -1,0 +1,15 @@
+---
+title: "What Is Encapsulation And Information Hiding?"
+image: "https:\/\/i.ytimg.com\/vi\/29NMlHHLUsI\/hqdefault.jpg"
+vid_id: "29NMlHHLUsI"
+categories: "Education"
+tags: ["encapsulation","example of encapsulation and data hiding","data hiding"]
+date: "2022-01-16T21:12:09+03:00"
+vid_date: "2022-01-14T16:00:03Z"
+duration: "PT11M58S"
+viewcount: "7941"
+likeCount: "432"
+dislikeCount: ""
+channel: "ArjanCodes"
+---
+{% raw %}The first 1,000 people to use this link will get a 1 month free trial of Skillshare: <a rel="nofollow" target="blank" href="https://skl.sh/arjancodes01221.">https://skl.sh/arjancodes01221.</a><br /><br />In this video I explain what encapsulation and information hiding are (they're not the same thing!), and how they're related to software design.<br /><br />💡 Get my FREE 7-step guide to help you consistently design great software: <a rel="nofollow" target="blank" href="https://arjancodes.com/designguide.">https://arjancodes.com/designguide.</a><br /><br />The code I worked on in this video is available here: <a rel="nofollow" target="blank" href="https://github.com/ArjanCodes/2022-encapsulation.">https://github.com/ArjanCodes/2022-encapsulation.</a><br /><br />👍 If you enjoyed this content, give this video a like. If you want to watch more of my upcoming videos, consider subscribing to my channel!<br /><br />☕If you want to support this channel, you can buy me a coffee here: <a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/arjancodes.">https://www.buymeacoffee.com/arjancodes.</a><br /><br />💬 Discord: <a rel="nofollow" target="blank" href="https://discord.arjancodes.com">https://discord.arjancodes.com</a><br />🐦Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/arjancodes">https://twitter.com/arjancodes</a><br />🌍LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/arjancodes">https://www.linkedin.com/company/arjancodes</a><br />🕵Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/arjancodes">https://www.facebook.com/arjancodes</a><br /><br />👀 Code reviewers:<br />- Yoriz<br />- Ryan Laursen<br />- Sybren A. Stüvel<br />- Dale Hagglund<br /><br />🎥 Video edited by Mark Bacskai: <a rel="nofollow" target="blank" href="https://www.instagram.com/bacskaimark">https://www.instagram.com/bacskaimark</a><br /><br />🔖 Chapters:<br />0:00 Intro<br />1:09 Encapsulation: first meaning<br />1:32 Encapsulation example<br />2:22 Encapsulation: second meaning<br />2:54 Information hiding<br />4:08 Encapsulation and information hiding example #1<br />7:16 Relation with design principles<br />8:30 Encapsulation and information hiding example #2<br />11:37 Final thoughts<br /><br /><br />#arjancodes #softwaredesign #python<br /><br />DISCLAIMER - The links in this description might be affiliate links. If you purchase a product or service through one of those links, I may receive a small commission. There is no additional charge to you. Thanks for supporting my channel so I can continue to provide you with free content each week!{% endraw %}
