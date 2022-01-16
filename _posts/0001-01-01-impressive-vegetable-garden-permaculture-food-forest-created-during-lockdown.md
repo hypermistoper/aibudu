@@ -1,0 +1,15 @@
+---
+title: "Impressive Vegetable Garden & Permaculture Food Forest Created During Lockdown!"
+image: "https:\/\/i.ytimg.com\/vi\/YivCVgCmPZM\/hqdefault.jpg"
+vid_id: "YivCVgCmPZM"
+categories: "Howto-Style"
+tags: ["Impressive","Vegetable","Garden"]
+date: "2022-01-17T00:26:38+03:00"
+vid_date: "2022-01-14T13:00:17Z"
+duration: "PT9M"
+viewcount: "43421"
+likeCount: "2906"
+dislikeCount: ""
+channel: "Huw Richards"
+---
+{% raw %}This video shows what is possible when an unused piece of land is transformed into an incredibly productive kitchen garden alongside transitioning an orchard into a mini permaculture food forest. Llyr who is based in Mid-West Wales has created this edible abundance over the lockdown period and his impressive work ethic has created something really special that also supplies his family with much of their vegetable needs. I really hope you like this inspiring vegetable gardening story.<br /><br />Follow Llyr's YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC1FiBuRBNm1OgXsGvKZrgmw">https://www.youtube.com/channel/UC1FiBuRBNm1OgXsGvKZrgmw</a><br />Llyr's Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/llyrs_veg_garden/">https://www.instagram.com/llyrs_veg_garden/</a><br /><br />Full playlist: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLPGyuloevt5ylrTHyRjlzHy_FBzKcCUxY">https://youtube.com/playlist?list=PLPGyuloevt5ylrTHyRjlzHy_FBzKcCUxY</a><br /><br />-📷Patreon-<br />Exclusive content for gardeners wanting more from their space: <a rel="nofollow" target="blank" href="https://www.patreon.com/huwrichards">https://www.patreon.com/huwrichards</a> <br /><br />-✒️Online Courses-<br />Planting Plan Short Course: <a rel="nofollow" target="blank" href="https://abundanceacademy.online/p/the-monthly-planting-plan">https://abundanceacademy.online/p/the-monthly-planting-plan</a><br />More Food Less Effort Course: <a rel="nofollow" target="blank" href="http://morefoodlesseffort.com/">http://morefoodlesseffort.com/</a><br />Kitchen Garden Fermentation: <a rel="nofollow" target="blank" href="https://abundanceacademy.online/p/homegrown-fermentation">https://abundanceacademy.online/p/homegrown-fermentation</a><br /><br />-🔗Social-<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/HuwRichardsOfficial">https://www.facebook.com/HuwRichardsOfficial</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/huwsgarden/">https://www.instagram.com/huwsgarden/</a><br /><br />-🧵Clothing-<br />Awesome clothing designed for vegetable gardeners: <a rel="nofollow" target="blank" href="https://huwrichards.teemill.com/">https://huwrichards.teemill.com/</a><br /><br />-🍴Delicious Garden Recipes<br />Farmer &amp; Chef <a rel="nofollow" target="blank" href="https://instagram.com/farmer.and.chef">https://instagram.com/farmer.and.chef</a><br /><br />#foodforest #vegetablegarden #permaculturegarden{% endraw %}
