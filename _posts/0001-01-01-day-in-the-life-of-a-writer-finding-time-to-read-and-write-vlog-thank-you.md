@@ -1,0 +1,15 @@
+---
+title: "Day in the Life of a Writer: Finding time to Read and Write VLOG"
+image: "https:\/\/i.ytimg.com\/vi\/zVP36uCR2E8\/hqdefault.jpg"
+vid_id: "zVP36uCR2E8"
+categories: "Entertainment"
+tags: ["day in the life","day in the life of a writer"]
+date: "2022-01-16T18:08:03+03:00"
+vid_date: "2021-06-12T13:00:32Z"
+duration: "PT13M27S"
+viewcount: "6870"
+likeCount: "416"
+dislikeCount: ""
+channel: "Jessica Le Bars"
+---
+{% raw %}Thank you for viewing my first vlog! I love watching this type of content so I thought of creating a day in the life as well. Although my routine changes frequently this is what a typical day living my best writer's life looks like. Each day I prioritize three things: writing, reading and exercising. I know that if I do all three I will be pleased looking back on my day. <br /><br />Since scheduling the time to read and write everyday I have seen improvement in my writing.. which makes me very happy! I'll never make the promise to become a great, divine, exquisite writer. I only promise to be A writer, setting free the stories in my head. Because THAT is what matters to me. <br /><br />The same goes for YouTube. I'm not thriving to become a sensation. I'm doing it for entertainment and to have memories to look back on. Yes this is all about ME 😈 but I'm also hoping to inspire other inspiring authors out there to let go of other's opinions and finally set their stories free.<br />Because there can never be too many books out there! <br /><br />Don’t forget to:<br /><br />Subscribe! <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCVta-BFwqri3cjs_bxBeErw">https://www.youtube.com/channel/UCVta-BFwqri3cjs_bxBeErw</a><br /><br />Social media:<br /><br />🍵Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/jessicalebars/">https://www.instagram.com/jessicalebars/</a><br />🍵TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@j.lebars?is_copy_url=1&amp;is_from_webapp=v1&amp;lang=en">https://www.tiktok.com/@j.lebars?is_copy_url=1&amp;is_from_webapp=v1&amp;lang=en</a><br />🍵Goodreads: <a rel="nofollow" target="blank" href="https://www.goodreads.com/user/show/63439572-jessica-le-bars">https://www.goodreads.com/user/show/63439572-jessica-le-bars</a><br /><br />Music:<br /><br />🌻Brooks - Daisy Daffodil - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=750553EC">https://thmatc.co/?l=750553EC</a><br />🌻Old Bossa by Twin Musicom is licensed under a Creative Commons Attribution 4.0 license. <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br />Artist: <a rel="nofollow" target="blank" href="http://www.twinmusicom.org/">http://www.twinmusicom.org/</a><br />🌻8thDimensions - Reflection - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=FA37C548">https://thmatc.co/?l=FA37C548</a><br />🌻Bet On It - Silent Partner<br />🌻Easy Stroll - TrackTribe<br /><br />**No copyright infringement intended{% endraw %}
