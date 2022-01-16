@@ -1,0 +1,15 @@
+---
+title: "\"You’ll Never Eat These Products Again After Watching This! | Dr. Pradip Jamnadas, MD"
+image: "https:\/\/i.ytimg.com\/vi\/A5WVaSJ7cJ0\/hqdefault.jpg"
+vid_id: "A5WVaSJ7cJ0"
+categories: "Education"
+tags: ["daily motivation","daily motivation channel","You’ll Never Eat These Products Again After Watching This"]
+date: "2022-01-16T03:21:24+03:00"
+vid_date: "2022-01-09T13:40:12Z"
+duration: "PT11M12S"
+viewcount: "269643"
+likeCount: "10297"
+dislikeCount: ""
+channel: "daily MOTIVATION"
+---
+{% raw %}&quot;You don't even know IT'S HAPPENING TO YOU!&quot;<br /><br />►Special thanks to Dr. Pradip Jamnadas MD for sharing this valuable information.<br />Check out his amazing content here: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCOtQHehGWtblMp1gZC8Kq3Q">https://www.youtube.com/channel/UCOtQHehGWtblMp1gZC8Kq3Q</a><br /><a rel="nofollow" target="blank" href="https://orlandocvi.com/">https://orlandocvi.com/</a><br /><br />Dr. Pradip Jamnadas, MD, MBBS, FACC, FSCAI, FCCP, FACP<br />The founder and Chief Medical Officer of Cardiovascular Interventions, P.A. in Orlando Florida where, since 1990,  he has been repeatedly recognized in local publications as a Top Doctor performing thousands of interventional procedures in hospital and out patient settings. As a consultant cardiologist with a large diversified inpatient and outpatient practice he is noted for his passions for teaching and illuminating prevention for cardiovascular disease . He is also a clinical assistant professor of medicine at The Florida State University and University of Central Florida. <br /><br />►If you struggle and have a hard time, consider taking an online therapy session with our partner BetterHelp. <a rel="nofollow" target="blank" href="https://tryonlinetherapy.com/dailymotivation.">https://tryonlinetherapy.com/dailymotivation.</a> We receive commissions for referrals to BetterHelp. We only recommend products we know and trust. <br /><br />►SELF-HYPNOSIS AUDIO PROGRAMS: <a rel="nofollow" target="blank" href="http://bit.ly/2jVoXRb">http://bit.ly/2jVoXRb</a> (Reprogram Your Subconscious) <br />_________________________<br /><br /> ©️ SOURCE CREDIT: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCOtQHehGWtblMp1gZC8Kq3Q">https://www.youtube.com/channel/UCOtQHehGWtblMp1gZC8Kq3Q</a><br />_________________________<br /><br />🎵BACKGROUND MUSIC licensed through AudioJungle &amp; Epidemic Sound <br />_________________________<br /><br />🎥FOOTAGE licensed through VideoBlocks, Filmpac and Artgrid except parts about the topic that have been used under fair use.<br />_________________________<br /><br />►All materials in these videos are used for educational purposes and fall within the guidelines of fair use. No copyright infringement intended. If you are or represent the copyright owner of materials used in this video and have a problem with the use of said material, please send me an email,   <br />DAILY.MOTIVATION_CONTACT@YAHOO.COM, and we can sort it out.{% endraw %}
