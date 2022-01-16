@@ -1,0 +1,15 @@
+---
+title: "German Kids Who Griefed Players Had To Activate Cheats To Fight Me"
+image: "https:\/\/i.ytimg.com\/vi\/9j0fakMZ_NI\/hqdefault.jpg"
+vid_id: "9j0fakMZ_NI"
+categories: "Gaming"
+tags: ["UVersusPro","GTA Online","Modders gta online"]
+date: "2022-01-16T23:12:30+03:00"
+vid_date: "2022-01-16T15:00:05Z"
+duration: "PT15M38S"
+viewcount: "19323"
+likeCount: "2133"
+dislikeCount: ""
+channel: "UVersusPro"
+---
+{% raw %}👉 Start protecting yourself with NordVPN <a rel="nofollow" target="blank" href="https://bit.ly/3b1Iarq">https://bit.ly/3b1Iarq</a> or use code UVP and save 73% + 1 FREE Months + 30 Day Money Back Guarantee<br /><br />Instagram ► <a rel="nofollow" target="blank" href="https://www.instagram.com/uversuspro_official/">https://www.instagram.com/uversuspro_official/</a><br />Discord ► <a rel="nofollow" target="blank" href="https://discord.com/invite/pvphub">https://discord.com/invite/pvphub</a><br />My GTAV Settings ► <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Hw_MCttDrfE">https://www.youtube.com/watch?v=Hw_MCttDrfE</a><br /><br />Music: ℗ Epidemic Sound<br />1. ES_Impulse - Hampus Naeselius<br />2. ES_It's a Trap! - Remodal<br />3. ES_Oh God - Damma Beatz<br />4. ES_Soul Waste - Ballpoint<br /><br />___<br />My PC:<br />🎮 CPU: Intel i9-10900k <br />🎮 Motherboard: Gigabyte Z490 AORUS MASTER<br />🎮 Cooler: HYPERPC WaterCooling 360 RGB<br />🎮 GPU: Gigabite RTX 3080 (Aorus)<br />🎮 Memory: Corsair Dominator Platinum RGB 2x16gb 3600Mhz <br />🎮 SSD: Samsung 970 EVO Plus 500GB<br />🎮 SSD 2: HyperX Savage 480GB<br />🎮 HDD:  Seagate (IronWolf) 2TB<br />🎮 Power Supply: Cooler Master V1000<br />🎮 Case: Fractal Design Define 7 XL<br /><br />and peripherals:<br />🎮 Main monitor: Alienware AW2721 (240hz)<br />🎮 Monitor 2: DELL S2417DG (165hz)<br />🎮 KB: Corsair K68 RGB (Cherry MX Red) + Dark Project PBT Sideprint Keycaps<br />🎮 Main mouse: Razer Viper Ultimate Cyberpunk Edition<br />🎮 Mouse for shooters: Glorious Model O- Matte White<br />🎮 Mic: Audio-Technica AT2020USB+<br />🎮 Speakers: Logitech G560 LIGHTSYNC<br />🎮 Headphones: Logitech G Pro X<br />🎮 Mousepad: Logitech G640<br /><br />Mouse's sens: 600 dpi 0sens in the game's settings.<br /><br />___<br />My accounts:<br />1. UVersusPro [from 14.04.15 to 12.01.18] - KittyHaker21 [I used it from 12.01.18 to 18.04.19] - from 19.04.19 Eliminator uses it<br />2. _AIMBOT.EXE_ [from 18.06.17 to 04.08.18] - UVersusPro [since 04.08.18]<br />3. CitizenCatz [from 15.04.16 to 17.02.18] - DatBadCat [since 17.02.18 - 29.03.18] then from 30.03.18 to 18.04.19 Eliminator used it. From 18.04.19 Friendly_Pug <br />4. WakandaForever [I was using it for 3 months in the end of 2019, in February I gave away the account]<br />5. ApeWithNoBrakes [January 2020 - March 2020] <br />6. GucciHorse [March 2020 - July 2020]<br />7. StuartBiggle [July 2020 - January 2021]<br />8. FortnitePogger69 [January 2021 - April 2021]<br />___<br />Video created with Sony Vegas Pro 18.{% endraw %}
