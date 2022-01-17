@@ -1,0 +1,15 @@
+---
+title: "9 DECORATING MISTAKES THAT COULD MAKE YOU DEPRESSED OR ANXIOUS"
+image: "https:\/\/i.ytimg.com\/vi\/43cCK4uEdes\/hqdefault.jpg"
+vid_id: "43cCK4uEdes"
+categories: "Howto-Style"
+tags: ["interior design","decorating tips","decor"]
+date: "2022-01-17T09:07:28+03:00"
+vid_date: "2022-01-17T01:03:50Z"
+duration: "PT13M48S"
+viewcount: "2822"
+likeCount: "388"
+dislikeCount: ""
+channel: "Posh Pennies"
+---
+{% raw %}Hey hello! Maybe it’s a sign of these strange times, but I’ve had many requests for tips on how to alleviate anxiety and depression in the home, and questions about whether it’s possible to improve your mood by doing certain things in your house. <br /><br />The answer is YES, there are so many things you can do to feel better in your home!! They are all very easy, so don’t worry, you won’t feel overwhelmed. <br /><br />Make sure you’re not making any of these mistakes in your decor and interior design so that you can feel your absolute best in your home.<br /><br />I recommend this book: <a rel="nofollow" target="blank" href="https://amzn.to/3nwCEDA">https://amzn.to/3nwCEDA</a><br /><br />It’s a gem for all things relating to environmental psychology - a topic I am super interested in - and it’s very easy to understand. I got a lot of value out of it and periodically go back and read it.<br /><br />There were so many other things that I would have loved to touch on, like using scents and music, but that will have to be a video for another day!<br /><br />Thanks as always for watching and please remember to leave any of your own decorating tips that you may have that helped you when feeling anxious or depressed.<br /><br />📖 Prefer reading? Check out my blog post right here: <br /><a rel="nofollow" target="blank" href="https://poshpennies.com/help-anxiety-depression-home-decor/">https://poshpennies.com/help-anxiety-depression-home-decor/</a><br /><br />🎶 Music: <br />Epidemic Sound - <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/jd0gpe/">https://www.epidemicsound.com/referral/jd0gpe/</a><br /><br />POSH PENNIES ON THE INTERWEBZ !<br />💻 Blog: <a rel="nofollow" target="blank" href="https://poshpennies.com/">https://poshpennies.com/</a><br />📲 Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/poshpennies/">https://www.instagram.com/poshpennies/</a><br />🖼️ Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/poshpenniesblog/">https://www.pinterest.com/poshpenniesblog/</a><br /><br />CHECK OUT MY DECOR FAVES:<br />❤️ <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/poshpennies">https://www.amazon.com/shop/poshpennies</a> <br /><br />✉️ CONTACT:<br />askviv@poshpennies.com<br />*spam emails will be ignored/blocked <br /><br />👀 Just a heads up that my description sometimes contains affiliate links. This just means that if you click on one of my links and then make a purchase, I make a small commission. It costs you literally nothing, zero, zilch, nada, but it helps me more than you can know! Thank you 😍<br /><br />♥ Vivien{% endraw %}
