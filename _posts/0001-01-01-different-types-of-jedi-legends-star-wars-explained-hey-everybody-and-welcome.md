@@ -1,0 +1,15 @@
+---
+title: "Different Types of Jedi (Legends) - Star Wars Explained"
+image: "https:\/\/i.ytimg.com\/vi\/E8oUsCjOamY\/hqdefault.jpg"
+vid_id: "E8oUsCjOamY"
+categories: "Entertainment"
+tags: ["Star Wars","Star Wars Explained","Star Wars Legends"]
+date: "2022-01-18T21:48:29+03:00"
+vid_date: "2017-10-06T21:00:00Z"
+duration: "PT6M1S"
+viewcount: "51938"
+likeCount: "1702"
+dislikeCount: ""
+channel: "Leia's Lair: A Star Wars Channel"
+---
+{% raw %}Hey everybody and welcome to Leia's Lair. In this episode I will go over the different paths of a Jedi in the Star Wars Legends universe. This includes the Jedi Guardian, Jedi Consular, and Jedi Sentinel. As well as the different occupations a Jedi can typically have with each specialization. I hope you enjoy!<br /><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/leiaslair/">https://www.facebook.com/leiaslair/</a><br /><br />Canon vs. Legends - Star Wars Explained<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=I4-vt8SRHIc">https://www.youtube.com/watch?v=I4-vt8SRHIc</a><br /><br />Different Lightsaber Styles (Legends) - Star Wars Explained<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=RtH1IRc_jwE">https://www.youtube.com/watch?v=RtH1IRc_jwE</a><br /><br />Different Lightsaber Combat Forms - Star Wars Explained CANON<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9puih1cgYgE">https://www.youtube.com/watch?v=9puih1cgYgE</a><br /><br />What is the First Order? - Star Wars Explained CANON<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=jA3ql0fgZXM">https://www.youtube.com/watch?v=jA3ql0fgZXM</a><br /><br />Who Is The Last Jedi? - Star Wars Theories Explained<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=TVjueqXD4cw">https://www.youtube.com/watch?v=TVjueqXD4cw</a><br /><br />Different Lightsaber Styles - Star Wars Explained CANON<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=wjUQTbkj60E">https://www.youtube.com/watch?v=wjUQTbkj60E</a><br /><br />Why Did Kylo Ren Turn to the Dark Side? - Star Wars Theories Explained<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=sdwnGwxemvw">https://www.youtube.com/watch?v=sdwnGwxemvw</a><br /><br />Jedi Council Members - Star Wars Explained CANON<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=jomvXRxBmIo">https://www.youtube.com/watch?v=jomvXRxBmIo</a><br /><br />Force Powers - Star Wars Explained CANON<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=HRR0ZRA5aIg">https://www.youtube.com/watch?v=HRR0ZRA5aIg</a><br /><br />What is a Sith? - Star Wars Explained CANON<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=lE1xUtnkC-0">https://www.youtube.com/watch?v=lE1xUtnkC-0</a><br /><br />I do not claim to own any of the footage, sounds, and/or artwork used in the video. If you find your art being used and want credit for it, I would be happy to credit you in the video.{% endraw %}
