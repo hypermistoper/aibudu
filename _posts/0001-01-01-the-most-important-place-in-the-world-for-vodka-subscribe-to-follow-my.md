@@ -1,0 +1,15 @@
+---
+title: "The most important place in the world for VODKA"
+image: "https:\/\/i.ytimg.com\/vi\/JKkFTpjxANk\/hqdefault.jpg"
+vid_id: "JKkFTpjxANk"
+categories: "Travel-Events"
+tags: ["Brayden Drevlow","Nastaya","Nomad Shubham"]
+date: "2022-01-18T23:49:07+03:00"
+vid_date: "2022-01-16T10:46:31Z"
+duration: "PT14M6S"
+viewcount: "50516"
+likeCount: "3698"
+dislikeCount: ""
+channel: "Brayden Drevlow"
+---
+{% raw %}➤ SUBSCRIBE to follow my adventures: <a rel="nofollow" target="blank" href="https://bit.ly/3mKvFW8">https://bit.ly/3mKvFW8</a><br /><br />If you like vodka, there is no doubt that this place should be on your to-go list. The Museum of Russian Vodka features hundreds of vodka selections, from the finest to the weakest. I’ve had my fair share of vodka all over Russian/post-Soviet countries, like Kyrgyzstan, where it is so bad and cheap you can go blind… but this place in St. Petersburg has vodka from the highest shelf. Paired up with local and rare traditional foods…this place is a must go if you really want to explore the world of VODKA! <br /><br />In this video, @Nomad Shubham, Nastaya, Julia, and I go to the Museum of Russian Vodka, compete with vodka taste tests, and enjoy the special atmosphere of this “epicenter of all vodka.”<br /><br />#Vodka #Russia #WorldsBest<br />——<br /><br />WHO AM I?<br />My name is Brayden Drevlow, and I am a concert pianist / traveler from the United States (Minnesota). Whenever I’m not performing for Parliaments or Presidents, I travel full-time. I love seeking out crazy adventures and living on the edge of the comfort zone. I make videos about my wild adventures, confronting new cultures, and anything else I think is worth sharing. Come with me to experience the world! <br /><br />MORE ABOUT ME:<br /><a rel="nofollow" target="blank" href="https://www.BraydenDrevlow.com">https://www.BraydenDrevlow.com</a><br /><br />MOST POPULAR YOUTUBE VIDEOS:<br />➤ This (Taliban) Border Wall Touches the Clouds! (<a rel="nofollow" target="blank" href="https://youtu.be/hYPwWhIxpGc)">https://youtu.be/hYPwWhIxpGc)</a><br />➤ Teaching Shubham GUN SAFETY (failure) (<a rel="nofollow" target="blank" href="https://youtu.be/lRpTgQKVdLk)">https://youtu.be/lRpTgQKVdLk)</a><br />➤ Scary Situation in Afghanistan - 3 guys with AK-47s demand I convert to Islam (<a rel="nofollow" target="blank" href="https://youtu.be/HpgKR8MD2FA)">https://youtu.be/HpgKR8MD2FA)</a><br /><br />MY FAVORITE YOUTUBE VIDEOS:<br />➤ World’s Most MILITARIZED Airport? (<a rel="nofollow" target="blank" href="https://youtu.be/u-Grpis37BE)">https://youtu.be/u-Grpis37BE)</a><br />➤ DRUNK on the Uzbek Night Train!! (smuggled vodka) (<a rel="nofollow" target="blank" href="https://youtu.be/T4O5vWyJIzc)">https://youtu.be/T4O5vWyJIzc)</a><br />➤ World’s LONGEST Zipline!! (<a rel="nofollow" target="blank" href="https://youtu.be/Lo_SwJaQTZU)">https://youtu.be/Lo_SwJaQTZU)</a><br /><br />OTHER SOCIAL MEDIA:<br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/braydendrevlow">https://www.instagram.com/braydendrevlow</a>{% endraw %}
