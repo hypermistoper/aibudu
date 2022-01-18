@@ -1,0 +1,15 @@
+---
+title: "The Airborne Toxic Event - Sometime Around Midnight (Live at SXSW)"
+image: "https:\/\/i.ytimg.com\/vi\/wSMuyI6XPv8\/hqdefault.jpg"
+vid_id: "wSMuyI6XPv8"
+categories: "Music"
+tags: ["The","Airborne","Toxic"]
+date: "2022-01-18T03:53:33+03:00"
+vid_date: "2013-05-16T00:46:33Z"
+duration: "PT5M42S"
+viewcount: "408178"
+likeCount: "3355"
+dislikeCount: ""
+channel: "ShoutFactoryMusic"
+---
+{% raw %}The Airborne Toxic Event perform their hit single &quot;Sometime Around Midnight&quot; live at the Bat Bar in Austin, TX during the 2007 SXSW music festival. &quot;Sometime Around Midnight&quot; is from their self titled debut album, and was released as a UK single on February 2, 2009. The song peaked at #4 on the Billboard Hot Alternative Songs Chart and #33 on the UK Singles Chart.<br /><br />WANT TO SEE MORE LIVE MUSIC? SUBSCRIBE HERE: <a rel="nofollow" target="blank" href="http://www.youtube.com/user/ShoutFactoryMusic">http://www.youtube.com/user/ShoutFactoryMusic</a><br /><br />FOLLOW US ON FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/pages/Shout-Factory-Music-Live/467190290001168">https://www.facebook.com/pages/Shout-Factory-Music-Live/467190290001168</a><br /><br />FOLLOW US ON TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/ShoutMusic_Live">https://twitter.com/ShoutMusic_Live</a><br /><br />Lyrics:<br />And it starts<br />Sometime around midnight<br />Or at least that's when you lose yourself<br />For a minute or two<br /><br />As you stand<br />Under the bar lights<br />And the band plays some song about forgetting yourself for a while<br />And the piano's this melancholy soundtrack to her smile<br />And that white dress she's wearing, you haven't seen her<br />For a while<br /><br />But you know<br />That she's watching<br />She's laughing, she's turning<br />She's holding her tonic like a cross<br />The room suddenly spinning, she walks up and asks how you are<br />So you can smell her perfume<br />You can see her lying naked in your arms<br /><br />And so there's a change<br />In your emotions<br />And all of these memories come rushing like feral waves to your mind<br />Of the curl of your bodies, like two perfect circles entwined<br />And you feel hopeless, and homeless, and lost in the haze of the wine<br /><br />And she leaves<br />With someone you don't know<br />But she makes sure you saw her, she looks right at you and bolts<br />As she walks out the door<br />Your blood boiling, your stomach in ropes<br />And then your friends say &quot;What is it? You look like you've seen a ghost.&quot;<br /><br />And you walk<br />Under the streetlights<br />And you're too drunk to notice that everyone's staring at you<br />You don't care what you look like<br />The world is falling around you<br /><br />You just have to see her<br />You just have to see her<br />You just have to see her<br />You just have to see her<br />You just have to see her<br /><br />You know that she'll break you in two{% endraw %}
