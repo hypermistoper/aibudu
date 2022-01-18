@@ -1,0 +1,15 @@
+---
+title: "Australia Has Blue Bees, And They are So Amazing You'd Wish They Lived In Your Country"
+image: "https:\/\/i.ytimg.com\/vi\/xGlQ8ZIcAlo\/hqdefault.jpg"
+vid_id: "xGlQ8ZIcAlo"
+categories: "Entertainment"
+tags: ["bright side","brightside"]
+date: "2022-01-18T06:41:04+03:00"
+vid_date: "2022-01-17T04:00:27Z"
+duration: "PT9M2S"
+viewcount: "60937"
+likeCount: "1836"
+dislikeCount: ""
+channel: "BRIGHT SIDE"
+---
+{% raw %}When we think of bees, we imagine a black and yellow colored insect that loves flowers and honey. But what if I tell you that bees can wear other colors too? Some bees located in Australia have blue stripes on their bodies.<br /><br /><br /><br />This insect looks like a flying sapphire! We at Bright Side couldn't believe our own eyes when we first saw these blue-banded bees. Here're 9 tiny amazing creatures that live in the sky, ocean, and sand.<br /><br /><br />TIMESTAMPS<br />Flying Sapphire 00:00<br />Blue Bees in Australia 01:25<br />Wasps &amp; Bees 01:57<br />Mud Dauber Wasp 02:53<br />Hornets 03:40<br />Pellucid Hawk Moth 04:35<br />The Southern Flannel Moth 05:40<br />Blue-ringed octopus 07:15<br />Fire ants 08:42<br /><br /><br />#brightside<br />Animation is created by Bright Side.<br />----------------------------------------------------------------------------------------<br />Music by Epidemic Sound <a rel="nofollow" target="blank" href="https://www.epidemicsound.com">https://www.epidemicsound.com</a> <br /><br />Check our Bright Side podcast on Spotify and leave a positive review! <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV">https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV</a> <br /><br />Subscribe to Bright Side: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a> <br />----------------------------------------------------------------------------------------<br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/brightside">https://www.facebook.com/brightside</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brightside.official">https://www.instagram.com/brightside.official</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brightside.official?lang=en">https://www.tiktok.com/@brightside.official?lang=en</a> <br /><br />Stock materials (photos, footages and other):<br /><a rel="nofollow" target="blank" href="https://www.depositphotos.com">https://www.depositphotos.com</a><br /><a rel="nofollow" target="blank" href="https://www.shutterstock.com">https://www.shutterstock.com</a><br /><a rel="nofollow" target="blank" href="https://www.eastnews.ru">https://www.eastnews.ru</a><br />----------------------------------------------------------------------------------------<br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="http://www.brightside.me">http://www.brightside.me</a>{% endraw %}
