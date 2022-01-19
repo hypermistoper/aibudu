@@ -1,0 +1,15 @@
+---
+title: "When People Say They're \"A Christian\" These Days"
+image: "https:\/\/i.ytimg.com\/vi\/GuX7pCH9uZ4\/hqdefault.jpg"
+vid_id: "GuX7pCH9uZ4"
+categories: "People-Blogs"
+tags: ["new age testimony","from new age to jesus","new age deception"]
+date: "2022-01-19T08:54:57+03:00"
+vid_date: "2022-01-10T15:39:18Z"
+duration: "PT16M53S"
+viewcount: "119297"
+likeCount: "8305"
+dislikeCount: ""
+channel: "Melissa Dougherty"
+---
+{% raw %}Picture it: A Christian is doing a report for her seminary class about historic Christianity. She's interviewing other people who've signed up as &quot;A Christian&quot; for the project. But upon further examination, she discovers somethin' needs a sugar packet check. (... Do you get it?... BUT DO YOU GET IT?! Ba dum tss! :-D)<br /><br />Special shoutout to my friend Keith Walker from @EvidenceMinistries for help with the script, especially for the Jehovah's Witness and Mormon. I shall thank you with coffee and sugar packets. <br /><br />Random Fun Facts:<br />#1- If you don't get the sugar packets reference, watch here: <a rel="nofollow" target="blank" href="https://youtu.be/Q_F23juDwwg">https://youtu.be/Q_F23juDwwg</a><br />#2- If you do get it, here's a high five and a potato. 👋🏽🥔<br />#3/2- Almost everything the Progressive said was directly quoted from Richard Rohr's website and a progressive church's website. (Yes, even the comment about &quot;Christ&quot; being Jesus' last name. I shake my head every time I see it. Here. Shake yours too: <a rel="nofollow" target="blank" href="https://cac.org/another-name-for-every-thing-the-universal-christ/">https://cac.org/another-name-for-every-thing-the-universal-christ/</a><br />#7+9- Yes, Mormons and Jehovah's Witnesses actually believe that. You can look up everything I said in their own publications and websites. <br />#9.05- I was in the beginning stages of being sick when I filmed this. (Shout-out to Dayquil and coffee!)<br />#45.7- People saying they're Christians when they don't believe in Christian doctrine grinds my gears.<br />#99.9- Just because someone says they're a Christian doesn't mean they are.  <br />#.03- My favorite character was the Mormon. (They're always my favorite. I wuv them.)<br />#78- Can you guess the last one?<br />#2- Who was your favorite?!<br /><br />My Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/NewAgeToChristianity/">https://www.facebook.com/NewAgeToChristianity/</a><br />Instagram: @melissaldougherty<br /><br />My Other Satire Videos:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLLvfK83TeHUsvPRzWL3DgOCbvwAt0zU39">https://youtube.com/playlist?list=PLLvfK83TeHUsvPRzWL3DgOCbvwAt0zU39</a><br /><br />My Website:<br /><a rel="nofollow" target="blank" href="https://www.melissadougherty.co/">https://www.melissadougherty.co/</a><br /><br />If you are led, consider supporting my ministry:<br /><a rel="nofollow" target="blank" href="https://paypal.me/MelissaDougherty77">https://paypal.me/MelissaDougherty77</a>{% endraw %}
