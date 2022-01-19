@@ -1,0 +1,15 @@
+---
+title: "Stop - 18 Janar 2022 (Emisioni i plotë)"
+image: "https:\/\/i.ytimg.com\/vi\/raObAMMbHpM\/hqdefault.jpg"
+vid_id: "raObAMMbHpM"
+categories: "News-Politics"
+tags: ["albania","denonco","emision satirik"]
+date: "2022-01-19T08:44:13+03:00"
+vid_date: "2022-01-18T20:00:09Z"
+duration: "PT44M17S"
+viewcount: "7842"
+likeCount: "44"
+dislikeCount: ""
+channel: "RTV KLAN"
+---
+{% raw %}Cfare nuk u pa nga vizita e Erdoganit, dhurata e Rames per te.<br /><br />Kryeministri Rama ka publikuar sot një momonet nga vizita e presidentit turk në Shqipëri, Erdogan. Rama i dhuroi mikut turk një objekt qelqi të punuar prej tij, duke i thënë, se duhej mbajtur me kujdes, pasi nuk mund të paketohej.Erdogan nga ana tjetër i jep porosi të qarta shoqëruesit, për mënyrën sesi duhet të transportohej dhurata e Ramës.<br /><br />#stoptvklan #stop18janar #Erdogan #EdiRama #dhurataErdogan #SaimirKodra #GentianZenelaj <br /> <br />Fier/ Deshmite rrenqethese te vdekjes se 3 vjecarit ne kopshtin privat.<br /><br />Pak ditë më parë, lajmi se një fëmijë 3 vjecar humbi jetën në rrethana të paqarta në një kopsht privat në Fier, tronditi opinionin publik.Prindërit e fëmijës, tregojnë për “Stop” ditën tragjike, që kur cuan 3 vjecarin Noah në kopsht, e derisa u njoftuan nga nga edukatorja kujdestare Redina, për ngjarjen.Eksperti i kriminalistikës Ervin Karamuca ngre disa pista mbi atë, që mund të ketë ndodhur ditën e tragjedisë.<br /><br />#stoptvklan #stop18janar #Fier #kopshtiprivat #ErvinKaramuca #deshmite #denoncimiprinderve #SaimirKodra #GentianZenelaj<br /> <br />Fier/ Deshmite per vdekjen tragjike te 3 vjecarit, shenja ne qafe e ne balle.<br /><br />Lidhur me enigmat e vdekjes së 3 vjecarit në kopshtin privat të Fierit, prindërit e tij kanë takuar mjekun e urgjencës, që priti fëmijën, Ai thotë, se fëmija ka mbërritur pa shenja jete në spital dhe me një shenjë rreth 10 cm si shirit në qafë. Kamera e “Stop” tregon edhe ambientet e përshtatura të këtij kopshti privat nga një vilë 3 katëshe. Pjesa e shkallëve nuk është shumë mirë e mbrojtur, ndërsa pjerrësia e shkallëve përbën rrezik për fëmijët.<br /><br />#stoptvklan #stop18janar #Fier #kopshtiprivat #ErvinKaramuca #deshmite #denoncimiprinderve #SaimirKodra #GentianZenelaj<br /><br />Stop Tv Klan | Një format satiro-investigativ nga Saimir Kodra &amp; Gentian Zenelaj.<br /><br />SUBSCRIBE to “RTV KLAN” on YouTube for more videos!<br /><br />Për më shumë informacione vizitoni faqen tonë web <a rel="nofollow" target="blank" href="https://tvklan.al/">https://tvklan.al/</a><br />Videot e fundit nga Tv Klan i gjeni në faqen <a rel="nofollow" target="blank" href="https://tvklan.al/video/">https://tvklan.al/video/</a><br />Follow Tvklan on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/tvklan/">https://www.facebook.com/tvklan/</a><br />Follow Tvklan on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/rtvklan/">https://www.instagram.com/rtvklan/</a><br />Programet e Tv Klan mund t’i ndiqni edhe në faqen <a rel="nofollow" target="blank" href="https://tvklan.al/programe/">https://tvklan.al/programe/</a>{% endraw %}
