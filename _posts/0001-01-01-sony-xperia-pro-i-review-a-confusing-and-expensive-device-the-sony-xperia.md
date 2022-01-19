@@ -1,0 +1,15 @@
+---
+title: "Sony Xperia Pro I Review - A Confusing and Expensive Device"
+image: "https:\/\/i.ytimg.com\/vi\/1Qy7-lgqLWU\/hqdefault.jpg"
+vid_id: "1Qy7-lgqLWU"
+categories: "Science-Technology"
+tags: ["sony xperia pro-i","xperia pro-i","xperia pro i"]
+date: "2022-01-19T17:35:43+03:00"
+vid_date: "2022-01-19T14:00:03Z"
+duration: "PT16M39S"
+viewcount: "100"
+likeCount: "7"
+dislikeCount: ""
+channel: "Jonathan Casey"
+---
+{% raw %}The Sony Xperia Pro-I is a very confusing phone. It's aimed at pro's and creatives that want more control out of their phone and I can see where Sony is going with it. The problem is the Sony Xperia Pro I experience is very confusing and very lackluster. In this video, I'll be giving you my Xperia Pro-I review and going over everything including the incredible design, software experience, performance, battery life, and of course camera. For the camera I have plenty of photo samples including RAW images. Additionally, I did a Sony Xperia Pro I video test against the iPhone 13 Pro and Prores. It's very short in this video but if you want to see more let me know and I'll do a dedicated video. Speaking of that camera, it does have several unique features including the Zeiss coating, phase detection autofocus with tracking options, and it utilizes the same sensor as the Sony RX100. <br /><br />►► TIMECODE ◀︎◀︎<br />⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺<br />00:00 - Intro<br />00:47 - Design<br />03:09 - Display<br />05:58 - Software Experience<br />07:25 - Performance<br />08:10 - Battery Life and Charging Times<br />09:01 - Camera Review and Samples<br />14:35 - Wrap Up<br /><br />►►► OTHER VIDEOS TO CHECK OUT! ◀︎◀︎◀︎<br />⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺<br />Galaxy S21 FE Tips and Tricks - First Things To Do! <a rel="nofollow" target="blank" href="https://youtu.be/ULKARHbCpOU">https://youtu.be/ULKARHbCpOU</a><br /><br />Samsung Galaxy Book Odyssey Review - How Good Is It? <a rel="nofollow" target="blank" href="https://youtu.be/io1Y3DPKaw8">https://youtu.be/io1Y3DPKaw8</a><br /><br />⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺⎺<br />Check Out My KIT Page Here: <a rel="nofollow" target="blank" href="https://kit.co/JonathanJCasey">https://kit.co/JonathanJCasey</a><br />Get My Music HERE: <a rel="nofollow" target="blank" href="http://bit.ly/2z6T2E2">http://bit.ly/2z6T2E2</a><br />Get Your Colorware Skin HERE: <a rel="nofollow" target="blank" href="http://bit.ly/2z1mLhN">http://bit.ly/2z1mLhN</a><br /><br />*********************Stay Connected************************<br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/JonathanCaseyYT">https://twitter.com/JonathanCaseyYT</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/OT4Tech">https://www.facebook.com/OT4Tech</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/jonathanjcasey">https://www.instagram.com/jonathanjcasey</a><br />Pintrest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/OT4Tech/">https://www.pinterest.com/OT4Tech/</a><br />LinkedIn: www.linkedin.com/in/ot4tech<br /><br />#Sony #XperiaPro #XperiaProI{% endraw %}
