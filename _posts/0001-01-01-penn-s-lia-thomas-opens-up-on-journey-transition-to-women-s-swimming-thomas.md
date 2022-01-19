@@ -1,0 +1,15 @@
+---
+title: "Penn's Lia Thomas Opens Up On Journey, Transition To Women's Swimming"
+image: "https:\/\/i.ytimg.com\/vi\/8jDPOQ5D8DM\/hqdefault.jpg"
+vid_id: "8jDPOQ5D8DM"
+categories: "Sports"
+tags: ["swimming","swimming news","swimswam.com"]
+date: "2022-01-19T16:54:18+03:00"
+vid_date: "2021-12-09T05:00:03Z"
+duration: "PT26M44S"
+viewcount: "134119"
+likeCount: "219"
+dislikeCount: ""
+channel: "SwimSwam"
+---
+{% raw %}Thomas, a trans woman, sat down on the SwimSwam Podcast to discuss everything from when she realized she was trans, what the transition period was like, and how she’s been able to adjust to life both in and out of the pool.<br /><br />Read more about Lia's transition here:<br /><a rel="nofollow" target="blank" href="https://swimswam.com/penns-lia-thomas-opens-up-on-journey-transition-to-womens-swimming/">https://swimswam.com/penns-lia-thomas-opens-up-on-journey-transition-to-womens-swimming/</a><br /><br />0:00 Introduction<br />0:43 Coming out as a Trans Woman and Transitioning to a Woman<br />7:03 Feeling the Effects of Testosterone Blockers in the Pool<br />9:45 Goal-Setting within Swimming After Transitioning<br />11:55 Coming out to Penn Swim Team, Switching from Men's to Women's Team<br />15:46 Where Swimming Fits into the Process of Transitioning<br />19:30 What Standards Should Look Like for Trans People Competing in Athletics<br />22:50 Where Lia is at today with her Transition and in life<br /><br />Swimming news courtesy of SwimSwam.com (<a rel="nofollow" target="blank" href="https://swimswam.com)">https://swimswam.com)</a><br /><br />Click here to listen and subscribe on Spotify<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/show/3UGrNWoMK0RqWZCMbOwUPO?si=TeZ03KYLRbi7O6QJfWR6EA">https://open.spotify.com/show/3UGrNWoMK0RqWZCMbOwUPO?si=TeZ03KYLRbi7O6QJfWR6EA</a><br /><br />Click here to listen and subscribe on Apple Podcasts<br /><a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/fish-out-of-water-the-swimswam-podcast/id1467108547">https://podcasts.apple.com/us/podcast/fish-out-of-water-the-swimswam-podcast/id1467108547</a><br /><br />Click here to listen and subscribe on Podbean<br /><a rel="nofollow" target="blank" href="https://swimswam.podbean.com/">https://swimswam.podbean.com/</a><br /><br />Click here to listen and subscribe on Google<br /><a rel="nofollow" target="blank" href="https://podcasts.google.com/?feed=aHR0cHM6Ly9zd2ltc3dhbS5wb2RiZWFuLmNvbS9mZWVkLnhtbA">https://podcasts.google.com/?feed=aHR0cHM6Ly9zd2ltc3dhbS5wb2RiZWFuLmNvbS9mZWVkLnhtbA</a><br /><br />Follow SwimSwam on:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/swimswamnews/">https://www.facebook.com/swimswamnews/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/swimswamnews">https://twitter.com/swimswamnews</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/swimswamnews/">https://www.instagram.com/swimswamnews/</a>{% endraw %}
