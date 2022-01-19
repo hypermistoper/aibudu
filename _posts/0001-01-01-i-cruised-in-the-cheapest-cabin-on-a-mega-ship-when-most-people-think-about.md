@@ -1,0 +1,15 @@
+---
+title: "I Cruised in The Cheapest Cabin on a MEGA Ship"
+image: "https:\/\/i.ytimg.com\/vi\/mKHOhGD9Tp8\/hqdefault.jpg"
+vid_id: "mKHOhGD9Tp8"
+categories: "Entertainment"
+tags: ["cruise","cruise tips","emma cruises"]
+date: "2022-01-19T13:51:12+03:00"
+vid_date: "2021-11-11T16:38:43Z"
+duration: "PT12M15S"
+viewcount: "373326"
+likeCount: "7144"
+dislikeCount: ""
+channel: "Emma Cruises"
+---
+{% raw %}When most people think about cruising they'll think about people enjoying their time on their private balconies. On most modern ships though around 1/3rd of cabins don't have balconies and some don't even have windows.<br /><br />I booked the cheapest cabin available on P&amp;O's Iona. There was no cheaper cabin available on the ship and I did everything I could to cut the cost where possible. In this video, we will look at the cabin's amenities, location, comfort, and more.<br /><br />Full P&amp;O Iona Inside Cabin Review: <a rel="nofollow" target="blank" href="https://emmacruises.com/po-iona-inside-cabin-photo-review/">https://emmacruises.com/po-iona-inside-cabin-photo-review/</a><br />Lamp: <a rel="nofollow" target="blank" href="https://emmacruises.com/lamp/">https://emmacruises.com/lamp/</a><br /><br /><br />▶ SUBSCRIBE for weekly cruise tips, tours and news: <a rel="nofollow" target="blank" href="https://bit.ly/34ltwZi">https://bit.ly/34ltwZi</a><br />▶ STAY UP TO DATE: <a rel="nofollow" target="blank" href="http://emmacruises.com/news">http://emmacruises.com/news</a><br />▶ JOIN US ON PATREON: <a rel="nofollow" target="blank" href="https://bit.ly/3kmSZan">https://bit.ly/3kmSZan</a><br />▶ BOOKING A CRUISE? (UK residents only): <a rel="nofollow" target="blank" href="https://bit.ly/3mf9FRZ">https://bit.ly/3mf9FRZ</a> <br /><br />*** <br /><br />Background World Map: <a rel="nofollow" target="blank" href="https://enjoythewood.com/?rfsn=5433540.ccb51c">https://enjoythewood.com/?rfsn=5433540.ccb51c</a> (Affiliate link)<br /><br />RECOMMENDATIONS:<br /><br />▶ Never ever ever ever cruise without travel insurance! Why you need it and how to get it: <a rel="nofollow" target="blank" href="https://emmacruises.com/cruise-travel-insurance-why-you-need-it-and-how-to-get-it-step-by-step-guide/">https://emmacruises.com/cruise-travel-insurance-why-you-need-it-and-how-to-get-it-step-by-step-guide/</a><br /><br /> ▶ Wondering which plug sockets are in a cabin? Search our table: <a rel="nofollow" target="blank" href="https://emmacruises.com/cruise-ship-plug-socket-guide/">https://emmacruises.com/cruise-ship-plug-socket-guide/</a><br /><br />LEARN MORE:<br /><a rel="nofollow" target="blank" href="https://www.emmacruises.com/about">https://www.emmacruises.com/about</a><br /><br />Let’s Connect! <br /><a rel="nofollow" target="blank" href="https://instagram.com/emmacruises">https://instagram.com/emmacruises</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/emmacruises">https://twitter.com/emmacruises</a><br />emma@emmacruises.com<br />Facebook Group: <a rel="nofollow" target="blank" href="https://bit.ly/2Hr3c7s">https://bit.ly/2Hr3c7s</a>{% endraw %}
