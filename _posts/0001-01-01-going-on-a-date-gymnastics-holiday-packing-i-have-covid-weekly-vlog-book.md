@@ -1,0 +1,15 @@
+---
+title: "Going on a date, gymnastics, holiday packing & i have Covid..😭  *weekly vlog*"
+image: "https:\/\/i.ytimg.com\/vi\/PSZ2cPSlnqk\/hqdefault.jpg"
+vid_id: "PSZ2cPSlnqk"
+categories: "Entertainment"
+tags: ["saffron barker","saffron barker youtube","youtube saffron barker"]
+date: "2022-01-20T12:20:15+03:00"
+vid_date: "2022-01-19T17:00:14Z"
+duration: "PT24M25S"
+viewcount: "139800"
+likeCount: "5288"
+dislikeCount: ""
+channel: "Saffron Barker"
+---
+{% raw %}Book I mentioned: <a rel="nofollow" target="blank" href="https://www.revolutionbeauty.com/uk/en/search?lang=en_GB&amp;phrase=&amp;contentCount=0.0&amp;q=Influencer+overnight">https://www.revolutionbeauty.com/uk/en/search?lang=en_GB&amp;phrase=&amp;contentCount=0.0&amp;q=Influencer+overnight</a><br />Listen to my podcast here!! <a rel="nofollow" target="blank" href="https://linktr.ee/mummademedoitofficial">https://linktr.ee/mummademedoitofficial</a><br />Follow me!!<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/saffronbarker">https://instagram.com/saffronbarker</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/SaffronBarker">https://twitter.com/SaffronBarker</a> <br />SnapChat: <a rel="nofollow" target="blank" href="https://snapchat.com/add/saffronbarker">https://snapchat.com/add/saffronbarker</a> <br /><br />Watch more of Saffron Barker:<br />Challenges: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLN7q64zaVsnE8gdkOqFgJwutSC90A-5HHplaynext=1">https://www.youtube.com/playlist?list=PLN7q64zaVsnE8gdkOqFgJwutSC90A-5HHplaynext=1</a><br /><br />Makeup &amp; Beauty: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLN7q64zaVsnHaPeuTzC9BL51Zk33y__I8playnext=1">https://www.youtube.com/playlist?list=PLN7q64zaVsnHaPeuTzC9BL51Zk33y__I8playnext=1</a><br /><br />VS: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLN7q64zaVsnESfvMvfG5EZrzTo55qX1oKplaynext=1">https://www.youtube.com/playlist?list=PLN7q64zaVsnESfvMvfG5EZrzTo55qX1oKplaynext=1</a><br /><br />Newest Videos: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLN7q64zaVsnE0c5YtL5oqqtXge29NOzSP&amp;playnext=1">https://youtube.com/playlist?list=PLN7q64zaVsnE0c5YtL5oqqtXge29NOzSP&amp;playnext=1</a><br /><br />Popular Videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLN7q64zaVsnHkeeXVfhW2lLCjT7X-gC3qplaynext=1">https://www.youtube.com/playlist?list=PLN7q64zaVsnHkeeXVfhW2lLCjT7X-gC3qplaynext=1</a><br /><br />About Saffron Barker:<br />Welcome to the official Saffron Barker YouTube channel! On this channel, you’ll find a variety of lifestyle, beauty, and challenge videos including routine videos, q&amp;as, makeup &amp; beauty tutorials, clothing and American hauls, and more! Make sure to subscribe and enable ALL notifications so you never miss a video! For instant updates, follow on social media accounts. <br /><br />BUSINESS ONLY : saffronbarker@mcsaatchisocial.com{% endraw %}
