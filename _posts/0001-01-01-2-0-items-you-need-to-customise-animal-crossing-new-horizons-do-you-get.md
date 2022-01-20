@@ -1,0 +1,15 @@
+---
+title: "2.0 Items you NEED to CUSTOMISE! \/\/ Animal Crossing New Horizons"
+image: "https:\/\/i.ytimg.com\/vi\/SQ8C7EAkcpA\/hqdefault.jpg"
+vid_id: "SQ8C7EAkcpA"
+categories: "Gaming"
+tags: ["#acnh","#animalcrossingnewhorizons","#animalcrossingnh"]
+date: "2022-01-20T04:47:43+03:00"
+vid_date: "2022-01-17T16:00:22Z"
+duration: "PT11M34S"
+viewcount: "10888"
+likeCount: "701"
+dislikeCount: ""
+channel: "Fleurs Crossing"
+---
+{% raw %}Do you get a surprise when you discover a furniture item can be customised? I am one of those people! I thought I would share with you today some of my favourite items that can be customised from the 2.0 update! Some of these items can be used to inspire a whole build and some will just add an extra detail to an area! <br /><br />Canada Crossings Ice Cream Truck Build: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=S9JidsUPkIU&amp;t=500s">https://www.youtube.com/watch?v=S9JidsUPkIU&amp;t=500s</a><br /><br />My pintrest: <a rel="nofollow" target="blank" href="https://pin.it/42cvWWp">https://pin.it/42cvWWp</a><br /><br />Codes: <br />Coffee Truck: MA-4768-4586-1946 by @Doremi_No1 on Twitter<br />Wine Bottle: MA-4768-4586-1946 by @Doremi_No1 on Twitter<br />Vertical Banner: MA-2344-5551-7640<br />Lemonade sign: MA-0797-3991-6744<br />Park Rules: MA-0797-3991-6744<br />Recycle sign: MA-4470-2037-6476<br />Old Sign: MA-4768-4586-1946 by @Doremi_No1 on Twitter<br />Fertiliser: MA-8674-1896-0346<br />Brick pattern: MA-8322-8832-2913 by @rk_ac25<br />Redd sign: MA-9000-3312-5595<br />Honey sign: MA-9000-3312-5595<br /><br />My details:<br />🌼 Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Fleursacnh">https://twitter.com/Fleursacnh</a> <br />🌼 Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/fleursacnh">https://www.instagram.com/fleursacnh</a><br />🌼Tiktok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@fleurscrossing">https://www.tiktok.com/@fleurscrossing</a><br />🌼Pintrest: <a rel="nofollow" target="blank" href="https://pin.it/42cvWWp">https://pin.it/42cvWWp</a><br />🌼 Discord: <a rel="nofollow" target="blank" href="https://discord.gg/SQ6whbk5R3">https://discord.gg/SQ6whbk5R3</a><br />🌼 Become a channel member: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCKsOpe3LfqxPy3Wi5hoEQfA/join">https://www.youtube.com/channel/UCKsOpe3LfqxPy3Wi5hoEQfA/join</a><br />🌼 Carrd: fleurscrossing.carrd.co<br />🌼 Submit your island here: <a rel="nofollow" target="blank" href="https://forms.gle/DKFCPGBo5KVqa5gQ8">https://forms.gle/DKFCPGBo5KVqa5gQ8</a><br /><br />Have a lovely day!<br /><br />Credits:🎨 <br />Images in intro/outro by @helenadoodles on Twitter<br />Profile picture &amp; header by @_littlemelinda_ on Instagram<br />Background music: <br />Song title: Melt<br />Artists:  Goosestaf<br />Courtesy of Riot Games: <a rel="nofollow" target="blank" href="https://www.leagueoflegends.com/en-us/news/community/riot-music-creator-safe-guidelines/">https://www.leagueoflegends.com/en-us/news/community/riot-music-creator-safe-guidelines/</a>{% endraw %}
