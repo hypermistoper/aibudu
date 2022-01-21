@@ -1,0 +1,15 @@
+---
+title: "WHY - Young Stunners | Talha Anjum | Talhah Yunus | Prod. by Jokhay (Official Audio)"
+image: "https:\/\/i.ytimg.com\/vi\/pwxvbzCU_oU\/hqdefault.jpg"
+vid_id: "pwxvbzCU_oU"
+categories: "Music"
+tags: ["gumaan","youngstunners","talha anjum"]
+date: "2022-01-21T18:56:23+03:00"
+vid_date: "2022-01-19T14:36:29Z"
+duration: "PT4M22S"
+viewcount: "432622"
+likeCount: "66729"
+dislikeCount: ""
+channel: "Young Stunners"
+---
+{% raw %}#YoungStunners #TalhaAnjum #TalhahYunus #Jokhay <br /><br />Official Audio from the EP 'A Tale of Two Talhas'<br /><br />Written/Performed by @Talha Anjum &amp; @Talhah Yunus <br />Produced by @Jokhay <br /><br />Connect<br /><br />Young Stunners : <br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/01PyusFVbXgoD5Kl1mR8CC">https://open.spotify.com/artist/01PyusFVbXgoD5Kl1mR8CC</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/youngstunners">https://www.youtube.com/youngstunners</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/youngstunnersofficial">https://www.facebook.com/youngstunnersofficial</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/youngstunnersofficial">https://www.instagram.com/youngstunnersofficial</a><br /><a rel="nofollow" target="blank" href="https://www.twitter.com/yngstnr">https://www.twitter.com/yngstnr</a><br /><br />Talha Anjum : <br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/69xcFpmqTOmFNOL08Bxyci">https://open.spotify.com/artist/69xcFpmqTOmFNOL08Bxyci</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/talhaanjummusic">https://www.facebook.com/talhaanjummusic</a><br /><a rel="nofollow" target="blank" href="https://www.twitter.com/talhahanjum">https://www.twitter.com/talhahanjum</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/talhahanjum">https://www.instagram.com/talhahanjum</a><br /><br />Talhah Yunus : <br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/3mGW1eoqwNtCxd8R3hIOM5">https://open.spotify.com/artist/3mGW1eoqwNtCxd8R3hIOM5</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/talhahyunus">https://www.facebook.com/talhahyunus</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/talhahyunus">https://www.instagram.com/talhahyunus</a><br /><a rel="nofollow" target="blank" href="https://www.twitter.com/talhahyunus">https://www.twitter.com/talhahyunus</a><br /><br />Jokhay:<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/0Nl4kTPLk2ucrARvaf55zQ">https://open.spotify.com/artist/0Nl4kTPLk2ucrARvaf55zQ</a><br /><a rel="nofollow" target="blank" href="https://www.fb.com/umairkhanmusic">https://www.fb.com/umairkhanmusic</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/umairkhan91">https://www.youtube.com/umairkhan91</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jokhaay">https://www.instagram.com/jokhaay</a><br /><a rel="nofollow" target="blank" href="https://www.twitter.com/jokhaay">https://www.twitter.com/jokhaay</a>{% endraw %}
