@@ -1,0 +1,15 @@
+---
+title: "MY BREAST REDUCTION SURGERY: 1 YEAR ON! Scars, Size, Regrets & Unanswered Questions! | Becca Rose"
+image: "https:\/\/i.ytimg.com\/vi\/3b5zkqycbJs\/hqdefault.jpg"
+vid_id: "3b5zkqycbJs"
+categories: "Howto-Style"
+tags: ["breast reduction","breast reduction recovery","breast reduction results"]
+date: "2022-01-21T05:23:14+03:00"
+vid_date: "2018-08-20T18:04:08Z"
+duration: "PT15M11S"
+viewcount: "621546"
+likeCount: "5445"
+dislikeCount: ""
+channel: "Becca Rose"
+---
+{% raw %}My original Breast Reduction video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=qy1xhUCntvA&amp;t=1723s">https://www.youtube.com/watch?v=qy1xhUCntvA&amp;t=1723s</a><br /><br />My 2 month post-op video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9FFiCrqnXqE">https://www.youtube.com/watch?v=9FFiCrqnXqE</a><br /><br />** Surgeon details **<br />Mr. Mark Solomos<br />Email him at info@bespokeplasticsurgery.com 🌸<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/marksolomos/">https://www.instagram.com/marksolomos/</a><br /><a rel="nofollow" target="blank" href="http://www.bespokeplasticsurgery.com/">http://www.bespokeplasticsurgery.com/</a><br /><br /><a rel="nofollow" target="blank" href="https://www.harleymedical.co.uk">https://www.harleymedical.co.uk</a><br /><br />___­­­__<br /><br />Blog - <a rel="nofollow" target="blank" href="http://beccarose.org">http://beccarose.org</a><br />Twitter - <a rel="nofollow" target="blank" href="http://bit.ly/K9kHpW">http://bit.ly/K9kHpW</a><br />Instagram - <a rel="nofollow" target="blank" href="http://bit.ly/1ct0vcC">http://bit.ly/1ct0vcC</a><br />Rupert's Instagram (woof) - <a rel="nofollow" target="blank" href="https://instagram.com/itsrupertthepug">https://instagram.com/itsrupertthepug</a><br /><br />OH HEY! I'm Becca - nice to meet ya! You've stumbled upon my little section of the internet where I upload videos on style, beauty, life, travel, and more - all with my little pug Rupert! If you like what you see; go ahead and subscribe! :)<br /><br />Have a lil read of my blog! <a rel="nofollow" target="blank" href="http://beccarose.org">http://beccarose.org</a><br /><br />For business enquiries please contact: beccaroseenquiries@gmail.com<br /><br />For pretty pictures of daily life have a follow of my Instagram!<br /><a rel="nofollow" target="blank" href="http://bit.ly/1ct0vcC">http://bit.ly/1ct0vcC</a><br /><br />For general natter please message me on:<br />Twitter: @BeccaRoseTweets <br /> <br />___­­­__<br /><br />This video is NOT sponsored by any brands mentioned or shown in this video - all opinions are my own :)<br /><br />Some of the below links may be affiliate links - this just means if you click through and decide to purchase something I've shared, I receive a little amount of commission - at no extra cost to you! - think of it as leaving a tip at a restaurant without paying any extra! Like a little service charge! <br /><br />___­­­__<br /><br /><br />___­­­__<br /><br />Thanks for stopping by!{% endraw %}
