@@ -1,0 +1,15 @@
+---
+title: "LAST to TOUCH or GRAB Electronics WINS!!"
+image: "https:\/\/i.ytimg.com\/vi\/CdHjWVwtuTE\/hqdefault.jpg"
+vid_id: "CdHjWVwtuTE"
+categories: "Entertainment"
+tags: ["last to touch electronics","last to grab electronics","no electronics"]
+date: "2022-01-21T16:19:52+03:00"
+vid_date: "2019-11-16T17:53:00Z"
+duration: "PT23M16S"
+viewcount: "2123141"
+likeCount: "29039"
+dislikeCount: ""
+channel: "The Ohana Adventure"
+---
+{% raw %}Who will last 24 hours with NO Electronics? Good thing we had GameRox to keep us distracted! Learn more about GameRox here: <a rel="nofollow" target="blank" href="http://bit.ly/2O08tCc">http://bit.ly/2O08tCc</a> and get yours now at Amazon, Target and Walmart. Pick them up and play! Sponsored by GameRox.<br /><br />Subscribe: <a rel="nofollow" target="blank" href="https://goo.gl/dRpa1N">https://goo.gl/dRpa1N</a>  <br />Watch more: <br /><br />Welcome to The Ohana Adventure, we post EVERYDAY! <br /><br />GET YOUR OWN TOA SWAG: <a rel="nofollow" target="blank" href="https://goo.gl/7DU59b">https://goo.gl/7DU59b</a><br /><br />FOLLOW OUR ADVENTURES:<br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/theohanaadventure/">https://www.instagram.com/theohanaadventure/</a><br />WEBSITE: www.theohanaadventure.com <br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/theohanaadventure/">https://www.facebook.com/theohanaadventure/</a><br />PINTEREST: <a rel="nofollow" target="blank" href="https://www.pinterest.com/OhanaAdventure/">https://www.pinterest.com/OhanaAdventure/</a><br />BUSINESS EMAIL: theohanaadventure@gmail.com<br />GIVEAWAY EMAIL: theohanaadventuregiveaway@gmail.com <br /><br />Watch these fun things we do: <br />COOL CHALLENGES: <a rel="nofollow" target="blank" href="https://goo.gl/shsleN">https://goo.gl/shsleN</a><br />PARENTING  HACKS: <a rel="nofollow" target="blank" href="https://goo.gl/T1wo0q">https://goo.gl/T1wo0q</a><br />FUN HOW TO'S: <a rel="nofollow" target="blank" href="https://goo.gl/rsbOiM">https://goo.gl/rsbOiM</a><br />TRAVEL ADVENTURES: <a rel="nofollow" target="blank" href="https://goo.gl/yszf5d">https://goo.gl/yszf5d</a><br /><br />For Business INquiries: <br />Email us: theohanaadventure@gmail.com<br />MAIL to: <br />250 North Redcliffs DR, 4B #366<br />Saint George, UT 84790<br /><br />We are a crazy family of 8 from Hawaii; we believe in doing hard things, spontaneous adventures, laughing together, &amp; trying new things and adventures in new lands! <br />Mom - Rachel<br />Dad - Jase<br />Klai 16<br />Rykel 14<br />Shae 12<br />Wyatt 10<br />Evelin 9<br />Cora 7<br /><br />**********************************************************************<br />Music: Epidemic Sound: <a rel="nofollow" target="blank" href="http://share.epidemicsound.com/rQNll">http://share.epidemicsound.com/rQNll</a><br /> imovie free music, youtube royalty free music from bensound.com or artlist.io or www.soundstorymusic.com or Artlist.io<br />**********************************************************************{% endraw %}
