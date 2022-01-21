@@ -1,0 +1,15 @@
+---
+title: "15 Riddles For Those Who Have a Nose for Lies"
+image: "https:\/\/i.ytimg.com\/vi\/mCbGRjPC78M\/hqdefault.jpg"
+vid_id: "mCbGRjPC78M"
+categories: "Howto-Style"
+tags: ["bright side","brightside"]
+date: "2022-01-22T02:04:13+03:00"
+vid_date: "2022-01-21T16:00:18Z"
+duration: "PT10M48S"
+viewcount: "20930"
+likeCount: "726"
+dislikeCount: ""
+channel: "BRIGHT SIDE"
+---
+{% raw %}Are you good at spotting a liar? This ability can come really handy when you have to deal with people who won't stop at anything to cover a lie. However, if you have a nose for lies, no one can mislead you...<br /><br /><br /><br />Here're 15 riddles to rejuvenate your brain, make it think fast, critically and analyze even the trickiest situation in a minute. Here we go! Get ready for a brain workout!<br /><br /><br /><br />#brightside<br /><br />TIMESTAMPS<br />Dating app riddle 00:18<br />Choose the right lipstick 00:54<br />Who's lying? 01:43<br />Holes in a T-shirt 02:17<br />What food did she order? 03:00<br />Guess the order 03:12<br />Which path to take? 03:55<br />Mysterious disappearance 04:12<br />Why is he a liar? 05:04<br />Who is the thief? 05:46<br />Help the guys 06:23<br />Who's not human? 08:25<br />Who's the thief? 08:57<br />The patient riddle 09:35<br />Crack the code 10:11<br /><br />Animation is created by Bright Side.<br />----------------------------------------------------------------------------------------<br />Music by Epidemic Sound <a rel="nofollow" target="blank" href="https://www.epidemicsound.com">https://www.epidemicsound.com</a> <br /><br />Check our Bright Side podcast on Spotify and leave a positive review! <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV">https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV</a> <br /><br />Subscribe to Bright Side: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a> <br />----------------------------------------------------------------------------------------<br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/brightside">https://www.facebook.com/brightside</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brightside.official">https://www.instagram.com/brightside.official</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brightside.official?lang=en">https://www.tiktok.com/@brightside.official?lang=en</a> <br /><br />Stock materials (photos, footages and other):<br /><a rel="nofollow" target="blank" href="https://www.depositphotos.com">https://www.depositphotos.com</a><br /><a rel="nofollow" target="blank" href="https://www.shutterstock.com">https://www.shutterstock.com</a><br /><a rel="nofollow" target="blank" href="https://www.eastnews.ru">https://www.eastnews.ru</a><br />----------------------------------------------------------------------------------------<br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="http://www.brightside.me">http://www.brightside.me</a>{% endraw %}
