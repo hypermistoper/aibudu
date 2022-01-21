@@ -1,0 +1,15 @@
+---
+title: "Alessia Cara - I Choose (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/oBvx2Tt8IRw\/hqdefault.jpg"
+vid_id: "oBvx2Tt8IRw"
+categories: "Music"
+tags: ["I Choose Lyrics","I Choose","Alessia Cara I Choose"]
+date: "2022-01-21T10:56:34+03:00"
+vid_date: "2022-01-19T14:40:04Z"
+duration: "PT3M38S"
+viewcount: "102466"
+likeCount: "1950"
+dislikeCount: ""
+channel: "Vibe Music"
+---
+{% raw %}♫ Alessia Cara - I Choose <br />Stream/Download :<br /><br />• Alessia Cara •<br />• <a rel="nofollow" target="blank" href="http://www.alessiacara.com">http://www.alessiacara.com</a> <br />• <a rel="nofollow" target="blank" href="http://www.facebook.com/AlessiaCara">http://www.facebook.com/AlessiaCara</a> <br />• <a rel="nofollow" target="blank" href="http://twitter.com/AlessiaCara">http://twitter.com/AlessiaCara</a> <br /><br />(Lyrics):<br />[Verse 1]<br />All of my life I thought I was right<br />Looking for something new<br />Stuck in my ways like old-fashioned days<br />But all the roads led me to you<br /><br />[Pre-Chorus]<br />The house that you live in don't make it a home<br />But feeling lonely don't mean you're alone<br />People in life, they will come and they'll leave<br />But if I had a choice I know where I would be<br /><br />[Chorus]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br />When the sky turns to grey and there's nothing to say<br />At the end of the day, I choose you<br /><br />[Verse 2]<br />Now I found the strength to make a change<br />And look at the magic I found<br />No matter the name or where you came from<br />'Cause no one has much figured out<br /><br />[Pre-Chorus]<br />The house that you live in don't make it a home<br />But feeling lonely don't mean you're alone<br />I finally found where I feel I belong<br />And I know you'll be there with wide open arms<br /><br />[Chorus]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br />When the sky turns to grey and there's nothing to say<br />At the end of the day, I choose you<br />I choose you<br /><br />[Bridge]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br /><br />[Chorus]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br />When the sky turns to grey and there's nothing to say<br />At the end of the day, I choose you<br />Oh, I choose you<br />I choose you<br /><br />Tags:<br />I Choose Lyrics<br />Alessia Cara I Choose<br />I Choose Alessia Cara<br />Alessia Cara I Choose Letra<br />I Choose Alessia Cara Letra<br />At the end of the day I choose you<br />Through the lows and the highs I will stay by your side<br />When the sky turns to grey and there's nothing to say<br />I Choose<br /><br />#IChoose #AlessiaCara #Lyrics<br /><br />Contact: droppinglyricsvibe@gmail.com{% endraw %}
