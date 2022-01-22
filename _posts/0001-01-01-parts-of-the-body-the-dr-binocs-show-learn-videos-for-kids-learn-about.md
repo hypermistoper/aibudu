@@ -1,0 +1,15 @@
+---
+title: "Parts Of The Body | The Dr. Binocs Show | Learn Videos For Kids"
+image: "https:\/\/i.ytimg.com\/vi\/jd3bWUAa9qM\/hqdefault.jpg"
+vid_id: "jd3bWUAa9qM"
+categories: "Education"
+tags: ["parts of the body","learn parts of the body","educational video for kids"]
+date: "2022-01-22T17:19:26+03:00"
+vid_date: "2015-05-20T14:59:10Z"
+duration: "PT2M41S"
+viewcount: "658740"
+likeCount: "2911"
+dislikeCount: ""
+channel: "Peekaboo Kidz"
+---
+{% raw %}Learn about the Parts Of The Body with Dr. Binocs.<br /><br />Hey kids! Do you know what are the different parts of your body and their functions? Join Dr. Binocs as he explains about the various parts of our body and their functions in this fun video.<br /><br />Share on Facebook - <a rel="nofollow" target="blank" href="https://goo.gl/TgC8Fk">https://goo.gl/TgC8Fk</a><br />Tweet about this - <a rel="nofollow" target="blank" href="https://goo.gl/xMjBXw">https://goo.gl/xMjBXw</a><br /><br />Catch More Of Dr.Binocs - <a rel="nofollow" target="blank" href="https://goo.gl/SXhLmc">https://goo.gl/SXhLmc</a><br /><br />To Watch Popular Nursery Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/CV0Xoo">https://goo.gl/CV0Xoo</a><br /><br />To Watch Alphabet Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/qmIRLv">https://goo.gl/qmIRLv</a><br /><br />To Watch Compilations Go To - <a rel="nofollow" target="blank" href="https://goo.gl/nW3kw9">https://goo.gl/nW3kw9</a><br /><br />Watch Popular Nursery Rhymes with Lyrics - <a rel="nofollow" target="blank" href="https://goo.gl/A7kEmO">https://goo.gl/A7kEmO</a><br /><br />Subscribe : <a rel="nofollow" target="blank" href="http://www.youtube.com/subscription_center?add_user=peekaboo">http://www.youtube.com/subscription_center?add_user=peekaboo</a><br /><br /><br /><br />Voice-Over Artist: Joseph D'Souza<br />Script Writer: Sreejoni Nag<br />Background Score: Agnel Roman<br />Sound Engineer: Mayur Bakshi<br />Animation: Qanka Animation Studio<br />Creative Team (Rajshri): Kavya Krishnaswamy, Alisha Baghel, Sreejoni Nag<br />Producer: Rajjat A. Barjatya<br />Copyrights and Publishing: Rajshri Entertainment Private Limited<br />All rights reserved.<br /><br />SUBSCRIBE to Peekaboo Kidz:<a rel="nofollow" target="blank" href="http://bit.ly/SubscribeTo-Peekabookidz">http://bit.ly/SubscribeTo-Peekabookidz</a> <br /><br />Catch Dr.Binocs At - <a rel="nofollow" target="blank" href="https://goo.gl/SXhLmc">https://goo.gl/SXhLmc</a><br /><br />To Watch More Popular Nursery Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/CV0Xoo">https://goo.gl/CV0Xoo</a><br /><br />To Watch Alphabet Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/qmIRLv">https://goo.gl/qmIRLv</a><br /><br />To Watch Compilations Go To - <a rel="nofollow" target="blank" href="https://goo.gl/nW3kw9">https://goo.gl/nW3kw9</a><br /><br />Catch More Lyricals At - <a rel="nofollow" target="blank" href="https://goo.gl/A7kEmO">https://goo.gl/A7kEmO</a><br /><br />Like our Facebook page: <a rel="nofollow" target="blank" href="https://www.facebook.com/peekabootv">https://www.facebook.com/peekabootv</a>{% endraw %}
