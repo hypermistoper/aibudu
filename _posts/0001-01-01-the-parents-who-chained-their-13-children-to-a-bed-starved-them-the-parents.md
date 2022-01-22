@@ -1,0 +1,15 @@
+---
+title: "The 'Parents' Who Chained Their 13 Children To A Bed & Starved Them"
+image: "https:\/\/i.ytimg.com\/vi\/vObhNQoFYpo\/hqdefault.jpg"
+vid_id: "vObhNQoFYpo"
+categories: "News-Politics"
+tags: ["anna solves","true crime","true crime stories"]
+date: "2022-01-22T17:03:36+03:00"
+vid_date: "2021-12-19T20:00:25Z"
+duration: "PT9M16S"
+viewcount: "425140"
+likeCount: "15194"
+dislikeCount: ""
+channel: "anna solves"
+---
+{% raw %}The 'Parents' Who Chained Their 13 Children To A Bed &amp; Starved Them <br /><br />Behind the doors of a picture-perfect family home of the Turpin family, a whole new level of misery and terror was going on! Stay tuned and subscribe to Anna Solves for more true crime.<br /><br />It was a quiet evening, in a peaceful Califrnian suburb, where nobody ever expected anything bad to happen.The Turpin family lived in that suburb and the caller was one of their thirteen children. <br /><br />The police investigated, and as they entered the house, they found what Riverside County District Attorney Mike Hestrin called: <br />&quot;(the) worst, most aggravated child ab*se cases (I’d ever seen)&quot;.<br /><br />They’d moved to Perris, California, in 2014 and one neighbor had spotted something really weird going on with the family. This was even before the police got involved. Mike Clifford said:<br />&quot;You know I’d come home from anything from 12 to3 in the morning and see the kids marching between those two rooms up there…&quot;<br /><br />And in previous places where they’d lived, in Fort Worth, Texas, the people who took over their houses found ropes on the beds and lots of filth and deceased animals. But, nobody seemed to raise much concern.<br /><br />Even though nobody, even in the California suburbs, saw the children of this huge family outside very much, Only, when they did, they’d seen the children going through the trash. As though they were looking for food.<br /><br />But why on earth would they do this?<br /><br />Jordan Turpin knew that time was short. Her brothers and sisters were so weak after so many years of almost no food that she was sure that they wouldn’t all survive the move to Oklahoma. <br /><br />There was only one choice, and it was risky as hell. Now, Jordan had managed to get hold of a deactivated cell phone and used it to watch her favorite singer, Justin Bieber. Unfortunately, her mom had caught her and punished her.<br /><br />She’d almost been suffocated just for watching some music.<br /><br />But Justin Bieber’s songs had totally inspired Jordan to survive this nightmare. So, taking that deactivated cellphone, Jordan snuck out the bedroom window. Two of her younger teenage sisters escaped with her but were soon so scared by being out there that they went back into the house.<br /><br />But Jordan kept going. She ran around the corner and made the call she hoped would save her family. She knew that if she got caught, she’d be in a world of pain. What’s even braver is, she’d never even been OUTSIDE before. Not on her own, not at all. Keep watching to find out if Jordan's phone call saved their lives!<br /><br />#turpincase #annasolves #truecrime{% endraw %}
