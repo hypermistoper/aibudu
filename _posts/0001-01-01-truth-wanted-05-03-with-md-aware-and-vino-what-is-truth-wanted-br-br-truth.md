@@ -1,0 +1,15 @@
+---
+title: "Truth Wanted 05.03 with MD Aware and Vino"
+image: "https:\/\/i.ytimg.com\/vi\/fdDMCn7Bl_s\/hqdefault.jpg"
+vid_id: "fdDMCn7Bl_s"
+categories: "Nonprofits-Activism"
+tags: ["Street epistemology","reason","logic"]
+date: "2022-01-22T06:36:29+03:00"
+vid_date: "2022-01-22T02:45:41Z"
+duration: "PT1H38M10S"
+viewcount: "659"
+likeCount: "110"
+dislikeCount: ""
+channel: "Truth Wanted"
+---
+{% raw %}WHAT IS TRUTH WANTED?<br /><br />Truth Wanted is a show about getting to the bottom of beliefs, whether it’s karma or Christ, Bigfoot or crystals. Truth Wanted would like to know how you know it’s true. Primarily hosted by ObjectivelyDan, Truth Wanted takes calls from the community (that means YOU!) and features new guests every week, emphasizing thorough conversations over name-calling and scoffing (most of the time). Truth Wanted focuses on how and why people believe what they believe, and how you can talk about beliefs in more effective ways. Join us for truth investigations and lively conversations every Friday at 7:00pm CT! <br /><br />Call the show!  6:30-8 PM CT at 1-512-991-9242<br />or call with your computer 💻 <a rel="nofollow" target="blank" href="http://tiny.cc/calltw">http://tiny.cc/calltw</a><br /><br />► Don't like ads? Consider becoming a patron for commercial-free episodes: <a rel="nofollow" target="blank" href="http://tiny.cc/patreontw">http://tiny.cc/patreontw</a><br /><br />► Podcasts may be found @: <br /><a rel="nofollow" target="blank" href="http://tiny.cc/podcasttw">http://tiny.cc/podcasttw</a><br /><br />► Shop Truth Wanted merchandise @: <br /><a rel="nofollow" target="blank" href="http://tiny.cc/merchaca">http://tiny.cc/merchaca</a><br /><br />We welcome your comments on the thread for this show. <br />► <a rel="nofollow" target="blank" href="http://tiny.cc/fbtwg">http://tiny.cc/fbtwg</a><br />► Contact us with questions or news stories at: truth@atheist-community.org<br /><br /><br /><br />The Atheist Community of Austin is organized as a nonprofit educational corporation to develop and support the atheist community, to provide opportunities for socializing and friendship, to promote secular viewpoints, to encourage positive atheist culture, to defend the first amendment principle of state-church separation, to oppose discrimination against atheists and to work with other organizations in pursuit of common goals.<br /><br />We define atheism as the lack of belief in gods. This definition also encompasses what most people call agnosticism.<br /><br />► <a rel="nofollow" target="blank" href="http://www.atheist-community.org">http://www.atheist-community.org</a> (The Atheist Community of Austin)<br /><br />NOTES<br /><br />TruthWanted is the official channel of Truth Wanted. &quot;Truth Wanted&quot; is a trademark of the ACA.<br /><br />Thumbnail artwork by: <a rel="nofollow" target="blank" href="https://www.instagram.com/princepsed">https://www.instagram.com/princepsed</a> <br /><br />Copyright © 2018-2022 Atheist Community of Austin. All rights reserved.{% endraw %}
