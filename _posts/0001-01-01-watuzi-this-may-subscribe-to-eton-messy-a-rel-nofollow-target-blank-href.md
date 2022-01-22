@@ -1,0 +1,15 @@
+---
+title: "Watuzi - This May"
+image: "https:\/\/i.ytimg.com\/vi\/60cDcXzkwjE\/hqdefault.jpg"
+vid_id: "60cDcXzkwjE"
+categories: "Music"
+tags: ["This May","Watuzi","Dance"]
+date: "2022-01-22T21:48:23+03:00"
+vid_date: "2016-05-10T17:01:09Z"
+duration: "PT3M17S"
+viewcount: "20266"
+likeCount: "259"
+dislikeCount: ""
+channel: "Eton Messy"
+---
+{% raw %}Subscribe to Eton Messy: <a rel="nofollow" target="blank" href="http://bit.ly/P7EPdo">http://bit.ly/P7EPdo</a><br /><br />Watuzi is a London based collaboration between two recording artists - defined by a desire to create an accessible but unique sound. Since the project is still young, and has already garnered a certain amount of industry interest; it promises to be an interesting year for the duo.<br /><br />•Watuzi•<br /><a rel="nofollow" target="blank" href="https://soundcloud.com/watuzi">https://soundcloud.com/watuzi</a><br /><a rel="nofollow" target="blank" href="https://facebook.com/watuzimusic/">https://facebook.com/watuzimusic/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/watuzimusic">https://twitter.com/watuzimusic</a><br /><br />•Photography by Roksolana Zasiadko•<br /><a rel="nofollow" target="blank" href="https://unsplash.com/@cieloadentro">https://unsplash.com/@cieloadentro</a><br /><br />▲Photo Link▲<br /><a rel="nofollow" target="blank" href="https://unsplash.com/photos/3wbxAMUj7sg">https://unsplash.com/photos/3wbxAMUj7sg</a><br /><br />✖ Facebook <a rel="nofollow" target="blank" href="http://on.fb.me/R5QGH6">http://on.fb.me/R5QGH6</a> ✖ Soundcloud <a rel="nofollow" target="blank" href="http://bit.ly/LMFAUi">http://bit.ly/LMFAUi</a> ✖ Twitter <a rel="nofollow" target="blank" href="http://bit.ly/PAcpsh">http://bit.ly/PAcpsh</a> ✖ Google+ <a rel="nofollow" target="blank" href="http://goo.gl/0a3TT4">http://goo.gl/0a3TT4</a> ✖SPFY <a rel="nofollow" target="blank" href="http://bit.ly/EMspotify">http://bit.ly/EMspotify</a> <br /><br />Eton Messy is a place to find exciting new up and coming; house, deep house, lounge, chill and electronic music, coupled with beautiful portrait, landscape and double exposure photography from upcoming talent, artists and photographers from  the UK and the World!<br /><br />Also running our own events across the UK and Europe under Eton Messy Presents, which also include Eton Messy DJs. <br /><br />This has allowed for a strong physical presence with festival stage hosting and now a fully fledged Eton Messy Record Label, with releases from Jack Bandit (from Clean Bandit), Just Kiddin and The Golden Boy, which has gained support from BBC Radio 1 DJ such as Annie Mac, Pete Tong, Danny Howard and Monki + more!<br /><br />If you wish to submit your own track or a copyright infringement please email me - <a rel="nofollow" target="blank" href="http://bit.ly/emsubmissions">http://bit.ly/emsubmissions</a> or etonmessysubmissions@gmail.com<br />(All track submissions must be stream links)<br /><br />For booking/events enquiries contact:<br />kane@codaagency.com{% endraw %}
