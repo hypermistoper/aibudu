@@ -1,0 +1,15 @@
+---
+title: "Could not live with your own failure. And where did that bring you?Avengers walk to Thanos"
+image: "https:\/\/i.ytimg.com\/vi\/9wWOhjLMi3k\/hqdefault.jpg"
+vid_id: "9wWOhjLMi3k"
+categories: "Film-Animation"
+tags: ["could not live with your own failure thanos","and where did that bring you avengers","big three avengers walk to thanos"]
+date: "2022-01-23T06:57:04+03:00"
+vid_date: "2020-08-30T19:54:41Z"
+duration: "PT1M48S"
+viewcount: "39876"
+likeCount: "792"
+dislikeCount: ""
+channel: "Recall"
+---
+{% raw %}👉  Please LIKE And SUBSCRIBE. For More Videos.<br />Good. Just as long we are all in agreement. Thunder cracks as Thor stretches out both hands to summon both Stormbreaker and Mjolnir. His casual clothes transform into his armour and cape, with his beard getting some braid treatment. Let's kill him properly this time.<br /><br />The Big Three (Avengers) walk over to confront Thanos face to face<br /><br />THANOS: You could not live with your own failure. And where did that bring you? Back to me. I thought by eliminating half of life, the other half would thrive. But you’ve shown me that’s impossible. And as long as there are those that remember what was, there will always be those that are unable to accept what can be. They will resist.<br /><br /><br />THANOS: I will shred this universe down to its last atom. Thanos puts on his helmet. And then– With the stones you've collected for me, create a new one. Teeming with life, but knows not what it has lost but only what it has been given. <br /><br />The fighting starts, and Thor and Tony go straight at Thanos. Meanwhile, Hulk is under all of the mess trying to hold up the structure. Rhodey and Rocket are breathing for their lives.<br /><br />Avengers: Endgame is a 2019 American superhero film based on the Marvel Comics superhero team the Avengers, produced by Marvel Studios and distributed by Walt Disney Studios Motion Pictures. It is the direct sequel to Avengers: Infinity War (2018) and the 22nd film in the Marvel Cinematic Universe (MCU). The film was directed by Anthony and Joe Russo and written by Christopher Markus and Stephen McFeely, and features an ensemble cast including Robert Downey Jr., Chris Evans, Mark Ruffalo, Chris Hemsworth, Scarlett Johansson, Jeremy Renner, Don Cheadle, Paul Rudd, Brie Larson, Karen Gillan, Danai Gurira, Benedict Wong, Jon Favreau, Bradley Cooper, Gwyneth Paltrow, and Josh Brolin. In the film, the surviving members of the Avengers and their allies attempt to reverse the damage caused by Thanos in Infinity War.<br /><br />#AvengersEndgam #Avengers #Thor #SpiderMan #CaptainMarvel #DoctorStrange #GuardiansOfTheGalaxy #BlackWidow #NatashaRomanoff #Scarlettjohansson #MarvelComics #AvengersEndgame #Avengers #CaptainMarvel #SpiderMan #CaptainAmerica #ComicBook #AvengersinfinityWar #TomHolland #ChrisEvans #TonyStark #SpiderManFarFromHome #MarvelMemes #AvengersMemes #Hulk #Endgame #ChrisHemsworth #Thor #PeterParker #RobertDowneyjr #Marvel{% endraw %}
