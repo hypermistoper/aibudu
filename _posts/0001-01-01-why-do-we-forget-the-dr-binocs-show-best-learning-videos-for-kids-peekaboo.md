@@ -1,0 +1,15 @@
+---
+title: "Why Do We Forget? | The Dr. Binocs Show | Best Learning Videos For Kids | Peekaboo Kidz"
+image: "https:\/\/i.ytimg.com\/vi\/7GI4eTUyGSM\/hqdefault.jpg"
+vid_id: "7GI4eTUyGSM"
+categories: "Education"
+tags: ["why do we forget","Best Learning Videos For Kids","why do we forget studies"]
+date: "2022-01-24T01:02:26+03:00"
+vid_date: "2019-11-08T12:30:00Z"
+duration: "PT6M27S"
+viewcount: "2846418"
+likeCount: "40056"
+dislikeCount: ""
+channel: "Peekaboo Kidz"
+---
+{% raw %}Hi Friends, welcome to the Dr. Binocs show. In this video, Dr. Binocs will explain, &quot;Why Do We Forget?&quot;. Make sure you watch the whole video and leave your answer in the comment section below to win a shout out on the next Dr. Binocs video. <br /><br />For more fun learning videos SUBSCRIBE to Peekaboo Kidz: <a rel="nofollow" target="blank" href="http://bit.ly/SubscribeTo-Peekabookidz">http://bit.ly/SubscribeTo-Peekabookidz</a><br /><br />Watch Guess The Shapes With Baby Binocs here - <a rel="nofollow" target="blank" href="https://youtu.be/vNm422Ta44w">https://youtu.be/vNm422Ta44w</a><br /><br />Watch other fun learning episodes of Dr. Binocs here - <a rel="nofollow" target="blank" href="http://bit.ly/2kfNS22">http://bit.ly/2kfNS22</a><br /><br />Watch our NEW SERIES of Baby Binocs, stay tuned to this playlist - <a rel="nofollow" target="blank" href="http://bit.ly/2kyC2jU">http://bit.ly/2kyC2jU</a><br /><br />Credits - <br />Voice of Dr. Binocs - Joseph D'Souza <br />Creative Head/Written/Directed by Nitin Navale <br />Illustrators - Kalpesh Bamne, Mukesh Ishi, Rupesh Hire <br />Storyboard - Kalpesh Bamne <br />Animators - Rupesh Hire, Sushant Hodage, Tushar Ishi , Raju Nikumbe, Prashant Bordekar<br />Co-ordinator- Rahul Kanade<br />VFX Artist - Aliasgar Kagalwala <br />Original Background Score &amp; SFX - Jay Rajesh Arya<br />Sound Design: JRA Studio (Assisted By Vinay Acharya)   <br />Sound Engineer - Varad J. Khare  <br />Producer - Neha Barjatya <br />Copyrights and Publishing: Rajshri Entertainment Private Limited <br />All rights reserved.  <br /><br /><br />Catch Dr.Binocs At - <a rel="nofollow" target="blank" href="https://goo.gl/SXhLmc">https://goo.gl/SXhLmc</a><br /><br />To Watch More Popular Nursery Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/CV0Xoo">https://goo.gl/CV0Xoo</a><br /><br />To Watch Alphabet Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/qmIRLv">https://goo.gl/qmIRLv</a><br /><br />To Watch Compilations Go To - <a rel="nofollow" target="blank" href="https://goo.gl/nW3kw9">https://goo.gl/nW3kw9</a><br /><br />Catch More Lyricals At - <a rel="nofollow" target="blank" href="https://goo.gl/A7kEmO">https://goo.gl/A7kEmO</a><br /><br />Subscribe to Peekaboo Kidz: <a rel="nofollow" target="blank" href="http://bit.ly/peekabookidz">http://bit.ly/peekabookidz</a><br /><br />Like our Facebook page: <a rel="nofollow" target="blank" href="https://www.facebook.com/peekabootv">https://www.facebook.com/peekabootv</a><br /><br />#WhyDoWeForget #Dr.BinocsShow{% endraw %}
