@@ -1,0 +1,15 @@
+---
+title: "7 Lies Men Commonly Tell Women (DON'T FALL FOR THEM!)"
+image: "https:\/\/i.ytimg.com\/vi\/PSQA0xHphUE\/hqdefault.jpg"
+vid_id: "PSQA0xHphUE"
+categories: "People-Blogs"
+tags: ["Commonly","Women","(DON'T"]
+date: "2022-01-23T03:39:01+03:00"
+vid_date: "2022-01-19T17:52:07Z"
+duration: "PT14M11S"
+viewcount: "12487"
+likeCount: "753"
+dislikeCount: ""
+channel: "The Toxic Dating Coach - Mindful Attraction 2.0"
+---
+{% raw %}PURCHASE NICE GIRL: <a rel="nofollow" target="blank" href="https://dalexis-school.thinkific.com/courses/nice-girl">https://dalexis-school.thinkific.com/courses/nice-girl</a><br /><br /><br />GET 1on1 COACHING: <a rel="nofollow" target="blank" href="http://bit.ly/MA1on1coaching">http://bit.ly/MA1on1coaching</a><br />BECOME A PATRON: <a rel="nofollow" target="blank" href="http://bit.ly/MApatron">http://bit.ly/MApatron</a><br />PURCHASE MERCH: <a rel="nofollow" target="blank" href="http://bit.ly/MAteespring">http://bit.ly/MAteespring</a><br />CHECK OUT MY SPANISH CHANNEL: <a rel="nofollow" target="blank" href="http://bit.ly/MAespanol">http://bit.ly/MAespanol</a><br />Join Our Facebook Group:  <a rel="nofollow" target="blank" href="http://bit.ly/MAfbgroup">http://bit.ly/MAfbgroup</a><br />SEMINARS: <a rel="nofollow" target="blank" href="http://bit.ly/MAseminars">http://bit.ly/MAseminars</a><br />Follow me on IG for more videos: @Dalexisp<br /><br />--<br />The seven lies that men tell to women.<br /><br />1. First one is &quot;I'm not ready to be in a relationship.&quot;. Now let me tell you something, there's no rational reason for a person not to be in a relationship. So when a guy says he's not ready well that means he's not ready for you. Everytime says this you better leave.<br /><br />2. Second one is &quot;I can't hangout because I'm tired/ sick/ or whatever reason&quot;. If he consistently has a reason not to hangout with you it is because he is losing interest or you're not his first option. <br /><br />3. Next one is &quot;I'm a bad texter.&quot; Whenever a guy says this to you, don't ever believe it.<br /><br />4. Hiding female friends. Study shows that 53% of people who had affairs have reported doing it with a close person or a friend.<br /><br />5. &quot;I love you.&quot; when a guy says I love you and it doesn't match his actions that means he doesn't really love you. Focus on the actions more than the words.<br /><br />6. Guys lie about their debt and income. When a guy lies about his debt then he's a liar from the start. <br /><br />7. Last one is a guy who lies about his age and height. If a guy lies about these things it's a sign of a huge insecurity. <br /><br />The most important thing you should focus on is when a guy lies about being not ready in a relationship, being busy, hiding female friends, saying I love you, and lying about his debt and income.<br /> <br />Read more here: <a rel="nofollow" target="blank" href="https://www.mindfulattraction.org/7-lies-men-commonly-tell-women-dont-fall-for-them/">https://www.mindfulattraction.org/7-lies-men-commonly-tell-women-dont-fall-for-them/</a>{% endraw %}
