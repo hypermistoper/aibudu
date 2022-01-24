@@ -1,0 +1,15 @@
+---
+title: "Today’s Seasonal Candles + Daily Quest in Daylight Prairie | sky children of the light | Noob Mode"
+image: "https:\/\/i.ytimg.com\/vi\/MnSqKiq2Qyk\/hqdefault.jpg"
+vid_id: "MnSqKiq2Qyk"
+categories: "Gaming"
+tags: ["Noob Mode","noob mode","sky children of the light walkthrough"]
+date: "2022-01-24T11:46:52+03:00"
+vid_date: "2022-01-24T08:25:49Z"
+duration: "PT6M49S"
+viewcount: "332"
+likeCount: "75"
+dislikeCount: ""
+channel: "Noob Mode"
+---
+{% raw %}In this video, I will take you to all four daily quests and Seasonal wax of today in the Daylight Prairie<br />All-in One Sky Guide<br /><a rel="nofollow" target="blank" href="https://youtu.be/s0_LdKeZWdI">https://youtu.be/s0_LdKeZWdI</a><br />My Beginner's Guide Playlist<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLlGUi7z5T3-B7xR3tCUY_CP3j4binoTPa">https://youtube.com/playlist?list=PLlGUi7z5T3-B7xR3tCUY_CP3j4binoTPa</a><br />Today's Quests<br />Relive Jelly whisperer spirit memory<br />Hold the hand of a friend<br />Visit polluted geyser<br />Ride a manta<br />Hope you liked this video. <br />SUBSCRIBE to get daily new updates on Sky and become part of Noobfam🌟<br />To know more about Sky children of the light:<br />100% Complete Sky Guide ► <a rel="nofollow" target="blank" href="https://youtu.be/s0_LdKeZWdI">https://youtu.be/s0_LdKeZWdI</a><br />How to get more hearts ► <a rel="nofollow" target="blank" href="https://youtu.be/_yycR3_HIu0">https://youtu.be/_yycR3_HIu0</a><br />For Beginners guide ►<a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLlGUi7z5T3-B7xR3tCUY_CP3j4binoTPa">https://youtube.com/playlist?list=PLlGUi7z5T3-B7xR3tCUY_CP3j4binoTPa</a><br />Become part of Noob fam <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCbegfssDVc6nQlHmESUEKWw?sub_confirmation=1">https://www.youtube.com/channel/UCbegfssDVc6nQlHmESUEKWw?sub_confirmation=1</a><br />Instagram ► <a rel="nofollow" target="blank" href="https://www.instagram.com/iamnoobmode">https://www.instagram.com/iamnoobmode</a><br />Sky children of the light ios/android walkthrough gameplay<br />Noob Mode<br />Download Sky on iOS ► <a rel="nofollow" target="blank" href="https://apps.apple.com/us/app/sky-children-of-the-light/id1462117269">https://apps.apple.com/us/app/sky-children-of-the-light/id1462117269</a><br />Download Sky on Android ► <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=com.tgc.sky.android&amp;hl=en_IN&amp;gl=US">https://play.google.com/store/apps/details?id=com.tgc.sky.android&amp;hl=en_IN&amp;gl=US</a><br />Official thatskygame blog ► <a rel="nofollow" target="blank" href="https://thatskygame.com/">https://thatskygame.com/</a><br /><br />Intro Music from:<br />Track: ROY KNOX - Lost In Sound<br />Music Provided By: Magic Records<br />Listen To The Original: <a rel="nofollow" target="blank" href="https://youtu.be/bafd5CsNk0M">https://youtu.be/bafd5CsNk0M</a><br />Fanlink: <a rel="nofollow" target="blank" href="https://fanlink.to/lis">https://fanlink.to/lis</a>{% endraw %}
