@@ -1,0 +1,15 @@
+---
+title: "Excellent natural immunity confirmed"
+image: "https:\/\/i.ytimg.com\/vi\/25-iJKPA1CA\/hqdefault.jpg"
+vid_id: "25-iJKPA1CA"
+categories: "Education"
+tags: ["physiology","nursing","NCLEX"]
+date: "2022-01-25T08:39:13+03:00"
+vid_date: "2022-01-24T17:52:43Z"
+duration: "PT25M13S"
+viewcount: "836543"
+likeCount: "35469"
+dislikeCount: ""
+channel: "Dr. John Campbell"
+---
+{% raw %}Natural immunity as protective as vaccine induced immunity<br /><br /><a rel="nofollow" target="blank" href="https://www.cdc.gov/mmwr/volumes/71/wr/mm7104e1.htm#contribAff">https://www.cdc.gov/mmwr/volumes/71/wr/mm7104e1.htm#contribAff</a><br /><br />Wefwafwa original HIV video<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=KTUolp0rDIE">https://www.youtube.com/watch?v=KTUolp0rDIE</a><br />Donate: SENDWAVE/ WorldRemit/Wise transfer/money Gram<br />Mobile money number:+256785698803<br />Country: Uganda<br />Address: Nkokonjeru<br />Registered name : Wefwafwa Andrew<br />State: Eastern uganda<br />Zip code:0000<br />Wallet Service provider:MTN<br />City: Mbale city<br />email me when you send on wefandrew@gmail.com<br /><br />4 cohorts<br /><br />Unvaccinated, no previous diagnosis<br /><br />Vaccinated, no previous diagnosis<br /><br />Unvaccinated with previous diagnosis<br /><br />Vaccinated with previous diagnosis<br /><br />So, what happened to these people during delta?<br /><br />By November 30, 2021, California and New York<br /><br />Natural immunity without vaccination protected against delta admission<br /><br />Subsequent vaccination boosts antibodies<br /><br />Results, highest to lowers risk<br /><br />Unvaccinated, no previous diagnosis<br /><br />Vaccinated, no previous diagnosis<br /><br />Equally low risk<br /><br />Unvaccinated with previous diagnosis<br /><br />Vaccinated with previous diagnosis<br /><br />Data validity<br /><br />Unvaccinated with no previous COVID-19 diagnosis<br /><br />18.0% of California residents<br /><br />18.4% of New York residents <br /><br />Conclusion<br /><br />Natural immunity with or without vaccine provided robust protection against hospitalization in the age of delta<br /><br />The people that died had no risk of reinfection<br /><br />This data is about those who survived infection<br /><br />Questions<br /><br />If I have not been vaccinated or infected, should I seek out natural exposure?<br /><br />Would some higher risk groups still benefit from subsequent vaccination?<br /><br />Is there still an advantage in younger people getting boosted if they have had infection?<br /><br />Is there still an advantage in younger people getting boosted if they have not had infection?<br /><br />Do we need to change the one size fits all recommendations?<br /><br />Should there be modified vaccination recommendations for those who have been infected?<br /><br />Is it worth getting antibodies to membrane, envelope, nucleocapsid proteins?<br /><br />How with this wild type and alpha induced immunity, protecting against delta work in the age of omicron?<br /><br />HIV<br />1.5 million new infections per year<br />40 million living with HIV{% endraw %}
