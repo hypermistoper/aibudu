@@ -1,0 +1,15 @@
+---
+title: "In The End by Mark Tavener | BBC RADIO DRAMA"
+image: "https:\/\/i.ytimg.com\/vi\/M2h4lWeAjj0\/hqdefault.jpg"
+vid_id: "M2h4lWeAjj0"
+categories: "Entertainment"
+tags: ["BBC Saturday Night Theatre","BBC Radio Drama","BBC Saturday Night Theatre radio"]
+date: "2022-01-25T15:32:08+03:00"
+vid_date: "2022-01-19T16:47:04Z"
+duration: "PT2H45M42S"
+viewcount: "7908"
+likeCount: "97"
+dislikeCount: ""
+channel: "Thinking Out Loud..."
+---
+{% raw %}In The End by Mark Tavener | BBC RADIO DRAMA<br /><br />In the End Episode 1 of 6<br />Maverick hack George Cragge fears a serial killer is on the loose. Comedy thriller with Michael Williams. From November 1999.<br /><br />Episode 2<br /><br />In the End Episode 2 of 6<br />Hack George Cragge hunts a serial killer, while the BBC tackles spin. Comedy thriller with Michael Williams. From November 1999.<br /><br />Episode 3<br /><br />In the End Episode 3 of 6<br />Tension mounts as the serial killer claims a third journalist victim. Comedy thriller with Michael Williams. From December 1999.<br /><br />Episode 4<br /><br />In the End Episode 4 of 6<br />Still hunting the killer, hack George Cragge denies he is retiring. Comedy thriller with Michael Williams. From December 1999.<br /><br />Episode 5<br /><br />In the End Episode 5 of 6<br />A fresh death and a singing Prime Minister make George Cragge ponder. Comedy thriller with Michael Williams. From December 1999.<br /><br />Episode 6<br /><br />In the End Episode 6 of 6<br />Maverick hack George Cragge thinks he is next on the murderer's list. Comedy thriller with Michael Williams. From December 1999.<br /><br /><br />Written by Mark Tavener<br /><br />Produced by Paul Schlesinger<br /><br />Original release 18 November 1999 – 23 December 1999<br />No. of episodes 6<br /><br />In the End is a six-part BBC Radio 4 black comedy-crime drama series written by Mark Tavener and produced by Paul Schlesinger and Dawn Ellis as a third sequel to In the Red.<br /><br />The story features BBC Reporter George Cragge, played by Michael Williams, and Police Superintendent Frank Jefferson, played by Barry Foster, investigating a series of murders of journalists.<br /><br />Notable guest stars include Anton Rodgers and David Holt, as well as the return of Stephen Fry, John Bird and Rebecca Front from previous series.<br /><br />***ABOUT THOSE ADS!!!***<br /><a rel="nofollow" target="blank" href="https://youtu.be/vutevtbcxVY">https://youtu.be/vutevtbcxVY</a><br /><br />WHY MY YOUTUBE CHANNEL WAS BANNED - AGAIN!<br /><a rel="nofollow" target="blank" href="https://youtu.be/rCzeUl3pGXw">https://youtu.be/rCzeUl3pGXw</a><br /><br />TUBEBUDDY, YOUR ROAD TO SUCCESS <a rel="nofollow" target="blank" href="https://tubebuddy.com/Thinkingoutloud">https://tubebuddy.com/Thinkingoutloud</a><br /><br />BUY ME A COFFEE<br /><a rel="nofollow" target="blank" href="https://ko-fi.com/ThinkingOutLoud">https://ko-fi.com/ThinkingOutLoud</a><br /><br />For copyright matters, please contact me at biz.thinkingoutloud@gmail.com<br /><br />Thanks.{% endraw %}
