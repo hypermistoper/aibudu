@@ -1,0 +1,15 @@
+---
+title: "METAFLUENCE | IDO & PUBLIC SALE BUYING GUIDE | Where, When, How (URGENT)"
+image: "https:\/\/i.ytimg.com\/vi\/VyLGYR0nOn8\/hqdefault.jpg"
+vid_id: "VyLGYR0nOn8"
+categories: "Entertainment"
+tags: ["how to buy crypto metafluence","what is metafluence","when to buy metafluence"]
+date: "2022-01-25T15:10:52+03:00"
+vid_date: "2022-01-23T21:22:35Z"
+duration: "PT10M18S"
+viewcount: "1285"
+likeCount: "57"
+dislikeCount: ""
+channel: "Josh Clark"
+---
+{% raw %}IDO launch of Metainfluence is tonight!<br /><br />Project description:<br /><br />Metafluence ($METO) enables influencers to monetize their social media power and creativity in the Metaverse. This project's mission is to convert Social Media Influencers into metaverse entrepreneurs (Metapreneurs) through our influence-to-earn Metafluence platform.<br /><br />-------------------------------------------------------------------------------------------------------------------<br />My Links:<br /><br />**Discord is still in progress, but I wanted to make it live so I can do the live tonight**<br /><br />🔮  Private Discord Chat: Access to Josh's Livestream during IDO's, direct access to Josh for questions and support, upcoming projects and details, and much more: <a rel="nofollow" target="blank" href="https://discord.gg/zBUVUuAQ">https://discord.gg/zBUVUuAQ</a><br /><br />🐦 Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/joshycrypt0">https://twitter.com/joshycrypt0</a><br /><br />-------------------------------------------------------------------------------------------------------------------<br />Launch details:<br /><br />IDO Date: Monday, January 24th<br />Staking Eligibility Cutoff: Monday, January 24th, 5 AM UTC<br />Public Sale Token Price: $0.0075 USD<br />Allocation Round Opens: Monday, January 24th, 8 AM UTC<br /><br />🚀Launchpads: <br /><br />MetaVPad 👉<a rel="nofollow" target="blank" href="https://metavpad.com/">https://metavpad.com/</a><br />NFT Launch👉<a rel="nofollow" target="blank" href="https://nftlaunch.network/">https://nftlaunch.network/</a><br />BSCPad👉<a rel="nofollow" target="blank" href="https://bscpad.com/">https://bscpad.com/</a><br /><br />Medium Page: <a rel="nofollow" target="blank" href="https://medium.com/@nftlaunch/metafluence-meto-to-launch-as-an-exclusive-ido-on-bscpad-nftlaunch-and-metavpad-4906f9e00607">https://medium.com/@nftlaunch/metafluence-meto-to-launch-as-an-exclusive-ido-on-bscpad-nftlaunch-and-metavpad-4906f9e00607</a><br />----------------------------------------------------------------------------------------------------------------<br />📜 Disclaimer 📜<br /><br />The information contained herein is for informational purposes only. Nothing herein shall be construed to be financial legal or tax advice. The content of this video is solely the opinions of the speaker who is not a licensed financial advisor or registered investment advisor. Trading cryptocurrencies pose a considerable risk of loss. The speaker does not guarantee any particular outcome.{% endraw %}
