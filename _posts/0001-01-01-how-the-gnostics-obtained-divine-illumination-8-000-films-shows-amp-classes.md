@@ -1,0 +1,15 @@
+---
+title: "How the Gnostics Obtained DIVINE Illumination"
+image: "https:\/\/i.ytimg.com\/vi\/uFHvmZLUnOs\/hqdefault.jpg"
+vid_id: "uFHvmZLUnOs"
+categories: "Entertainment"
+tags: ["gaia","yoga on gaia","cosmic disclosure"]
+date: "2022-01-26T10:52:17+03:00"
+vid_date: "2022-01-20T17:00:09Z"
+duration: "PT13M39S"
+viewcount: "37844"
+likeCount: "2112"
+dislikeCount: ""
+channel: "Gaia"
+---
+{% raw %}8,000+ Films, Shows &amp; Classes on Gaia. Start Your Free Trial - <a rel="nofollow" target="blank" href="https://bit.ly/3JQHwwZ">https://bit.ly/3JQHwwZ</a><br /><br />After the fall of the Essenes, the secrets of resurrection and ascension found rise in a new group, known as the Gnostics. They believed that the divine spark resides within every person, and that the most divine of mysteries is a teaching available to everyone. William Henry takes us deep into the heart of the Gnostic revelations, as relayed through their own words in the Nag Hamadi texts. In the time those texts were written, what the Gnostics brought the world may have been considered the most heretical, and the most dangerous.<br /><br />About Gaia:<br />Gaia offers the largest resource of consciousness expanding videos. Answer life's deeper questions and go beyond the mainstream narrative with Gaia— a member-supported media network of truth seekers and believers empowering an evolution of consciousness. Explore over 8,000 ad-free, streaming titles that challenge modern paradigms and allow you to manifest the reality that defines your being. You can experience Gaia in English, Spanish, German, or French. We offer original, dubbed or subtitled content in these languages. Join hundreds of thousands of members in 185 countries in awakening your consciousness.<br /><br />Connect with Gaia:<br />Visit Gaia WEBSITE: <a rel="nofollow" target="blank" href="https://www.gaia.com/">https://www.gaia.com/</a><br />Like Gaia on FACEBOOK:  <a rel="nofollow" target="blank" href="https://www.facebook.com/Gaia">https://www.facebook.com/Gaia</a><br />Like Gaia Unexplained on FACEBOOK:  <a rel="nofollow" target="blank" href="https://www.facebook.com/GaiaUnexplained">https://www.facebook.com/GaiaUnexplained</a><br />Like Gaia Yoga on FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/yogaongaia">https://www.facebook.com/yogaongaia</a><br />Follow Gaia on YOUTUBE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/GaiaVideo">https://www.youtube.com/c/GaiaVideo</a><br />Follow Gaia on TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/yourmothergaia">https://twitter.com/yourmothergaia</a><br />Follow Gaia on INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/wearegaia/">https://www.instagram.com/wearegaia/</a><br />Follow Gaia Yoga on INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/yogaongaia/">https://www.instagram.com/yogaongaia/</a><br /><br />#Gaia #AscensionKeepers #WilliamHenry{% endraw %}
