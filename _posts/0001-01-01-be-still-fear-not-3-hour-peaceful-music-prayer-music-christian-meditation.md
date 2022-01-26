@@ -1,0 +1,15 @@
+---
+title: "Be Still & Fear Not - 3 Hour Peaceful Music | Prayer Music | Christian Meditation | Alone With God"
+image: "https:\/\/i.ytimg.com\/vi\/Kcub4rjgUeU\/hqdefault.jpg"
+vid_id: "Kcub4rjgUeU"
+categories: "Music"
+tags: ["worship music","prayer music","worship instrumentals"]
+date: "2022-01-26T17:52:20+03:00"
+vid_date: "2019-01-07T02:40:34Z"
+duration: "PT3H7M57S"
+viewcount: "1274746"
+likeCount: "11178"
+dislikeCount: ""
+channel: "DappyTKeys Piano Worship"
+---
+{% raw %}Piano Instrumental Music to help you Pray, Meditate &amp; Relax<br />To support us, please click here to subscribe: <a rel="nofollow" target="blank" href="https://bit.ly/dappytkeys">https://bit.ly/dappytkeys</a> <br />Download Mobile App: <a rel="nofollow" target="blank" href="https://bit.ly/DTKApp">https://bit.ly/DTKApp</a><br /><br />Stream or Download DappyTKeys Music;<br />iTunes &amp; Apple Music: <a rel="nofollow" target="blank" href="https://music.lnk.to/bh32of">https://music.lnk.to/bh32of</a><br />Spotify: <a rel="nofollow" target="blank" href="https://sptfy.com/4HvK">https://sptfy.com/4HvK</a><br />Amazon Music: <a rel="nofollow" target="blank" href="https://music.amazon.com/artists/B07W18FQSP?tab=CATALOG">https://music.amazon.com/artists/B07W18FQSP?tab=CATALOG</a><br />Bandcamp: <a rel="nofollow" target="blank" href="https://dappytkeys.bandcamp.com/">https://dappytkeys.bandcamp.com/</a><br /><br />Connect on Social Media;<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/dappytkeys/">https://www.instagram.com/dappytkeys/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/dappytkeys">https://twitter.com/dappytkeys</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DappyTKeysPianoWorship/">https://www.facebook.com/DappyTKeysPianoWorship/</a><br />Official Website: <a rel="nofollow" target="blank" href="https://www.timoladeru.com">https://www.timoladeru.com</a><br /><br />DappyTKeys Piano Worship is founded on the scripture from the book of 1 Samuel 16:23 (&quot;...David would take a harp and play it with his hand. Then Saul would become refreshed and well, and the distressing spirit would depart from him&quot;). My music is Anointed, Inspirational and God inspired; it's an overflow of time spent in God's presence and fellowship with the Holy Spirit. I pray you will be drawn to the love of God in Christ Jesus, you will experience a peace that pass all understanding, you will experience healing from your sickness, and May the peace of God which surpasses all understanding guard your heart and mind as you listen. Amen!<br />..............................................................................<br />You can support this ministry by donating here: <br />PayPal: <a rel="nofollow" target="blank" href="https://bit.ly/DTKPaypal">https://bit.ly/DTKPaypal</a><br />Cash App: <a rel="nofollow" target="blank" href="https://bit.ly/DTKCashapp">https://bit.ly/DTKCashapp</a>{% endraw %}
