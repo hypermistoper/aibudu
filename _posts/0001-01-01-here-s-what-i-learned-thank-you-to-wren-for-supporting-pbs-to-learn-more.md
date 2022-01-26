@@ -1,0 +1,15 @@
+---
+title: "Here's What I Learned…"
+image: "https:\/\/i.ytimg.com\/vi\/zkqgxWcj0ek\/hqdefault.jpg"
+vid_id: "zkqgxWcj0ek"
+categories: "Education"
+tags: ["science","pbs digital studios","pbs"]
+date: "2022-01-26T20:49:27+03:00"
+vid_date: "2022-01-25T22:28:57Z"
+duration: "PT17M55S"
+viewcount: "233064"
+likeCount: "20896"
+dislikeCount: ""
+channel: "Be Smart"
+---
+{% raw %}Thank you to Wren for supporting PBS. To learn more, go to <a rel="nofollow" target="blank" href="https://wren.co/start/besmart">https://wren.co/start/besmart</a> <br />We’re on PATREON! Join the community <a rel="nofollow" target="blank" href="https://www.patreon.com/itsokaytobesmart">https://www.patreon.com/itsokaytobesmart</a><br />↓↓↓ More info and sources below ↓↓↓<br /><br />I’m vaccinated. I’m boosted. And I still got infected with the omicron variant of COVID-19. Here’s what I learned, and what it means for the possible end of this pandemic.<br /><br />References and sources: <br /><a rel="nofollow" target="blank" href="https://sites.google.com/view/be-smart-omicron-covid/home">https://sites.google.com/view/be-smart-omicron-covid/home</a> <br /><br />0:00 Intro<br />1:16 What is Omicron?<br />2:23 Is Omicron more contagious?<br />4:31 What's different about Omicron?<br />5:42 Is Omicron less severe?<br />8:07 Are the vaccines ineffective?<br />9:55 What no one's saying about vaccines<br />11:34 Injection + Infection: Is &quot;hybrid immunity&quot; better?<br />13:46 Will Omicron end the pandemic?<br />15:41 Final thoughts<br /><br />-----------<br /><br />Special thanks to our Brain Trust Patrons:<br /><br />Mehdi Damou<br />Barbora Bei<br />Ken Board<br />The Clinger-Hamilton Family<br />Attila Pix<br />Burt Humburg<br />DeliciousKashmiri<br />Brian Chang<br />Roy Lasris<br />dani bowman<br />David Johnston<br />Salih Arslan<br />Baerbel Winkler<br />Robert Young<br />Amy Sowada<br />Eric Meer<br />Dustin<br />Karen Haskell<br />AlecZero<br /><br />Join us on Patreon! <br /><a rel="nofollow" target="blank" href="https://patreon.com/itsokaytobesmart">https://patreon.com/itsokaytobesmart</a><br /><br />Twitter <br /><a rel="nofollow" target="blank" href="http://www.twitter.com/DrJoeHanson">http://www.twitter.com/DrJoeHanson</a><br /><a rel="nofollow" target="blank" href="http://www.twitter.com/okaytobesmart">http://www.twitter.com/okaytobesmart</a> <br /><br />Instagram <br /><a rel="nofollow" target="blank" href="http://www.instagram.com/DrJoeHanson">http://www.instagram.com/DrJoeHanson</a> <br /><a rel="nofollow" target="blank" href="http://www.instagram.com/okaytobesmart">http://www.instagram.com/okaytobesmart</a> <br /><br />Merch<br /><a rel="nofollow" target="blank" href="https://store.dftba.com/collections/its-okay-to-be-smart">https://store.dftba.com/collections/its-okay-to-be-smart</a><br /><br />Facebook<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/itsokaytobesmartpbs/">https://www.facebook.com/itsokaytobesmartpbs/</a>{% endraw %}
