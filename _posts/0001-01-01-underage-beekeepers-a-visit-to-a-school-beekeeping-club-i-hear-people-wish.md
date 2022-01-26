@@ -1,0 +1,15 @@
+---
+title: "Underage Beekeepers: a visit to a school beekeeping club"
+image: "https:\/\/i.ytimg.com\/vi\/rIrqjW-kh_I\/hqdefault.jpg"
+vid_id: "rIrqjW-kh_I"
+categories: "Howto-Style"
+tags: ["beekeeping","schools","urban beekeeping"]
+date: "2022-01-26T04:26:43+03:00"
+vid_date: "2018-06-24T16:55:31Z"
+duration: "PT8M49S"
+viewcount: "8813"
+likeCount: "191"
+dislikeCount: ""
+channel: "Lovely Greens"
+---
+{% raw %}I hear people wish that that skills like gardening and cooking were taught in schools more. This week I'm visiting a school that takes that up a notch and teaches their kids how to keep honeybees.<br /><br />Open to students in year 6 (age 10+), the Buchan School's beekeeping club meets weekly to inspect the colonies, talk about honeybees, build frames, and even extract honey. The aim of the club is to support the bees, educate on their importance, and help kids get over their fears. Teacher Alan says that helping just one child overcome their fears of bees has made the club so rewarding for him.<br /><br />Special thanks for this video needs to go to Alan Macnair and the Buchan School. Both have been generous with having me visit their kids and programme and for allowing me to share it with you! Another big thank you goes to the kids in the beekeeping club -- thanks for sharing your enthusiasm for bees and for having me there with cameras in tow. You guys are ace!<br /><br />In this video:<br />✽ Meeting the members of the Buchan School Beekeeping Club<br />✽ An interview with Alan Macnair, who runs the club<br />✽ A typical beekeeping club hive visit<br /><br />For more on the Buchan school, visit their website and YouTube channel:<br /><br /><a rel="nofollow" target="blank" href="https://www.kwc.im/">https://www.kwc.im/</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC458XOKpxIVt5ykk4S7PS5Q">https://www.youtube.com/channel/UC458XOKpxIVt5ykk4S7PS5Q</a><br /><br />Questions for you about the video:<br />✽ Are you a beekeeper? If so, how old were you when you learned to keep bees?<br />✽ Do you think beekeeping should be taught in more schools?<br /><br />➤ If you enjoyed this video please give it a thumbs up and subscribe (thank you!)<br /><br />➤Remember to TURN ON notifications to know when new videos are out<br /><br />➤ FIND LOVELY GREENS ONLINE<br /><br />LEARN MORE: <a rel="nofollow" target="blank" href="https://lovelygreens.com/about">https://lovelygreens.com/about</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/lovely.greens/">https://www.instagram.com/lovely.greens/</a> <br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/LovelyGreens">https://twitter.com/LovelyGreens</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/lovely.greens.iom/">https://www.facebook.com/lovely.greens.iom/</a><br /><br />➤ NEWSLETTER SUBSCRIPTION <a rel="nofollow" target="blank" href="https://www.subscribepage.com/lovelygreens">https://www.subscribepage.com/lovelygreens</a><br /><br />➤ ENQUIRIES  tanya.lovelygreens@gmail.com{% endraw %}
