@@ -1,0 +1,15 @@
+---
+title: "Heroin Being Passed Off as Percocet"
+image: "https:\/\/i.ytimg.com\/vi\/OTkMD40B7QU\/hqdefault.jpg"
+vid_id: "OTkMD40B7QU"
+categories: "News-Politics"
+tags: ["video","news","ohio news"]
+date: "2022-01-26T14:25:23+03:00"
+vid_date: "2015-04-22T03:57:37Z"
+duration: "PT2M26S"
+viewcount: "36812"
+likeCount: "89"
+dislikeCount: ""
+channel: "Dayton 24\/7 Now"
+---
+{% raw %}DAYTON -- Family of Addicts founder Lori Erion posted a picture sent to her showing a new drug on the FOA Facebook page and it got immediate attention. <br /><br />&quot;It has has 1,998 shares.&quot;<br /><br />She told those gathering for the weekly Family of Addicts meeting that their agenda would be a little different Tuesday. They would be talking about some blue pills found in Logan County being sold as Percocet but once tested it turned out to be heroin. <br /><br />&quot;I see it as something on the playground 16 and 17-year-olds here want some of these they are Percocet or not these are heroin and think its a good idea to try that.&quot;<br /><br />Casey Caldwell battled heroin addiction for 12 years. He had already heard about the blue pills and after watching dozens of  his friends kill themselves with heroin, he is glad to have the support of Family of Addicts. He says it gave him hope and he wants to reach out to others.<br /><br /> <br /><br />&quot;If you go out to get a Percocet and that's what you are use too if you need up with whatever that ways of pure heroin or pretty close to pure heroin you have a pretty good chance of overdose and dying especially if you are using it intravenously.&quot;<br /><br />The blue pills spilled out on a torn brown bag is creating a lot of buzz online. In less than 24 hours the post had been read by nearly 80 thousand people. The pills pictured were actually discovered in the Village of Huntsville in Logan County authorities were trying to find two suspected drug dealers,  caught them and confiscated the drugs. Chief Deputy Randy Dodds of the Logan County Sheriff's Office says this is the first time his office has come across them. &quot;My guess is it is something new the drug people are always looking for ways to mask things so I think it is something new but could also be somthing extremely dangerous.&quot;<br /><br /> <br /><br />Deputy Dodds says they suspect they coming into the area from Columbus but dealers are likely getting them from a larger city like Detroit. He says the heroin problem in Logan County continues to be their greatest challenge. He says he's talked to addicts who tell him kicking the habit is nearly impossible.<br /><br />&quot;They say once you achieve the first high you are always chasing  that high.&quot;<br /><br />And Erion whose daughter is a recovering heroin addict has heard those  same stories that's why getting the word out quickly about this drug or any other that pops up is essential.<br /><br />&quot;I wanted people to know about this I wanted families and people to know about this someone who looked in their kids backpack to know what this is.&quot;<br /><br /> If you have any information about these drugs call police.{% endraw %}
