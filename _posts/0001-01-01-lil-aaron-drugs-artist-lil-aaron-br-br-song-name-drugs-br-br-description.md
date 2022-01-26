@@ -1,0 +1,15 @@
+---
+title: "lil aaron - DRUGS"
+image: "https:\/\/i.ytimg.com\/vi\/skWI1OLdMQA\/hqdefault.jpg"
+vid_id: "skWI1OLdMQA"
+categories: "Music"
+tags: ["lil aaron - DRUGS","lil aaron","drugs lil aaron"]
+date: "2022-01-26T23:05:02+03:00"
+vid_date: "2016-11-01T18:35:02Z"
+duration: "PT1M57S"
+viewcount: "1699358"
+likeCount: "27974"
+dislikeCount: ""
+channel: "Promoting Sounds"
+---
+{% raw %}Artist: lil aaron<br /><br />Song Name: DRUGS<br /><br />Description: lil aaron - DRUGS is a new track off the inventive artist's new highly anticipated album &quot;GLOING PAIN$&quot;. Drugs may be something different than you expect from PS but I hope you guys keep an open mind see if you like it or not!<br /><br /><br /><br />Check &quot;GlOING PAIN$&quot; out here:<br /><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/lilaaron911/sets/gloing-pains">https://soundcloud.com/lilaaron911/sets/gloing-pains</a><br /><br /><a rel="nofollow" target="blank" href="https://itunes.apple.com/us/album/gloing-pain$/id1168225848">https://itunes.apple.com/us/album/gloing-pain$/id1168225848</a><br /><br /><br /><br />Artist Social Networks:<br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/lilaaron911">https://twitter.com/lilaaron911</a><br /><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/lilaaron911">https://soundcloud.com/lilaaron911</a><br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/lilaaron911/?fref=ts">https://www.facebook.com/lilaaron911/?fref=ts</a><br /><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/3FCYSWNVmpjTCiwzJwbMAC">https://open.spotify.com/artist/3FCYSWNVmpjTCiwzJwbMAC</a><br /><br /><br /><br />Support Promoting Sounds:<br /><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/user/promotingsounds">https://open.spotify.com/user/promotingsounds</a><br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/PromotingSounds">https://twitter.com/PromotingSounds</a><br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/PromotingSounds">https://www.facebook.com/PromotingSounds</a><br /><br /><a rel="nofollow" target="blank" href="http://soundcloud.com/Promotedsounds">http://soundcloud.com/Promotedsounds</a><br /><br /><a rel="nofollow" target="blank" href="http://instagram.com/promotingsounds">http://instagram.com/promotingsounds</a><br /><br /><br /><br />There is no copyright infringement intended for the song or picture. If you have an issue with me posting this song or picture please contact me through one of my social networks or YouTube private messaging system. Once I have received your message and determined you are the proper owner of this content I will have it removed, no drama at all. This channel is strictly for promotion towards the artists of the music. I try to help promote their music and their social networks. . Not for children - these videos are rap music that contain adult themes - thank you!{% endraw %}
