@@ -1,0 +1,15 @@
+---
+title: "Golf is Hard | Nightmare on No. 17 at The American Express 2022"
+image: "https:\/\/i.ytimg.com\/vi\/-Sf6WxgIYA4\/hqdefault.jpg"
+vid_id: "-Sf6WxgIYA4"
+categories: "Sports"
+tags: ["17","2022","2022 the american express"]
+date: "2022-01-27T07:17:28+03:00"
+vid_date: "2022-01-24T22:02:16Z"
+duration: "PT8M16S"
+viewcount: "230178"
+likeCount: "1200"
+dislikeCount: ""
+channel: "PGA TOUR"
+---
+{% raw %}Check out some of the best &quot;golf is hard&quot; moments on the par-3 17th hole at PGA West (Stadium) Course during The American Express 2022. <br /><br />SUBSCRIBE to PGA TOUR now: <a rel="nofollow" target="blank" href="http://pgat.us/vBxcZSh">http://pgat.us/vBxcZSh</a><br /><br /><br /><br />The West Coast swing starts this week as the PGA TOUR heads to La Quinta, California for The American Express. The event will be played over three courses, La Quinta CC, The Nicklaus Tournament Course and the Stadium Course on PGA West, with reigning champion, Si Woo Kim looking to add to his three victories on the PGA TOUR. Patrick Cantlay will return to La Quinta, buoyed by his final round at The American Express last year, which saw him shoot a course-record 61, but ultimately fall short of the South Korean. World No. 1, Jon Rahm will be returning to the event for the first time since 2019, hoping to repeat his heroics a year prior that saw him lift the trophy. However he’ll have to battle past a strong field that includes major winners, Justin Rose, Phil Mickleson and Patrick Reed.<br /><br /><br /><br />Welcome to the official YouTube channel of the PGA TOUR. Here you can find everything you need to stay up to date with the world’s foremost golf tour. Check in for highlights from every tournament plus player profiles, swing analysis and all the greatest shots and amazing moments.<br /><br /><br /><br />Check out <a rel="nofollow" target="blank" href="https://www.pgatour.com">https://www.pgatour.com</a> for complete coverage along with all the latest news, scoring, and stats!<br /><br /><br /><br />Follow PGA TOUR online:<br /><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/pgatour/">https://instagram.com/pgatour/</a>  <br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/PGATour">https://www.facebook.com/PGATour</a>  <br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/PGATOUR">https://twitter.com/PGATOUR</a><br /><br />TikTok: <a rel="nofollow" target="blank" href="https://tiktok.com/@pgatour">https://tiktok.com/@pgatour</a><br /><br />SoundCloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/pga">https://soundcloud.com/pga</a><br /><br /><br /><br />Sign up for exclusive coverage - <a rel="nofollow" target="blank" href="http://www.pgatourlive.com">http://www.pgatourlive.com</a><br /><br />PGA TOUR Superstore - <a rel="nofollow" target="blank" href="http://www.pgatoursuperstore.com/">http://www.pgatoursuperstore.com/</a>{% endraw %}
