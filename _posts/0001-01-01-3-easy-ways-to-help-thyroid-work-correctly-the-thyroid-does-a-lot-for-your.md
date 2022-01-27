@@ -1,0 +1,15 @@
+---
+title: "3 Easy Ways to Help Thyroid Work Correctly"
+image: "https:\/\/i.ytimg.com\/vi\/DvqReFr5AtA\/hqdefault.jpg"
+vid_id: "DvqReFr5AtA"
+categories: "Education"
+tags: ["yt:cc=on","Underactive thyroid","thyroid"]
+date: "2022-01-27T08:56:56+03:00"
+vid_date: "2020-11-20T17:50:55Z"
+duration: "PT10M18S"
+viewcount: "313254"
+likeCount: "10909"
+dislikeCount: ""
+channel: "In Hand Acupuncture & Herbs 銀漢堂"
+---
+{% raw %}The thyroid does a lot for your body. It makes hormones that keep organs running properly. It also controls the way you use energy: for example, how you burn calories and how fast your heart beats. However, sometimes this powerful gland doesn't work like it's supposed to. <br /> <br />In this video, Jonathan, the licensed acupuncturist, explains and shows you how to use three simple movements to balance and correct the functions of your thyroid. <br /> <br />*** References: NIH MedlinePlus<br />Symptoms of Underactive thyroid (hypothyroidism)  :<br />Many symptoms of an underactive thyroid (hypothyroidism) are the same as those of other conditions, so it can easily be confused for something else.<br /><br />Symptoms usually develop slowly and you may not realise you have a medical problem for several years. Common symptoms include:<br />Tiredness, being sensitive to cold, weight gain, constipation, depression, slow movements and thoughts, muscle aches and weakness, muscle cramps, dry and scaly skin, brittle hair and nails, loss of libido (sex drive), pain, numbness and a tingling sensation in the hand and fingers (carpal tunnel syndrome), irregular periods or heavy periods.<br /><br />An overactive thyroid (hyperthyroidism): can cause a wide range of symptoms, although it's unlikely you'll experience all of them. The symptoms may develop gradually or suddenly. For some people they're mild, but for others they can be severe and significantly affect their life.<br />Symptoms of an overactive thyroid can include:<br />nervousness, anxiety and irritability<br />hyperactivity – you may find it hard to stay still and have a lot of nervous energy, mood swings, difficulty sleeping, feeling tired all the time, sensitivity to heat, muscle weakness<br />diarrhoea, needing to pee more often than usual, persistent thirst, itchiness<br />loss of interest in sex.<br /><br />*** For more information or questions, please visit the website or contact us: <br /><a rel="nofollow" target="blank" href="http://www.inhandacupuncture.com">http://www.inhandacupuncture.com</a><br /><br />*** For COVID-19 patients who like to schedule a free distance consultation, please email to : inhandacupuncture@gmail.com<br /><br />[  Disclaimer  ]<br />Jonathan Fang and In Hand Acupuncture are not responsible in any way for any injury or illness that may result from attempting to perform the exercises and movement demonstrated or following the instructions contained in any of our videos, nor can we guarantee any results. We do believe that these exercises will be helpful for a variety of health issues but those attempting these exercises must do so at their own risk.{% endraw %}
