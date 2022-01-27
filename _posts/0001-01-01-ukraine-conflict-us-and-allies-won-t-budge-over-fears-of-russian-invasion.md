@@ -1,0 +1,15 @@
+---
+title: "Ukraine conflict: US and allies won't budge over fears of Russian invasion | DW News"
+image: "https:\/\/i.ytimg.com\/vi\/SOzRla89Hq8\/hqdefault.jpg"
+vid_id: "SOzRla89Hq8"
+categories: "News-Politics"
+tags: ["DW News"]
+date: "2022-01-27T08:04:47+03:00"
+vid_date: "2022-01-26T22:37:36Z"
+duration: "PT18M8S"
+viewcount: "128103"
+likeCount: "1832"
+dislikeCount: ""
+channel: "DW News"
+---
+{% raw %}Representatives from Ukraine and Russia met in person today, together with their German and French counterparts in Paris. The four-way &quot;Normandy format&quot; has been used repeatedly since Russia's annexation of Ukraine's Crimean peninsula in 2014. <br /><br />Washington has delivered its written response to Russia's security demands. The exact details of the letter remain unknown, but we do know that the US and its allies haven't budged on some demands, like keeping the door open to NATO membership for Ukraine. <br />The letter is the latest step in the ongoing diplomacy over fears of a Russian invasion. <br /><br />At recent joint meetings, Moscow demanded a guarantee that Ukraine would never join NATO, and that the alliance would cease military activity in former Soviet republics. US Secretary of State Antony Blinken said Washington has set out a &quot;serious diplomatic path&quot; to resolve the conflict. He added that the US made no concessions to the main demand on NATO membership for Kyiv. And speaking a short time ago, NATO Secretary General Jens Stoltenberg said it was time for both sides to improve dialog and diplomacy by re-establishing their respective offices in Brussels and Moscow.<br /><br />_<br />00:00 Multilateral talks over Ukraine-Russia standoff<br />00:42 Antony Blinken, US Secretary of state<br />01:41 Sergei Lavrov, Russian foreign minister<br />02:35 Agreement on certain issues?<br />05:22 NATO: Russia must de-escalate <br />05:48 Jens Stoltenberg, NATO Secretary General <br />06:12 Post-Cold-War European Security Order<br />12:15 How will the letter move the diplomatic progress along?<br /><br />Subscribe: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/deutschewelleenglish?sub_confirmation=1">https://www.youtube.com/user/deutschewelleenglish?sub_confirmation=1</a><br /><br />For more news go to: <a rel="nofollow" target="blank" href="http://www.dw.com/en/">http://www.dw.com/en/</a><br />Follow DW on social media:<br />►Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/deutschewellenews/">https://www.facebook.com/deutschewellenews/</a><br />►Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/dwnews">https://twitter.com/dwnews</a><br />►Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/dwnews">https://www.instagram.com/dwnews</a><br />Für Videos in deutscher Sprache besuchen Sie: <a rel="nofollow" target="blank" href="https://www.youtube.com/dwdeutsch">https://www.youtube.com/dwdeutsch</a><br />#Ukraine #Russia #NATO{% endraw %}
