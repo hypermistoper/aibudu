@@ -1,0 +1,15 @@
+---
+title: "🔴WHAT HAPPENED IN THE WORLD on January 23-24, 2022?🔴 Earthquake in Haiti 🔴Heavy snowstorm in Athens"
+image: "https:\/\/i.ytimg.com\/vi\/dckPti4XymQ\/hqdefault.jpg"
+vid_id: "dckPti4XymQ"
+categories: "News-Politics"
+tags: ["لینڈ سلائیڈنگ","kar yağışı","برف باری"]
+date: "2022-01-27T19:30:01+03:00"
+vid_date: "2022-01-25T19:33:04Z"
+duration: "PT10M39S"
+viewcount: "60661"
+likeCount: "940"
+dislikeCount: ""
+channel: "-THE RAGE OF THE EARTH-"
+---
+{% raw %}On the &quot;THE RAGE OF THE EARTH&quot; channel you can watch videos of extreme weather events from all over the world.<br />Subscribe to the channel to be informed about all the natural disasters that are happening on the planet.<br /><br />23/01/2022<br />#Pakistan<br />Landslides in #KhyberPakhtunkhwa, #Alpuri, #Shangla District<br />Snowfall in the #Kalat, #Mastung, and #Ziarat areas of #Balochistan<br /><br />#Turkey<br />Snowstorm in #Istanbul <br /><br />#Brazil<br />Flooding in the municipality of #Carmópolis, in the eastern region of #Sergipe<br /><br />#Madagascar<br />#TropicalStorm #Ana caused flooding and landslides in the capital #Antananarivo<br /><br />---------------------------------------------<br />24/01/2022<br />#Mozambique<br />Tropical Storm &quot;Ana&quot; made landfall in the province of #Zambezia, where the districts of #Mocuba and #Mocubela were the worst affected<br /><br />#Malawi<br />&quot;Ana&quot; also provoked floods in #Blantyre and #Chikwawa cities<br /><br />#Greece<br />Heavy snow in #Athens and many #Aegean islands<br /><br />#Haiti<br />A strong earthquake hit Haiti<br /><br />#Guatemala<br />The explosive activity on #VolcándeFuego continues<br /><br />#storm #snowstorm #earthquake #flood #slip #landslide #tornado #meteorite #snowfall #snow #hail #avalanche #naturaldisastersthisweek #disasters2021 #naturaldisasters #hailstorm #extremeweather #winds #tormenta #accidents #flooding #hurricane #fire #wildfire #lluvia #chuva #lluvas #inundacion #cataclysms #blizzard #locust #locusts #volcano #volcaniceruption #זרבובית מים #tropicalcyclone #accidentsintheworld #latestnews #sinkholes #rains #iceberg #eruption #lava #disaster #sandstorm #duststorm #extremeflooding #لینڈسلائیڈنگ #karyağışı #برفباری #inundação #desmoronamento #tempestade #χιόνι #κακοκαιρία #séisme <br /><br />Dreams Become Real by Kevin MacLeod is licensed under a Creative Commons Attribution 4.0 license. <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br /><br />Source: <a rel="nofollow" target="blank" href="http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1500027">http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1500027</a><br /><br />Artist: <a rel="nofollow" target="blank" href="http://incompetech.com/">http://incompetech.com/</a><br /><br />This video features materials protected by the Fair Use guidelines of Section 107 of the Copyright Act. All rights reserved to the copyright owners.{% endraw %}
