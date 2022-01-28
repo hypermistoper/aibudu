@@ -1,0 +1,15 @@
+---
+title: "A digital planner system to achieve your goals 💫 | Productivity, self-care, stickers & more!"
+image: "https:\/\/i.ytimg.com\/vi\/2FGVgCJVsLY\/hqdefault.jpg"
+vid_id: "2FGVgCJVsLY"
+categories: "Howto-Style"
+tags: ["digital planner","2022 planner","the kind goal"]
+date: "2022-01-29T02:11:23+03:00"
+vid_date: "2021-12-25T07:47:33Z"
+duration: "PT9M17S"
+viewcount: "5832"
+likeCount: "163"
+dislikeCount: ""
+channel: "The Kind Goal"
+---
+{% raw %}I'm so excited to share the 2022 Intentional Digital Planner collection with you 💖 This planner features a goal-setting system, self-care pages, monthly templates, stickers and more! <br /><br />🔗 LINKS<br />• Warm tones planner: <a rel="nofollow" target="blank" href="https://www.etsy.com/listing/1133307468">https://www.etsy.com/listing/1133307468</a><br />• Neutral tones planner: <a rel="nofollow" target="blank" href="https://www.etsy.com/listing/1133308932">https://www.etsy.com/listing/1133308932</a><br />• Cool tones planner: <a rel="nofollow" target="blank" href="https://www.etsy.com/listing/1133309364/">https://www.etsy.com/listing/1133309364/</a><br />• Shop at: <a rel="nofollow" target="blank" href="https://www.thekindgoal.etsy.com">https://www.thekindgoal.etsy.com</a><br /><br />If you have any questions, please don't hesitate to leave a comment! I'm so grateful for your support 💖<br /><br />#ipadplanner #2022digitalplanner #thekindgoal<br /><br />✏️ TIMESTAMPS<br />0:00 - Introduction<br />0:10 - What is a digital planner<br />0:39 - Concept of this planner system<br />1:10 - Goal setting system<br />2:25 - Home page<br />2:48 - Index page<br />2:58 - How to use custom sections<br />3:17 - Yearly pages<br />3:31 - Quarterly pages<br />3:44 - Monthly overview<br />4:38 - Monthly reflection<br />4:46 - Weekly pages<br />5:18 - Daily pages<br />6:11 - Self-care pages<br />6:31 - How to use daily prompts<br />6:58 - Goals &amp; habits tracker<br />7:13 - Finance planning<br />7:36 - Project planning<br />7:50 - Master to-do list &amp; lists<br />8:20 - Fitness tracker<br />8:34 - Bonus stickers<br />8:46 - Final thoughts &amp; thank you<br /><br />🛒SHOP &amp; FREEBIES<br />• Etsy shop: <a rel="nofollow" target="blank" href="https://thekindgoal.etsy.com">https://thekindgoal.etsy.com</a><br />• Website: <a rel="nofollow" target="blank" href="https://thekindgoal.com">https://thekindgoal.com</a><br />• Freebies: <a rel="nofollow" target="blank" href="https://thekindgoal.com/freebie-library/">https://thekindgoal.com/freebie-library/</a><br /><br />🛠️WHAT'S USED IN THIS VIDEO<br />• iPad Pro 11 inch <br />• GoodNotes app<br /><br />💖OTHER PLATFORMS<br />• Instagram: <a rel="nofollow" target="blank" href="https://www.instagram/thekindgoal">https://www.instagram/thekindgoal</a><br />• Facebook: <a rel="nofollow" target="blank" href="https://m.facebook.com/thekindgoal">https://m.facebook.com/thekindgoal</a><br />• Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/thekindgoal">https://www.pinterest.com/thekindgoal</a>{% endraw %}
