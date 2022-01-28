@@ -1,0 +1,15 @@
+---
+title: "It’s Too Easy"
+image: "https:\/\/i.ytimg.com\/vi\/eQUyd-V2yeE\/hqdefault.jpg"
+vid_id: "eQUyd-V2yeE"
+categories: "People-Blogs"
+tags: ["the hollar homestead","vlog","homesteading"]
+date: "2022-01-28T13:53:14+03:00"
+vid_date: "2022-01-27T21:00:15Z"
+duration: "PT23M8S"
+viewcount: "39778"
+likeCount: "5577"
+dislikeCount: ""
+channel: "The Hollar Homestead"
+---
+{% raw %}Lots of things happening on the farm today - Ben’s back at it on the ram pens he is building for Roots &amp; Refuge. And Meg is in the kitchen showing how she makes her easy basic bread recipe, with three variations. <br /><br />Yeast we buy: <a rel="nofollow" target="blank" href="https://www.azurestandard.com/shop/product/food/baking-pantry/leavenings/yeast/yeast-dry-active/11811?package=BP334&amp;a_aid=g0Ee07pWUJ">https://www.azurestandard.com/shop/product/food/baking-pantry/leavenings/yeast/yeast-dry-active/11811?package=BP334&amp;a_aid=g0Ee07pWUJ</a><br /><br />Basic Bread recipe<br />2 Tbs yeast<br />2 Cups warm water<br />1 Tbs honey<br />1 Tbs salt<br />2 Tbs oil or butter<br />5 1/2 cups flour<br /><br />Mix yeast, water and honey together. Let sit until bubbly. Add salt, oil and flour. Knead until dough is soft and smooth and not sticky. Shape into loaves, let rise until double. Bake at 375* until golden brown, about 30 mins. <br /><br />-- Get Social With Us --<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/hollarhomestead">https://www.instagram.com/hollarhomestead</a><br /><br />-- Favorites We Use -- <br />Chickens From Murray McMurray Hatchery: <a rel="nofollow" target="blank" href="https://www.mcmurrayhatchery.com/?rfsn=4059873.b992191">https://www.mcmurrayhatchery.com/?rfsn=4059873.b992191</a> <br />Farmhouse Teas: <a rel="nofollow" target="blank" href="https://fhteas.ositracker.com/133876/8732/url_13707">https://fhteas.ositracker.com/133876/8732/url_13707</a><br />Our vlogging camera, Canon m50: <a rel="nofollow" target="blank" href="https://amzn.to/3aDiLmp">https://amzn.to/3aDiLmp</a><br />Hank, The Gorilla Cart: <a rel="nofollow" target="blank" href="https://amzn.to/2sTYdoF">https://amzn.to/2sTYdoF</a><br />Nourishing Traditions Cookbook: <a rel="nofollow" target="blank" href="https://amzn.to/2NVPxVY">https://amzn.to/2NVPxVY</a><br />Encyclopedia of Country Living: <a rel="nofollow" target="blank" href="https://amzn.to/2uGAKIF">https://amzn.to/2uGAKIF</a><br /><br /><br />-- Ways To Support Us --<br />We have Merchandise! <a rel="nofollow" target="blank" href="https://www.bonfire.com/store/hollar-homestead/">https://www.bonfire.com/store/hollar-homestead/</a><br /><br />Meg's soap business: <a rel="nofollow" target="blank" href="http://bumblewoodhandmade.com/">http://bumblewoodhandmade.com/</a><br /><br />Support us through Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/hollarhomestead">https://www.patreon.com/hollarhomestead</a><br /><br />#growyourownfood #homesteading #farmstead<br />************************<br />Some of the links above are Amazon affiliate links. As an Amazon Associate we earn from qualifying purchases.{% endraw %}
