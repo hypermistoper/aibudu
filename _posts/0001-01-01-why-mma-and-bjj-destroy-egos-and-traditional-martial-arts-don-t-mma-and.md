@@ -1,0 +1,15 @@
+---
+title: "Why MMA And BJJ Destroy Egos (And Traditional Martial Arts Don’t)"
+image: "https:\/\/i.ytimg.com\/vi\/xxQdAd-uHCY\/hqdefault.jpg"
+vid_id: "xxQdAd-uHCY"
+categories: "Sports"
+tags: ["mma","gsp","mixed martial arts"]
+date: "2022-01-28T04:47:22+03:00"
+vid_date: "2020-08-28T10:51:22Z"
+duration: "PT8M29S"
+viewcount: "101886"
+likeCount: "4045"
+dislikeCount: ""
+channel: "Martial Arts Journey"
+---
+{% raw %}MMA and BJJ fighters are some of the most humble and nicest people around. On the contrary, many people you meet in Traditional Martial Arts are arrogant. In fact: there is a good reason behind this phenomenon, which we will explore in this Martial Arts Explored episode.<br /><br />Find more martial arts explored episodes here: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=BB1dWkjt-eM&amp;list=PL4FJXg8RNp-n4rZxBTdsT7telOasZ3kt4">https://www.youtube.com/watch?v=BB1dWkjt-eM&amp;list=PL4FJXg8RNp-n4rZxBTdsT7telOasZ3kt4</a><br /><br />Learn why MMA fighers are some of the most humble people around: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=lEHKzpBT1a8">https://www.youtube.com/watch?v=lEHKzpBT1a8</a><br /><br />---<br /><br /><br /><br />Welcome to the Martial Arts Journey YouTube channel!<br /><br /><br /><br />My name is Rokas. I'm a Lithuanian guy who trained Aikido for 14 years, 7 of them running a professional Aikido Dojo until eventually I realized that Aikido does not live up to what it promises. <br /><br /><br /><br />Lead by this realization I decided to make a daring step to close my Aikido Dojo and move to Portland, Oregon for six months to start training MMA at the famous Straight Blast Gym Headquarters under head coach Matt Thornton.<br /><br /><br /><br />After six months intensive training I had my first amateur MMA fight after which I moved back to Lithuania. During all of this time I am documenting my experience through my YouTube channel called &quot;Martial Arts Journey&quot;.<br /><br /><br /><br />Now I am slowly setting up plans to continue training MMA under quality guidance and getting ready for my next MMA fight as I further document and share my journey and discoveries.<br /><br /><br /><br />---<br /><br /><br /><br />If you want to support my journey, you can make a donation to my PayPal at info@rokasleo.com<br /><br /><br /><br />SUBSCRIBE to see when the next videos will come out: <br /><br />► <a rel="nofollow" target="blank" href="http://bit.ly/1KPZpv0">http://bit.ly/1KPZpv0</a><br /><br /><br /><br />Check the video &quot;Aikido vs MMA&quot; which started this whole Martial Arts Journey:<br /><br />► <a rel="nofollow" target="blank" href="https://youtu.be/0KUXTC8g_pk">https://youtu.be/0KUXTC8g_pk</a><br /><br /><br /><br />If you want to support me and this channel on a regular basis check my Patreon page:<br /><br />► <a rel="nofollow" target="blank" href="https://www.patreon.com/rokasleo">https://www.patreon.com/rokasleo</a><br /><br />#MMA #UFC #BJJ{% endraw %}
