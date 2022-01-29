@@ -1,0 +1,15 @@
+---
+title: "How To Make A NAKED FLORAL TIERED WEDDING CAKE! Vanilla and chocolate cakes, buttercream & flowers!"
+image: "https:\/\/i.ytimg.com\/vi\/UaylykNnBdE\/hqdefault.jpg"
+vid_id: "UaylykNnBdE"
+categories: "Howto-Style"
+tags: ["Wedding Cake (Food)","Yolanda Gamp","Yolanda Gampp"]
+date: "2022-01-29T07:03:38+03:00"
+vid_date: "2015-08-04T14:30:01Z"
+duration: "PT11M58S"
+viewcount: "2222572"
+likeCount: "36167"
+dislikeCount: ""
+channel: "How To Cake It"
+---
+{% raw %}I'm Yolanda and this is HOW TO CAKE IT! CLICK BELOW FOR ALL INGREDIENTS AND RECIPES! <br /><br />Welcome to How To Cake It with Yolanda Gampp. If you love baking and want to learn how to turn eggs, sugar and butter into CRAZY novelty cakes like Yo's famous Watermelon Cake then join us. Each episode includes the A-Z process and recipe of making one of a kind edible creations, gorgeous buttercream cakes, and more! You learn how to make recipes like Italian meringue buttercream, the perfect chocolate cake and vanilla frosting - PLUS tips and tricks on using Simple Syrup, carving, icing, applying and painting fondant, and simple ways to make any cake look amazing. Leave a comment with your cake idea and you may just see it on the channel! New Video Every Tuesday at 8am EST.<br /><br />FOLLOW ME:<br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/HowToCakeItWithYolanda">https://www.facebook.com/HowToCakeItWithYolanda</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/yolanda_gampp">https://twitter.com/yolanda_gampp</a><br />Instagram - <a rel="nofollow" target="blank" href="http://instagram.com/yolanda_gampp">http://instagram.com/yolanda_gampp</a><br />Instagram - <a rel="nofollow" target="blank" href="http://instagram.com/howtocakeit">http://instagram.com/howtocakeit</a><br />Pinterest - <a rel="nofollow" target="blank" href="https://www.pinterest.com/yolanda_gampp">https://www.pinterest.com/yolanda_gampp</a><br /><br /><br />MY BASIC RECIPES:<br />My Italian mering buttercream - <a rel="nofollow" target="blank" href="http://bit.ly/YosItalianMeringueRecipe">http://bit.ly/YosItalianMeringueRecipe</a><br />My Ultimate Vanilla Cake - <a rel="nofollow" target="blank" href="http://bit.ly/YOsVanillaCakeRecipe">http://bit.ly/YOsVanillaCakeRecipe</a><br />My Simple Syrup - <a rel="nofollow" target="blank" href="http://bit.ly/YOsSimpleSyrupRecipe">http://bit.ly/YOsSimpleSyrupRecipe</a><br /><br /><br />VIDEO TUTORIALS:<br />My Ultimate Vanilla Cake - <a rel="nofollow" target="blank" href="http://bit.ly/YosVanillaCake">http://bit.ly/YosVanillaCake</a><br />My Italian meringue buttercream - <a rel="nofollow" target="blank" href="http://bit.ly/YOsButtercream">http://bit.ly/YOsButtercream</a><br />Learn ALL my Basic Recipes Here - <a rel="nofollow" target="blank" href="http://bit.ly/RecipeBoxVids">http://bit.ly/RecipeBoxVids</a><br /><br /><br />THE HOW TO CAKE IT TEAM<br />Editor: Orhan Sumen<br />Cinematographer: Cody Clay<br />Producers: Jocelyn Mercer &amp; Connie Contardi<br /><a rel="nofollow" target="blank" href="http://www.howtocakeit.com/">http://www.howtocakeit.com/</a>{% endraw %}
