@@ -1,0 +1,15 @@
+---
+title: "Were Real Giants Discovered Across the Black Sea Region?"
+image: "https:\/\/i.ytimg.com\/vi\/bVMRap2mO5E\/hqdefault.jpg"
+vid_id: "bVMRap2mO5E"
+categories: "Education"
+tags: ["Giants","Discovered","Across"]
+date: "2022-01-29T14:46:35+03:00"
+vid_date: "2022-01-23T07:15:50Z"
+duration: "PT18M53S"
+viewcount: "101253"
+likeCount: "3765"
+dislikeCount: ""
+channel: "Mysterious Middle East"
+---
+{% raw %}How true is ancient Armenian folklore? The Medieval Arab explorer Ibn Fadlan (the real life protagonist of the 13th Warrior) wrote that while in Bulgaria he encountered a real life giant. Since then for hundreds of years real giants and the remains of giants have been reported and discovered across the Black Sea region, especially in Turkey and Armenia. From Zoroastrianism's Ahura Mazda to the Watchers of the Book of Enoch, could the underground city of Turkey's Derinkuyu hold clues to this strange mystery?<br /><br />#MysteriousMiddleEast #LostCivilizations #TheBookofEnoch #Hyak <br /><br />Related Episodes<br /><br />The Old Ones - Evidence For A Pre-Human Civilization? - <a rel="nofollow" target="blank" href="https://youtu.be/vLExcWpQlpQ">https://youtu.be/vLExcWpQlpQ</a><br />Turkey's Real Lovecraftian Horror - <a rel="nofollow" target="blank" href="https://youtu.be/qDm4EZ_dUfs">https://youtu.be/qDm4EZ_dUfs</a><br />Are Ancient Giants Hidden Beneath Irem in Arabia? - <a rel="nofollow" target="blank" href="https://youtu.be/7HnIFyO8AT8">https://youtu.be/7HnIFyO8AT8</a><br /><br />Sources and References: <br /><br />Qaaf Qalaam - The Mysterious City of Giants<br />Ibn Fadlan - The Land of Darkness Arab Travellers in the Far North<br />Mysteries Unsolved - Derinkuyu: A 3000 Year Old Mysterious Underground City<br /><br /><br />Հայաստանում ապրե՞լ են հսկաներ - Archeologist on giants and ancient people living in Armenia<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=oqSDSHcZOKo">https://www.youtube.com/watch?v=oqSDSHcZOKo</a><br /><br />Զուգահեռ աշխարհներ - Գիտական մակարդակով իրականացված վանդալիզմ<br />Սմիթսոնի ինստիտուտի վայրագ գործունեությունը<br /><br /><br />Armenia Sputnik - Հայաստանն անգիր իմացող մարդը. Ռուբեն Մնացականյանի հսկաներն ու վիթխարի հուշարձանները<br /><br />History Dot Com - 8 Mysterious Underground Cities<br />Michael Crichton - Eaters of the Dead<br />Göktürk Ramu Ve Anunnaki̇ler<br /><br />Göktürk Ramu - Sümer'in Göksel Atalari Anunnakiler 6. Baski<br />The Slavic Way - Mysteries of Giants from the Urals and Siberi<br />Dr. Kent Hovind - Did Ron Wyatt find Noah's Ark?<br /><br />Greater Ancestors - Modern Armenian Fossils of Giants<br /><br /><br />Music by Scott Buckley<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/musicbyscottb">https://www.youtube.com/user/musicbyscottb</a><br /><br />Chapters:<br />0:00 Preview: Professor Pavel Avetisyan, Armenian Archeologist's Discovery<br />0:34 Intro: Derinkuyu: The City of Giants<br />2:10 Ahmed ibn Fadlan in Bulgaria<br />4:50 Who or What Built The Underground City of Derinkuyu?<br />9:08 Ron Wyatt Mount Ararat discovery<br />9:54 Unexplained Archeology Across Armenia{% endraw %}
