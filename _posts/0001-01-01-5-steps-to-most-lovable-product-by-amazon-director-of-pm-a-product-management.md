@@ -1,0 +1,15 @@
+---
+title: "5 Steps to Most Lovable Product by Amazon Director of PM"
+image: "https:\/\/i.ytimg.com\/vi\/JqTbn8iMfes\/hqdefault.jpg"
+vid_id: "JqTbn8iMfes"
+categories: "Science-Technology"
+tags: ["Product","Product Manager","Product Management"]
+date: "2022-01-29T12:08:09+03:00"
+vid_date: "2019-03-19T15:27:32Z"
+duration: "PT39M22S"
+viewcount: "1550"
+likeCount: "50"
+dislikeCount: ""
+channel: "Product School"
+---
+{% raw %}A Product Management Event in Seattle on what makes a product lovable and how to create one. <br /><br />👉 Subscribe here: <a rel="nofollow" target="blank" href="http://bit.ly/2xMQLbS">http://bit.ly/2xMQLbS</a> <br />🕊️ Follow us on Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/2xAQklN">http://bit.ly/2xAQklN</a> <br />💙 Like us on Facebook for free event tickets: <a rel="nofollow" target="blank" href="http://bit.ly/2xPfjkh">http://bit.ly/2xPfjkh</a> <br />📷 Check us out on Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/2eHmfJp">http://bit.ly/2eHmfJp</a> <br /><br />Get the presentation slides here: <a rel="nofollow" target="blank" href="https://prdct.school/2UzI8gl">https://prdct.school/2UzI8gl</a><br />Find out more about us: <a rel="nofollow" target="blank" href="https://prod.school/2FeJ4lc">https://prod.school/2FeJ4lc</a> 💻<br /><br />ABOUT US:<br />Product School is the world’s first tech business school. We offer certified Product Management, Coding, Data Analytics, Digital Marketing, UX Design and Product Leadership courses; our instructors are real-world product managers working at top tech companies, such as Google, Facebook, Snapchat, Airbnb, LinkedIn, PayPal and Netflix.<br /><br />Our classes are part-time, designed to fit into your work schedule.  Our campuses are online and in 16 cities worldwide, including Silicon Valley, New York, Los Angeles and London. See our upcoming courses here: <a rel="nofollow" target="blank" href="https://prod.school/2FeJ4lc">https://prod.school/2FeJ4lc</a><br /><br />In addition to classes, each of our campuses hosts weekly events with top industry professionals about Product Management, Data Analytics, Coding, Digital Marketing, UX Design and Product Leadership. Click here to see what we have coming up: <a rel="nofollow" target="blank" href="https://prod.school/2Fgal6R">https://prod.school/2Fgal6R</a><br /><br />Product leaders from local top tech companies visit Product School campuses each week. Through lectures, panel discussions, and a variety of other forums, the world’s top product managers visit Product School to provide invaluable real-world insights into critical management issues. <br /><br />📓 The Product Book has arrived! Learn how to become a great Product Manager. Get your copy here: <a rel="nofollow" target="blank" href="https://prod.school/2T9fFwD">https://prod.school/2T9fFwD</a><br /><br />#ProductManagement #ProductSchool #Upskill #TechEducation #Business #ProdMgmt #ProductManager #Product #PM #IT #Management #PMP #ProductDesign #FinTech{% endraw %}
