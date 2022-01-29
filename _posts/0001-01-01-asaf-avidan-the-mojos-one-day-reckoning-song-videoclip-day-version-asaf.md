@@ -1,0 +1,15 @@
+---
+title: "Asaf Avidan, The Mojos - One Day \/ Reckoning Song (Videoclip Day Version)"
+image: "https:\/\/i.ytimg.com\/vi\/YRom6y1E8p8\/hqdefault.jpg"
+vid_id: "YRom6y1E8p8"
+categories: "Music"
+tags: ["day version","asaf aviden the mojos one day","one day asaf avidan lyrics"]
+date: "2022-01-29T15:07:42+03:00"
+vid_date: "2019-07-01T07:00:02Z"
+duration: "PT3M32S"
+viewcount: "14025047"
+likeCount: "174579"
+dislikeCount: ""
+channel: "wankelmutVEVO"
+---
+{% raw %}Asaf Avidan &amp; The Mojos' official music video for 'One Day / Reckoning Song' (Wankelmut remix). Click to listen to Wankelmut on Spotify: <a rel="nofollow" target="blank" href="http://smarturl.it/WankelmutSpotify?IQid=WankelOD">http://smarturl.it/WankelmutSpotify?IQid=WankelOD</a><br /><br />As featured on One Day / Reckoning Song. Click to buy the track or album via iTunes: <a rel="nofollow" target="blank" href="http://smarturl.it/AMWOneDayiTunes?IQid=WankelOD">http://smarturl.it/AMWOneDayiTunes?IQid=WankelOD</a><br />Google Play: <a rel="nofollow" target="blank" href="http://smarturl.it/AMWOneDayPlay?IQid=WankelOD">http://smarturl.it/AMWOneDayPlay?IQid=WankelOD</a><br />Amazon: <a rel="nofollow" target="blank" href="http://smarturl.it/AMWOneDayaz?IQid=WankelOD">http://smarturl.it/AMWOneDayaz?IQid=WankelOD</a><br /><br />More from Wankelmut<br />My Head Is A Jungle: <a rel="nofollow" target="blank" href="https://youtu.be/p8xK3XI_QGE">https://youtu.be/p8xK3XI_QGE</a><br /><br />More great 00s videos here: <a rel="nofollow" target="blank" href="http://smarturl.it/Ultimate00?IQid=WankelOD">http://smarturl.it/Ultimate00?IQid=WankelOD</a><br /><br />Follow Wankelmut<br />Website: <a rel="nofollow" target="blank" href="http://www.wankelmut.com/">http://www.wankelmut.com/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/wankelmut.berlin">https://www.facebook.com/wankelmut.berlin</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/wankelmutberlin">https://twitter.com/wankelmutberlin</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/wankelmut.berlin/">https://instagram.com/wankelmut.berlin/</a><br /><br />Subscribe to Wankelmut on YouTube: <a rel="nofollow" target="blank" href="http://smarturl.it/WankelmutSub?IQid=WankelOD">http://smarturl.it/WankelmutSub?IQid=WankelOD</a><br /><br />---------<br /><br />Lyrics:<br /><br />One day baby, we'll be old<br />Oh baby, we'll be old<br />And think about all the stories that we could have told<br /><br />One day baby, we'll be old<br />Oh baby, we'll be old<br />And think about all the stories that we could have told<br /><br />(One day)<br />(One day)<br /><br />No more tears, my heart is dry<br />I don't laugh and I don't cry<br />I don't think about you all the time<br />But when I do - I wonder why<br /><br />No more tears, my heart is dry<br />I don't laugh and I don't cry<br />I don't think about you all the time<br />But when I do - I wonder why{% endraw %}
