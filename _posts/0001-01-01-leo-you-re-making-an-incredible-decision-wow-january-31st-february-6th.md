@@ -1,0 +1,15 @@
+---
+title: "LEO - You're Making an INCREDIBLE Decision! WOW! January 31st - February 6th Tarot Reading"
+image: "https:\/\/i.ytimg.com\/vi\/zJ-YO4bMNnc\/hqdefault.jpg"
+vid_id: "zJ-YO4bMNnc"
+categories: "Entertainment"
+tags: ["Tarot","Tarot Reading","Oracle"]
+date: "2022-01-29T04:34:17+03:00"
+vid_date: "2022-01-28T16:00:29Z"
+duration: "PT18M47S"
+viewcount: "3347"
+likeCount: "427"
+dislikeCount: ""
+channel: "Zane Intuitive Guidance"
+---
+{% raw %}This is a general tarot reading for the sign of Leo for the week of January 31st - February 6th 2022.<br /><br />I DO NOT DO PERSONAL READINGS! Anyone messaging you offering that is impersonating me and trying to take your money!<br /><br />📸 Follow Me On Instagram (daily content):<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/zaneintuitive/">https://www.instagram.com/zaneintuitive/</a><br /><br />✅ Sign up for my email list (website) :<br /><a rel="nofollow" target="blank" href="https://zaneintuitive.com">https://zaneintuitive.com</a> <br /><br />🔮 TAROT &amp; ORACLE DECKS (Affiliate Links):<br /><br />The Gilded Tarot -------------  <a rel="nofollow" target="blank" href="https://amzn.to/38N6dcH">https://amzn.to/38N6dcH</a><br />Easy Tarot  --------------------- <a rel="nofollow" target="blank" href="https://amzn.to/3yYWkmI">https://amzn.to/3yYWkmI</a><br />Fin de Siècle Kipper --------- <a rel="nofollow" target="blank" href="https://amzn.to/3dNef90">https://amzn.to/3dNef90</a><br />Keepers of the Light --------  <a rel="nofollow" target="blank" href="https://amzn.to/3bJQpIH">https://amzn.to/3bJQpIH</a><br />Angel Answers Oracle ------- <a rel="nofollow" target="blank" href="https://amzn.to/3laq2A4">https://amzn.to/3laq2A4</a><br />The Psychic Tarot ------------ <a rel="nofollow" target="blank" href="https://amzn.to/2ZWVoQG">https://amzn.to/2ZWVoQG</a> <br />The Wildwood Tarot --------  <a rel="nofollow" target="blank" href="https://amzn.to/3uF4dMX">https://amzn.to/3uF4dMX</a><br />Radiant Tarot Deck ---------  <a rel="nofollow" target="blank" href="https://amzn.to/2PjXmIT">https://amzn.to/2PjXmIT</a><br />Ethereal Visions Tarot ------  <a rel="nofollow" target="blank" href="https://amzn.to/3q1GQKe">https://amzn.to/3q1GQKe</a><br />The Rider Tarot Deck -------  <a rel="nofollow" target="blank" href="https://amzn.to/37Srq4P">https://amzn.to/37Srq4P</a><br />Celestial Tarot Deck --------- <a rel="nofollow" target="blank" href="https://amzn.to/3uFKLQg">https://amzn.to/3uFKLQg</a><br />Mystical Shaman Oracle --- <a rel="nofollow" target="blank" href="https://amzn.to/3kvo6Sj">https://amzn.to/3kvo6Sj</a><br /><br />▶️ Follow Me On TikTok:<br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@zaneintuitive">https://www.tiktok.com/@zaneintuitive</a><br /><br />🤝 BUSINESS INQUIRIES:<br />hello@zaneintuitive.com<br /><br />LEGAL DISCLAIMER:<br />All tarot readings are for entertainment purposes only. I am not a medical professional and cannot give legal, financial, or medical advice. The responsibility is your own.<br /><br />#Leo #Tarot #February{% endraw %}
