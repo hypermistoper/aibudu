@@ -1,0 +1,15 @@
+---
+title: "ATTRACT（アトラクト）デビューシングル『Fly So High』"
+image: "https:\/\/i.ytimg.com\/vi\/yYXMi4r8uLc\/hqdefault.jpg"
+vid_id: "yYXMi4r8uLc"
+categories: "Music"
+tags: ["ATTRACT（アトラクト）デビューシングル『Fly","High』"]
+date: "2022-01-29T19:16:04+03:00"
+vid_date: "2021-12-03T09:00:26Z"
+duration: "PT3M49S"
+viewcount: "126787"
+likeCount: "477"
+dislikeCount: ""
+channel: "J-ROCK CHANNEL"
+---
+{% raw %}メンバーそれぞれが一つのアトラクションのように様々な個性を楽しめるグループ、<br />「アトラクショングループ」誕生！<br /><br />ATTR∀CTは、YUKI、MASAYA、KANDAI、SUGURU、KEISHI、KANTAからなる6人組ボーイズグループ。<br />“全ての”という意味を持つ「∀」と、“魅了する”という意味を持つ「attract」を組み合わせた造語。<br />全てのジャンル挑戦し、世界中のファンの方を魅了するいう意味が込められている。<br /><br />2022年1月30日（日）には、初のデビューショーケースもZepp Yokohamaにて控えている！<br />詳細は下記、オフィシャルサイトからチェック！<br /><br />■リリース情報<br />Debut Digital Single『Fly So High』<br />12月22日(水)  Release<br /><br />【リリース内容】<br />1、Fly So High<br />2、SH!T<br />3、Fly So High (Instrumental)<br />4、SH!T (Instrumental)<br /><br />【配信サイト】<br />＜ダウンロード可能サイト一覧＞<br />Amazon デジタルミュージック<br />iTunes Store<br />mora<br />レコチョク<br />うたパス Music Store<br />ひかりTVミュージックアラカルトサービス<br />dミュージック<br /><br />【配信URL】<br /><a rel="nofollow" target="blank" href="https://nex-tone.link/attract_flysohigh">https://nex-tone.link/attract_flysohigh</a><br /><br />※こちらは配信開始(12/22)とともに有効になります。<br /><br /><br />＜サブスク可能サイト＞<br />ANiUTa<br />Amazon Music Unlimited<br />Prime Music<br />AWA<br />YouTube Music<br />KKBOX<br />うたパス<br />LINE MUSIC<br />Spotify<br />Apple Music<br />dTV<br />Rakuten Music<br />ｄヒッツ<br />ひかりTVミュージック<br />dミュージック月額コース<br />RecMusic<br />mora qualitas<br />OTORAKU<br />YouTubeコンテンツID<br />QQMusic<br />KUWO<br />KUGOU<br />NetEase<br />Melon<br />genie<br />NAVER<br />Bugs<br />Flo<br />Vibe<br />Kakao<br />Deezer<br />Pandora<br /><br /><br />ATTR∀CT Official Site：<a rel="nofollow" target="blank" href="https://attract-official.com/">https://attract-official.com/</a><br /><br />ATTR∀CT Official Instagram：<a rel="nofollow" target="blank" href="https://www.instagram.com/official_attract/">https://www.instagram.com/official_attract/</a><br /><br />ATTR∀CT Official Twitter：<a rel="nofollow" target="blank" href="https://twitter.com/ATTRACT__jp">https://twitter.com/ATTRACT__jp</a><br /><br /><br />[ Fly So High ]<br />Composed/Arranged：TIGER EATS TOAST + SOTONG <br />Piano：TIGER EATS TOAST<br />Synths：TIGER EATS TOAST<br />Bass：TIGER EATS TOAST<br />Drums：TIGER EATS TOAST<br />MIX/MASTER：NE-11 PRODX<br /><br />Lyrics：Riho Okano<br /><br />[ SH!T ]<br />Composed/Arranged：TIGER EATS TOAST + SOTONG <br />Chorus：TIGER EATS TOAST<br />Piano：TIGER EATS TOAST<br />Synths：TIGER EATS TOAST<br />Bass：TIGER EATS TOAST<br />Drums：TIGER EATS TOAST<br />MIX/MASTER：NE-11 PRODX<br /><br />Lyrics：Riho Okano<br /><br />Recording Staff：Yoshitaka Imai, Ryuji Kawamoto<br /><br />Stylist：Takuya Miyazaki<br /><br />Artist Manager : HakJoo Lee, Tatsuro Miyatake [J-ROCK]<br />FC：Rion Yanai, Sumika Murakami, Chihiro Onodera [J-ROCK] <br />Executive Producer : Takahiro Kokuho [J-ROCK]<br /><br />[Special Thanks]<br />VANQUISH<br />LEGENDA<br /><br />A’GEM/9<br /><br />学校法人滋慶学園東京ベルエポック美容専門学校{% endraw %}
