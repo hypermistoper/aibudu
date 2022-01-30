@@ -1,0 +1,15 @@
+---
+title: "She's STILL a Top Tier DPS... and also F2P Friendly!! (Updated Ganyu Build Guide)"
+image: "https:\/\/i.ytimg.com\/vi\/Z6yCokoz-QM\/hqdefault.jpg"
+vid_id: "Z6yCokoz-QM"
+categories: "Gaming"
+tags: ["ganyu build","genshin impact ganyu build","ganyu build f2p"]
+date: "2022-01-30T14:32:17+03:00"
+vid_date: "2022-01-25T09:05:44Z"
+duration: "PT13M6S"
+viewcount: "37238"
+likeCount: "1155"
+dislikeCount: ""
+channel: "Meowreii"
+---
+{% raw %}It's been a while, but I'm finally back with an updated Ganyu build guide! Need to know if the newer options like Shimenawa's Reminiscence or Hamayumi are good on Ganyu? You've come to the right video, because I'll go over how to build Ganyu, from the best Ganyu artifacts and weapons, to her overall playstyle and team comps. Hopefully you understand the best Ganyu builds and how they fit into the current state of Genshin after this guide. After all, it has been a year since her debut banner.<br /><br />Join my new Discord!<br /><a rel="nofollow" target="blank" href="https://discord.com/invite/WczqGmu8nh">https://discord.com/invite/WczqGmu8nh</a><br /><br />Follow me elsewhere!<br />Twitter:  <a rel="nofollow" target="blank" href="https://twitter.com/meowreii">https://twitter.com/meowreii</a><br />Twitch:  <a rel="nofollow" target="blank" href="https://www.twitch.tv/meowreii">https://www.twitch.tv/meowreii</a><br /><br />Looking to donate to the channel?<br /><a rel="nofollow" target="blank" href="https://streamlabs.com/meowreii1">https://streamlabs.com/meowreii1</a><br /><br />Timestamps:<br />0:00 - Intro<br />0:38 - Ganyu Overview<br />2:56 - Artifacts<br />5:58 - Weapons<br />8:30 - Ganyu Teams<br /><br />Official Genshin Impact Social Medias!<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Genshinimpact">https://www.facebook.com/Genshinimpact</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/genshinimpact">https://twitter.com/genshinimpact</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/GenshinImpact/">https://www.youtube.com/c/GenshinImpact/</a> (ALL but Korean and Japanese)<br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/genshinimpact">https://discord.gg/genshinimpact</a> (ALL but Chinese)<br />Reddit: <a rel="nofollow" target="blank" href="https://www.reddit.com/r/Genshin_Impact/">https://www.reddit.com/r/Genshin_Impact/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/genshinimpact/">https://www.instagram.com/genshinimpact/</a><br />Website: <a rel="nofollow" target="blank" href="https://genshin.mihoyo.com/en">https://genshin.mihoyo.com/en</a><br />Forums: <a rel="nofollow" target="blank" href="https://www.hoyolab.com/genshin/">https://www.hoyolab.com/genshin/</a><br /><br />Music in this video is from the Genshin Impact OST:<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/album/3Zw9PiPgAvNtNUnusZAcva?si=aQU-TvJtSUG5UGZKoGl7mw">https://open.spotify.com/album/3Zw9PiPgAvNtNUnusZAcva?si=aQU-TvJtSUG5UGZKoGl7mw</a>{% endraw %}
