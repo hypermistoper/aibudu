@@ -1,0 +1,15 @@
+---
+title: "The Firefolk - Bones"
+image: "https:\/\/i.ytimg.com\/vi\/A8zOzdS-IAM\/hqdefault.jpg"
+vid_id: "A8zOzdS-IAM"
+categories: "Music"
+tags: ["the","firefolk","bones"]
+date: "2022-01-31T23:02:32+03:00"
+vid_date: "2021-12-16T19:00:04Z"
+duration: "PT6M1S"
+viewcount: "9199"
+likeCount: "255"
+dislikeCount: ""
+channel: "M O S T L Y strings"
+---
+{% raw %}This is the last stone...<br /><br /><br /><br />That you don't wanna throw to them anymore<br />You just wanna move on from your lonely war.<br />So lay down with The Firefolk, wretched your bones <br />and find love...🌨🤍<br />It's the last stone.<br /><br />↪️ <a rel="nofollow" target="blank" href="https://linktr.ee/TheFirefolk">https://linktr.ee/TheFirefolk</a><br /><br /><br /><br />Lyrics:<br />'Til my restless bones are broke<br />And rest on the shore<br />Like an animal in the wild<br />To survive or die as a child<br />And something was near<br />And it slipped away<br />When I was a child<br />I'd turn to you and pray<br />Give me it all<br />Now please take it away<br />I'm ready for it<br />However it comes now<br />'Cause I toss<br />Turn<br />I feel a burn in my foot<br /><br />Lay me down<br />Lay me down<br />Lay me down<br />Lay me down<br /><br />It's the last stone<br />And I don't wanna throw<br />Them at you anymore<br />I wanna move on<br />From my lonely war<br />And I wanna find love<br />In my wretched bones<br />I tried to find love<br />This far from home<br />There's nothing to say<br />Not a thing you could do<br />'Cause I toss<br />Turn<br />I feel a burn in my foot<br /><br />Lay me down<br />(Sweet and low, sweet like it all...)<br />Lay me down<br />(Sweet and low, sweet don't you know)<br />Lay me down<br />(Sweet and low, sweet like it all...)<br />Lay me down<br />(Sweet and low, sweet...)<br />Don't you know<br /><br />Cold fuckin night<br />And I've got them shivers<br />All my life<br />And I'm missing<br />My old ways<br />Like a dog not forgiven<br />In all his shame<br />Let it go<br />Slip it away<br />Any words<br />Can't save it babe<br /><br />La di da da<br />La di day<br />La di da hey<br />Hiding away<br />La di da<br />La di da babe<br /><br />Lay me down<br />Lay me down<br />Lay me down<br /><br /><br />Music:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/TheFirefolk">https://www.facebook.com/TheFirefolk</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/thefirefolk/">https://www.instagram.com/thefirefolk/</a><br /><br />Support:<br /><a rel="nofollow" target="blank" href="https://music.apple.com/us/artist/the-firefolk/1554277864">https://music.apple.com/us/artist/the-firefolk/1554277864</a><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/0cLw6l0z63pc6h3t4zSWgT?si=FMfjyRbdRpCk_qNZ5Rq-uQ&amp;nd=1">https://open.spotify.com/artist/0cLw6l0z63pc6h3t4zSWgT?si=FMfjyRbdRpCk_qNZ5Rq-uQ&amp;nd=1</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/the-firefolk">https://soundcloud.com/the-firefolk</a>{% endraw %}
