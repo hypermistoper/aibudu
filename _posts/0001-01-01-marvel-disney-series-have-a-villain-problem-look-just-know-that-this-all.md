@@ -1,0 +1,15 @@
+---
+title: "Marvel Disney+ Series Have A Villain Problem"
+image: "https:\/\/i.ytimg.com\/vi\/diUZpOWZ-c8\/hqdefault.jpg"
+vid_id: "diUZpOWZ-c8"
+categories: "Film-Animation"
+tags: ["bad mcu villains","cbr","disney+ series"]
+date: "2022-01-31T18:14:28+03:00"
+vid_date: "2022-01-31T13:45:00Z"
+duration: "PT10M31S"
+viewcount: "6888"
+likeCount: "573"
+dislikeCount: ""
+channel: "CBR"
+---
+{% raw %}Look, just know that this all comes from a place of love. I adore the MCU and think it’s an amazing franchise packed with incredible films and beloved characters, but one thing that’s been bugging me lately is how the Disney+ series all seem to have the same exact problem: a lackluster buildup to a major villain reveal. It’s kind of insane how every MCU TV show so far has followed the same exact pattern don’t you think?<br /><br />WandaVision put Agatha Harkness in plain site and had fans speculating that Mephisto was about to show up and be the big bad, but turns out it was Agatha All Along. Falcon and the Winter Solider teased the mysterious Power Broker and it ended up being both irrelevant to the story and hurt the characterization of the once interesting Sharon Carter. Loki and Hawkeye admittedly had great villain reveals with He Who Remains and Kingpin, but the leadup to it and then the actual unveiling of these bad guys hurt the story those shows were trying to tell. Why does the MCU keep doing this? Is it just because it’s what TV demands? <br /><br />Join me today as I break down where exactly the villain problem resides in each of the Disney+ shows so far and help me speculate what the franchise can do to fix it! After you’re done watching, be sure to hit that big like and subscribe button for more awesome superhero content like this. And leave a comment or else Ultron will break the multiverse again! Don’t want that right? Thanks for watching CBR! Let’s get started.<br /><br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/Subscribe-to-CBR">http://bit.ly/Subscribe-to-CBR</a> <br /><br />Chapters:<br />00:00 Intro<br />00:32 WandaVision<br />02:59 Falcon and the Winter Soldier<br />04:47 Loki<br />06:12 Hawkeye<br />07:38 Moon Knight<br />08:35 The Future<br /><br />Our Social Media:<br /><a rel="nofollow" target="blank" href="https://twitter.com/CBR">https://twitter.com/CBR</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/ComicBookResources">https://www.facebook.com/ComicBookResources</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@cbrgeeks">https://www.tiktok.com/@cbrgeeks</a><br /><a rel="nofollow" target="blank" href="https://www.linkedin.com/company/comic-book-resources/">https://www.linkedin.com/company/comic-book-resources/</a><br /><br />Our Website<br /><a rel="nofollow" target="blank" href="https://www.cbr.com">https://www.cbr.com</a><br /><br />Written by: Jacoby Bancroft<br />Narrated by: Jacoby Bancroft<br />Edited by: Ben Bromley<br /><br />For copyright matters please contact us at: legal@valnetinc.com{% endraw %}
