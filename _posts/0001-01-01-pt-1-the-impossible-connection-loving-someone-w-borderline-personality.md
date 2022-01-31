@@ -1,0 +1,15 @@
+---
+title: "Pt. 1. The Impossible Connection: Loving Someone w\/ Borderline Personality Disorder. See Warning"
+image: "https:\/\/i.ytimg.com\/vi\/diEhdbGC-mg\/hqdefault.jpg"
+vid_id: "diEhdbGC-mg"
+categories: "People-Blogs"
+tags: ["bpd","bpd relationships","borderline relationships"]
+date: "2022-01-31T22:56:53+03:00"
+vid_date: "2014-05-09T15:37:44Z"
+duration: "PT10M44S"
+viewcount: "798460"
+likeCount: "11800"
+dislikeCount: ""
+channel: "Ross Rosenberg"
+---
+{% raw %}WARNING: this video was not meant to be a resource for those who have Borderline Personality Disorder(BPD), which is a very unfortunate psychological disorder.  The video was created as a resource to victims of abuse, past and present, from people diagnosed with BPD.  I do not believe that people with BPD are all the same, and are equally abusive.  I do know that they hurt the people that they love.  Some of them hurt these people very badly.  <br /><br />This video is NOT a resource for people suffering with BPD.  In fact, it will surely aggravate their condition.  Although I believe I know a great deal about the disorder, I am neither a specialist nor an expert in the treatment of it.  My skill set is with people who I refer to as “Self-Love Deficients” (codependents) who have Self-Love Deficit Disorder (codependency).<br /><br />Those who criticize my video(s) on BPD are misinformed about who I am.  I neither represent people with BPD, nor do I ever try to.  Rather, I am a psychotherapist who provides mental health services to people who are SLD’s (codependents) and trauma survivors.  My work is about empowerment, healing and escaping abusive relationships.  This is evident in my Human Magnet Syndrome book and my other video and training materials.  <br /><br />My intention is not to malign people with BPD, but to empower and lead my clients away from their compulsion to stay in relationships with individuals who are harmful and abusive to them.  My work represents people who want to heal psychological wounds and who take personal responsibility for their actions. I AM AGAINST abusive individuals who narcissistically justify their harmful behavior or blame it on the victims. If that fits with people diagnosed with BPD, or for that matter, NPD or ASPD, then I offer no apologies.  <br /><br />ABOUT ROSS<br />Ross Rosenberg M.Ed., CADC, is Self-Love Recovery Institute’s CEO and primary contributor. His internationally recognized expertise includes pathological narcissism, narcissistic abuse, and attachment trauma. Ross’s “Codependency Cure™ Treatment Program provides innovative and results-oriented treatment. His expert educational and inspirational seminars have earned him international acclaim, including his 21 million YouTube video views and 230K subscribers. In addition to being featured on national TV and radio, his “Human Magnet Syndrome” books sold over 138K copies and are in 90languages. Ross provides expert testimony/witness services.<br /><br />#borderlinepersonalitydisorder #Narcissism #PersonalityDisorders{% endraw %}
