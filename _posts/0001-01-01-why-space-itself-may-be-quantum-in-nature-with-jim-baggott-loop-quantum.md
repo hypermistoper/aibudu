@@ -1,0 +1,15 @@
+---
+title: "Why Space Itself May Be Quantum in Nature - with Jim Baggott"
+image: "https:\/\/i.ytimg.com\/vi\/dW7J49UTns8\/hqdefault.jpg"
+vid_id: "dW7J49UTns8"
+categories: "Science-Technology"
+tags: ["Ri","Royal Institution","loop quantum gravity"]
+date: "2022-02-01T22:27:28+03:00"
+vid_date: "2019-05-15T16:58:03Z"
+duration: "PT1H8M56S"
+viewcount: "1021688"
+likeCount: "10943"
+dislikeCount: ""
+channel: "The Royal Institution"
+---
+{% raw %}Loop quantum gravity aims to unify the theories of general relativity and quantum mechanics, as explained by Jim Baggott. <br />Subscribe for regular science videos: <a rel="nofollow" target="blank" href="http://bit.ly/RiSubscRibe">http://bit.ly/RiSubscRibe</a><br />Buy Jim's book &quot;Quantum Space&quot;: <a rel="nofollow" target="blank" href="https://geni.us/7cLy">https://geni.us/7cLy</a><br /><br />Quantum gravity is the holy grail for modern theoretical physicists – a single structure that brings together the two great theories of the 20th century: quantum mechanics and general relativity. One widely-known solution is string theory, which emerged from particle physics. In this talk, Jim Baggott will describe the other approach known as Loop Quantum Gravity. This theory starts from general relativity, borrows many ideas and techniques from quantum mechanics, and predicts that space itself is quantum in nature.<br /><br />Watch the Q&amp;A: <a rel="nofollow" target="blank" href="https://youtu.be/XE33mycJNNI">https://youtu.be/XE33mycJNNI</a><br /><br />Jim Baggott is an award-winning science writer. He trained as a scientist, completing a doctorate in chemical physics at the University of Oxford in the early 80s, before embarking on post-doctoral research studies at Oxford and at Stanford University in California.<br /><br />This talk was filmed at the Ri on 12 February 2019.<br /><br />---<br />A very special thank you to our Patreon supporters who help make these videos happen, especially:<br />Darren Jones, Dave Ostler, David Lindo, Elizabeth Greasley, Greg Nagel, Ivan Korolev, Joe Godenzi, Lester Su, Osian Gwyn Williams, Radu Tizu, Rebecca Pan, Robert Hillier, Roger Baker, Sergei Solovev and Will Knott.<br />---<br /><br />The Ri is on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/TheRoyalInstitution">https://www.patreon.com/TheRoyalInstitution</a><br />and Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/ri_science">http://twitter.com/ri_science</a><br />and Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/royalinstitution">http://www.facebook.com/royalinstitution</a><br />and Tumblr: <a rel="nofollow" target="blank" href="http://ri-science.tumblr.com/">http://ri-science.tumblr.com/</a><br />Our editorial policy: <a rel="nofollow" target="blank" href="http://www.rigb.org/home/editorial-policy">http://www.rigb.org/home/editorial-policy</a><br />Subscribe for the latest science videos: <a rel="nofollow" target="blank" href="http://bit.ly/RiNewsletter">http://bit.ly/RiNewsletter</a>{% endraw %}
