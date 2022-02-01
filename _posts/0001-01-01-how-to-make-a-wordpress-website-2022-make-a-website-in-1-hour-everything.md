@@ -1,0 +1,15 @@
+---
+title: "How To Make a WordPress Website - 2022"
+image: "https:\/\/i.ytimg.com\/vi\/yC6ZfIF-R9k\/hqdefault.jpg"
+vid_id: "yC6ZfIF-R9k"
+categories: "Education"
+tags: ["wordpress tutorial","wordpress tutorial for beginners","wordpress 2022"]
+date: "2022-02-01T15:08:07+03:00"
+vid_date: "2022-01-03T14:00:24Z"
+duration: "PT1H2M33S"
+viewcount: "60136"
+likeCount: "1670"
+dislikeCount: ""
+channel: "Tyler Moore"
+---
+{% raw %}Make a website in 1 hour. Everything you need to know, from getting your website name to choosing your design and creating your website.<br /><br />Learn step by step with no step skipped.<br /><br />You can download the files needed for this design here: <a rel="nofollow" target="blank" href="https://www.tyler.com/wp-content/uploads/2022/01/make-a-website.zip">https://www.tyler.com/wp-content/uploads/2022/01/make-a-website.zip</a><br /><br /><br />Timestamps:<br /><br />00:00:00 Make Any Design<br />00:01:00 Setup Overview<br />00:02:08 Domain Name &amp; Hosting<br />00:06:17 Get Big Hosting Discount<br /><br /><a rel="nofollow" target="blank" href="https://www.hostgator.com/unlock">https://www.hostgator.com/unlock</a><br />Use coupon code UNLOCK for the biggest possible discount. I will also get a commission from Hostgator (at no additional cost to you) that allows me to make these in-depth tutorials for free, thank you!<br /><br />00:06:54 Install Wordpress<br />00:09:03 Login &amp; Dashboard<br />00:09:56 Delete Plugins, Posts &amp; Pages<br />00:11:52 Choose Your Design<br />00:15:12 Change Title and Tagline<br /><br />00:16:05 Homepage Design<br />00:17:09 Text<br />00:20:21 Buttons<br />00:23:08 Undo / Redo<br />00:23:58 Sections<br />00:26:41 Images<br />00:29:25 Backgrounds<br />00:32:32 Spacing<br /><br />00:35:47 About Page<br />00:36:02 Video<br />00:37:26 Super Cool Thing<br /><br />00:40:37 Services Page<br />00:41:01 Change Icons<br />00:41:57 Mobile Friendly (Responsiveness)<br /><br />00:45:14 Contact Page<br />00:45:34 Add Google Map<br />00:46:02 Contact Form<br /><br />00:47:28 Add New Page<br />00:48:00 Import a Page<br />00:48:40 Import a Block<br />00:49:39 Transparent Header<br />00:50:17 Copy a Design<br />00:51:27 Design From Scratch<br />00:52:25 Add Page To Menu<br /><br />00:54:00 Make Logo &amp; Site Icon<br />00:56:34 Insert Logo &amp; Edit Header<br />00:58:49 Insert Site Icon<br />00:59:15 Edit Footer<br />01:00:49 Final Design<br /><br /><br />Want to make your website into an online store? Learn how, here: <a rel="nofollow" target="blank" href="https://youtu.be/facMcbWB0jI">https://youtu.be/facMcbWB0jI</a><br />Want to add a blog to your website? Learn how, here: <a rel="nofollow" target="blank" href="https://youtu.be/BhltwjuiEk4">https://youtu.be/BhltwjuiEk4</a><br />Want to add a booking form to your website? Learn how, here: <a rel="nofollow" target="blank" href="https://youtu.be/70JwyYSosX0">https://youtu.be/70JwyYSosX0</a><br /><br />#wordpress #wordpresstutorial #createawebsite<br /><br />If you have any question or get stuck anywhere at all, just ask in a new comment below. No question is a bad question, and we answer each and every one!{% endraw %}
