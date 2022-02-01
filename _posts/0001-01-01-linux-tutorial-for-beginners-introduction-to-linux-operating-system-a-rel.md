@@ -1,0 +1,15 @@
+---
+title: "Linux Tutorial for Beginners: Introduction to Linux Operating System"
+image: "https:\/\/i.ytimg.com\/vi\/V1y-mbWM3B8\/hqdefault.jpg"
+vid_id: "V1y-mbWM3B8"
+categories: "Education"
+tags: ["ubuntu","linux","unix"]
+date: "2022-02-01T12:19:58+03:00"
+vid_date: "2017-04-15T11:40:40Z"
+duration: "PT2H29M5S"
+viewcount: "2725170"
+likeCount: "22187"
+dislikeCount: ""
+channel: "Guru99"
+---
+{% raw %}<a rel="nofollow" target="blank" href="http://www.guru99.com/unix-linux-tutorial.html">http://www.guru99.com/unix-linux-tutorial.html</a><br /><br />Linux is the most popular server OS(Operating System). Linux is a clone of UNIX. Knowing one is as good as knowing the other. This tutorial is for absolute beginners. You will know how Linux works. You can learn Linux, by installing it right on your existing Windows or Mac OS systems! (Detailed steps to install Ubuntu given in tutorials).<br /><br />Chapters<br />========================================<br />00:00 Introduction<br />06:50 Most Popular Linux distros<br />08:37 Installing Linux – VirtualBox<br />18:05 Introduction to Linux operating system and comparison with windows<br />24:32 Terminal vs. File Manager<br />27:20 Command Line Interfaces on Ubuntu Operating system<br />49:19 Brief of Linux commands<br />52:04 Ownership in Linux Files (Permissions in Linux)<br />1:04:58 Print, Email &amp; Install Software on Linux<br />1:25:34 Regular expressions In Linux/Ubuntu<br />1:30:46 Basic Environment Variables <br />1:35:56 Communication in Linux<br />1:37:21 FTP (File transfer protocol)<br />1:42:35 Types of Processes in Linux<br />1:54:07 VI Editor Tutorial<br />2:01:45 Shell Scripting In Linux<br />2:09:11 What is PERL Programming<br />2:13:58 Virtual Terminal<br />2:20:00 Unix Administration in Linux<br /><br />What is Linux?<br />Linux is an operating system (kernel). It is distributed under an open source license. Its functionality list is quite like UNIX.<br /><br />Like, share and subscribe our channel for more videos.<br /><br />Enjoy our free tutorial on our YouTube channel and our website.<br /><br />Watch more videos on our YouTube channel at <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC19i1XD6k88KqHlET8atqFQ">https://www.youtube.com/channel/UC19i1XD6k88KqHlET8atqFQ</a> <br /><br />READ this as a book on Amazon by viewing at <a rel="nofollow" target="blank" href="http://amzn.to/2gZGjbE">http://amzn.to/2gZGjbE</a> (Linux) <br /><br />Visit our website for more! www.guru99.com<br /><br />FACEBOOK! Would you prefer to watch more about us? Like our page for more <a rel="nofollow" target="blank" href="https://www.facebook.com/guru99com/">https://www.facebook.com/guru99com/</a><br /><br />TWITTER! Tweet for us on Twitter with #guru99 and follow us on <a rel="nofollow" target="blank" href="https://twitter.com/guru99com">https://twitter.com/guru99com</a><br /><br />THANKS! We appreciate you reading this and hope you have a wonderful day! <br />Sincerely, <br />Guru99{% endraw %}
