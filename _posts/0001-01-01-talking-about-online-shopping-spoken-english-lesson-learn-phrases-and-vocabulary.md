@@ -1,0 +1,15 @@
+---
+title: "Talking About Online Shopping - Spoken English Lesson"
+image: "https:\/\/i.ytimg.com\/vi\/eKbdUv4nj_8\/hqdefault.jpg"
+vid_id: "eKbdUv4nj_8"
+categories: "Education"
+tags: ["talking about online shopping","talk about online shopping","online shopping in english"]
+date: "2022-02-02T07:39:00+03:00"
+vid_date: "2021-10-14T19:56:58Z"
+duration: "PT20M32S"
+viewcount: "69880"
+likeCount: "1944"
+dislikeCount: ""
+channel: "Oxford Online English"
+---
+{% raw %}Learn phrases and vocabulary for talking about online shopping in this lesson. See examples of real English conversation to help you improve your spoken English skills and talk about online shopping in many different situations. Practice your spoken English skills and the vocabulary from this lesson with a qualified teacher. Find one on our website:  <a rel="nofollow" target="blank" href="http://bit.ly/ooe-teachers.">http://bit.ly/ooe-teachers.</a><br /><br />Are you usually a satisfied customer when you shop online? Tell us about a positive experience you've had. Have you ever had a negative experience? Tell us about that too! Share your ideas in the comments.<br /><br />See the full version of this lesson on our website and take the quiz to check your understanding: <a rel="nofollow" target="blank" href="https://www.oxfordonlineenglish.com/talk-about-online-shopping.">https://www.oxfordonlineenglish.com/talk-about-online-shopping.</a><br /><br />Contents:<br />Intro 00:00-00:55<br />Where do you buy clothes online? 00:55-06:01<br />Comparing websites 06:01-11:11<br />Talking about a good experience 11:11-15:29<br />Talking about a bad experience 15:29<br /><br />This lesson will help you:<br />- Understand how to talk about websites where you can shop online.<br />- Talk about the best online shopping websites and explain why you like them.<br />- Describe the worst online shopping websites and why you don't like them.<br />- Communicate with others in English about a good online shopping experience you've had before.<br />- See how you can talk about a bad experience you've had when shopping online.<br />- Get examples of online shopping vocabulary in English and see how to use those words and phrases in real English conversation.<br />- Work on your spoken English skills using the new vocabulary you learn to talk about online shopping in English.<br /><br />SUBSCRIBE to continue improving your English! <a rel="nofollow" target="blank" href="https://goo.gl/UUQW8j">https://goo.gl/UUQW8j</a><br /><br />Become an OOE member to see our newest lessons before they're available to the public, and more! <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCNbeSPp8RYKmHUliYBUDizg/join">https://www.youtube.com/channel/UCNbeSPp8RYKmHUliYBUDizg/join</a> <br /><br />Do you want to see an English lesson on another topic? Look through our free lesson library: <a rel="nofollow" target="blank" href="https://www.oxfordonlineenglish.com/free-english-lessons">https://www.oxfordonlineenglish.com/free-english-lessons</a>{% endraw %}
