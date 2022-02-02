@@ -1,0 +1,15 @@
+---
+title: "BEST Blind Auditions of JANUARY 2022 on The Voice"
+image: "https:\/\/i.ytimg.com\/vi\/xps6Yes4TLQ\/hqdefault.jpg"
+vid_id: "xps6Yes4TLQ"
+categories: "Entertainment"
+tags: ["The Voice","The Voice Kids","La Voz"]
+date: "2022-02-02T20:46:40+03:00"
+vid_date: "2022-02-01T15:00:36Z"
+duration: "PT18M6S"
+viewcount: "182531"
+likeCount: "3560"
+dislikeCount: ""
+channel: "The Voice Global"
+---
+{% raw %}2022 is already an excellent year with many new talents in The Voice worldwide! In this compilation, we spotlight the best Blind Auditions of January 2022. <br /><br />🔻 WATCH THE FULL PERFORMANCES:<br />00:00​ 1. Ty &amp; Eddie sing 'Fleetwood Mac' (The Voice Generations Australia):<br /><a rel="nofollow" target="blank" href="https://youtu.be/ucCRpqZHYao">https://youtu.be/ucCRpqZHYao</a><br /><br />01:42 2. Jørgen Dahl Moe sings 'Dancing In the Dark' (The Voice Norway):<br /><a rel="nofollow" target="blank" href="https://youtu.be/X3ruKFDmChY">https://youtu.be/X3ruKFDmChY</a><br /><br />03:56 3. Hey Mix sing 'Sax' (The Voice Generations Lithuania):<br /><a rel="nofollow" target="blank" href="https://youtu.be/5kkEs7EptI0">https://youtu.be/5kkEs7EptI0</a><br /><br />06:15 4. Argjenda Aliu sings 'Yours' (The Voice of Finland):<br /><a rel="nofollow" target="blank" href="https://youtu.be/3LfMwFgczGI">https://youtu.be/3LfMwFgczGI</a><br /><br />07:36 5. Goda Levickaite sings 'Wicked Game' (The Voice Norway):<br /><a rel="nofollow" target="blank" href="https://youtu.be/w2yMpkdP9gU">https://youtu.be/w2yMpkdP9gU</a><br /><br />09:17 6. 2tone sing 'Soldat' (The Voice Ukraine):<br /><a rel="nofollow" target="blank" href="https://youtu.be/-pSwMrgA5qU">https://youtu.be/-pSwMrgA5qU</a><br /><br />11:05 7. Caitlin &amp; Tim sing 'Lady Gaga' (The Voice Generations Australia):<br /><a rel="nofollow" target="blank" href="https://youtu.be/gMmqekiZi_M">https://youtu.be/gMmqekiZi_M</a><br /><br />12:36 8. Unurzul.B sings 'Amour T'es La' (The Voice of Mongolia):<br /><a rel="nofollow" target="blank" href="https://youtu.be/1RyOIRiQjWk">https://youtu.be/1RyOIRiQjWk</a><br /><br />14:25 9. Kaan Kandemir sings 'La nuit' (The Voice Belgique):<br /><a rel="nofollow" target="blank" href="ttps://youtu.be/BFYfSVh9X2s">ttps://youtu.be/BFYfSVh9X2s</a><br /><br />06:13 10. Inesa Hrytsaienko sings 'Husy' (The Voice Ukraine):<br /><a rel="nofollow" target="blank" href="https://youtu.be/Jlms6HHsxvE">https://youtu.be/Jlms6HHsxvE</a><br /><br />🔻SUBSCRIBE<br />Subscribe now to see more amazing 'The Voice' performances from around the globe: <a rel="nofollow" target="blank" href="http://bit.ly/Voice-Global-Subscribe">http://bit.ly/Voice-Global-Subscribe</a><br /><br />🔻OTHER CHANNELS<br /> @La Voz Global   <br /> @Best of The Voice Kids  <br /> @Best of The Voice <br /> @TheVoiceEurope <br /><br />🔻SOCIAL<br />TikTok:        <a rel="nofollow" target="blank" href="https://www.tiktok.com/@thevoicehq">https://www.tiktok.com/@thevoicehq</a><br /><br />🔻HASHTAGS<br />#TheVoice #2022{% endraw %}
