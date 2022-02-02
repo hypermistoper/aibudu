@@ -1,0 +1,15 @@
+---
+title: "Is This How The World Ends?"
+image: "https:\/\/i.ytimg.com\/vi\/tXEkYG-JXuY\/hqdefault.jpg"
+vid_id: "tXEkYG-JXuY"
+categories: "Entertainment"
+tags: ["LGBTQ Christian","Progressive Christian"]
+date: "2022-02-02T11:16:10+03:00"
+vid_date: "2021-12-10T16:00:22Z"
+duration: "PT3M34S"
+viewcount: "115"
+likeCount: "0"
+dislikeCount: ""
+channel: "The Many"
+---
+{% raw %}Climate change is a reality. It is not a vague notion of a possible future anymore. It is fires and floods and storms at our doorsteps. How will we be the Church in these difficult, uncertain times? Here’s a song that speaks to the fear and uncertainty of these times. Written by Hannah and Lenora Rand and recorded by The Many, “Is This How The World Ends” is an expressive, emotional song, that we hope will help us pray and lament and ask for help. Featuring the beautiful harmonies of Olivia Harris and Alaina Stacey, with lead vocals by Hannah Rand.<br /><br />Get the audio, sheet music and more at our shop: shop.themanyarehere.com<br /><br /><br />Verse 1<br />The sky is filled with fire tonight.<br />The smoke fills our lungs.<br />What are we doing? What have we done?<br />What are we doing? What have we done?<br /><br />Verse 2<br />The water's running dark tonight.<br />We drink in our ruin.<br />What are we doing? What have we done?<br />What are we doing? What have we done?<br /><br />Chorus <br />We can't say we didn't know.<br />We can't say we didn't see.<br />Our tears don't mean a thing <br />If we turn away again<br />Is this how the world ends?<br />Is this how the world ends?<br /><br />Verse 2 <br />The city's washed in tears tonight.<br />Hope is on the run.<br />What are we doing? What have we done?<br />What are we doing? What have we done?<br />Chorus <br /><br />Bridge<br />For the beauty of the earth<br />For all life that lives on it<br />Forgive us, help us speak the truth<br />Help us love the way you do.<br /><br />Help us love, help us love, <br />Help us love the way you do<br /><br />________________________<br />Learn more about The Many:<br />Website - <a rel="nofollow" target="blank" href="https://www.themanyarehere.com">https://www.themanyarehere.com</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/themanyarehere">https://www.patreon.com/themanyarehere</a><br />Facebook/Instagram/Twitter - @themanyarehere<br />Church Resources website - <a rel="nofollow" target="blank" href="https://www.pluralguild.com">https://www.pluralguild.com</a><br /><br />Get music by The Many:<br />Spotify: <a rel="nofollow" target="blank" href="https://spoti.fi/2ZpUGMG">https://spoti.fi/2ZpUGMG</a><br />iTunes/Apple Music: <a rel="nofollow" target="blank" href="https://apple.co/3cR0AKC">https://apple.co/3cR0AKC</a><br />Website: <a rel="nofollow" target="blank" href="https://pluralguild.com/music">https://pluralguild.com/music</a> or <a rel="nofollow" target="blank" href="https://themanyarehere.com/music">https://themanyarehere.com/music</a>{% endraw %}
