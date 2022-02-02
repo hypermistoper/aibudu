@@ -1,0 +1,15 @@
+---
+title: "Transforming The WHOLE Of Minecraft - The ULTIMATE Survival World!"
+image: "https:\/\/i.ytimg.com\/vi\/RBr5kdDqJoo\/hqdefault.jpg"
+vid_id: "RBr5kdDqJoo"
+categories: "Gaming"
+tags: ["TrixyBlox","Minecraft","The Minecraft Ultimate Survival Map"]
+date: "2022-02-02T10:17:57+03:00"
+vid_date: "2022-02-01T19:00:18Z"
+duration: "PT23M49S"
+viewcount: "375485"
+likeCount: "69898"
+dislikeCount: ""
+channel: "TrixyBlox"
+---
+{% raw %}This is easily the most unique USW transformation build yet! 300,000 LIKES for Part 7 of the ULTIMATE Survival World! We've only got a few remaining biomes left to upgrade, what should I transform next? Comment below and share your ideas!⚔️<br /><br />USW DESERT MOVIE 🎥: <a rel="nofollow" target="blank" href="https://youtu.be/ZyDV_fWycVY">https://youtu.be/ZyDV_fWycVY</a><br />MERCHANDISE 🔥: <a rel="nofollow" target="blank" href="https://www.trixybloxstore.com">https://www.trixybloxstore.com</a><br />DISCORD 💙: <a rel="nofollow" target="blank" href="https://discord.gg/trixyblox">https://discord.gg/trixyblox</a><br />Download My Builds HERE 🛠️: <a rel="nofollow" target="blank" href="https://www.patreon.com/TrixyBlox">https://www.patreon.com/TrixyBlox</a><br /><br />Steph's Socials:<br />@StephBlox  <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/steph.blox">https://www.instagram.com/steph.blox</a><br /><br />Second Channel:<br />@MoreTrixyBlox <br />INSTAGRAM: <a rel="nofollow" target="blank" href="http://instagram.com/trixy.blox">http://instagram.com/trixy.blox</a><br />Personal Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/oscosborne">http://instagram.com/oscosborne</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@trixy.blox">https://www.tiktok.com/@trixy.blox</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TrixyBlox">https://twitter.com/TrixyBlox</a><br />- - - - - - - - - - - - - - - - - - - - - - - - - -<br />● ● ● ● ● ● ● ● ♪♫ Artists' Credits ♫♪ ● ● ● ● ● ● ● ●<br /><br />Jake Rivers:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/JakeRivers">https://www.youtube.com/c/JakeRivers</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jakelondonrivers">https://www.instagram.com/jakelondonrivers</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/jakeriversmusic">https://soundcloud.com/jakeriversmusic</a> <br /><br />Song List:<br />Opening<br />Howdy<br />Morning In The Savanna<br />Healing River<br />The Spirit Tree<br />The Crater Dance<br />A New Ritual<br />Reunion<br />Savanna Epilogue<br />- - - - - - - - - - - - - - - - - - - - - - - - - -<br />Shaders: Complementary Shaders<br /><br />Mods &amp; Plugins Used:<br />Optifine<br />Replay Mod<br />World Edit<br />Voxel Sniper<br />Hydrogen<br />Lithium<br />Phosphor<br />Iris<br />Sodium<br />- - - - - - - - - - - - - - - - - - - - - - - - - -<br />#Minecraft<br />#Transformation<br />#Survival<br />#UpgradingMinecraft<br />#100days<br />#SavannaTransformation<br />#UltimateSurvivalWorld<br />#USW{% endraw %}
