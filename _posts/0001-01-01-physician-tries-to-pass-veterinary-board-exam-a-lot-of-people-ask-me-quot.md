@@ -1,0 +1,15 @@
+---
+title: "PHYSICIAN TRIES TO PASS VETERINARY BOARD EXAM"
+image: "https:\/\/i.ytimg.com\/vi\/GiYTvux-7ac\/hqdefault.jpg"
+vid_id: "GiYTvux-7ac"
+categories: "Pets-Animals"
+tags: ["DVMCellini","drcellini","vet channels"]
+date: "2022-02-03T10:04:40+03:00"
+vid_date: "2022-01-05T16:15:01Z"
+duration: "PT12M46S"
+viewcount: "84742"
+likeCount: "2026"
+dislikeCount: ""
+channel: "DVMCellini"
+---
+{% raw %}A lot of people ask me, &quot;Dr. Cellini, aren't vets smarter than human doctors?&quot;. Well, this video seeks to answer that question. I have been trying to make this video with the great @Dr. Cellini for quite some time and over the holiday I finally had some time to sit down, use his equipment and studio for my own gain, and see how his level of medical knowledge helps out with the North American Veterinary Licensing Exam. The results will......surprise you (they surprised me). <br /><br />CONTACT ME:<br />📸  Instagram - <a rel="nofollow" target="blank" href="https://instagram.com/dvmcellini">https://instagram.com/dvmcellini</a><br />📹  TikTok - @dvmcellini<br />🐦  Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/dvmcellini">https://twitter.com/dvmcellini</a><br />📧  Email:  dvmcellini@gmail.com<br /><br />Books I Studied Throughout My Career (and still use for reference guides):<br />Miller's Anatomy - <a rel="nofollow" target="blank" href="https://amzn.to/3cumdlV">https://amzn.to/3cumdlV</a><br />DeLahunta Neuroanatomy (bible of vet neuro) - <a rel="nofollow" target="blank" href="https://amzn.to/3w9ITzB">https://amzn.to/3w9ITzB</a><br /><br />List of useful items I often recommend to pet owners:<br />Harness - <a rel="nofollow" target="blank" href="https://amzn.to/3v9MHjL">https://amzn.to/3v9MHjL</a><br />Dog Booties - <a rel="nofollow" target="blank" href="https://amzn.to/3469KjO">https://amzn.to/3469KjO</a><br />Halo Harness for Blind Dogs - <a rel="nofollow" target="blank" href="https://amzn.to/2RuEDvK">https://amzn.to/2RuEDvK</a><br /><br />Other Useful Pet Items I Use At Home For My Pets:<br />Kong Chew Toys: <a rel="nofollow" target="blank" href="https://amzn.to/3gnl2WE,">https://amzn.to/3gnl2WE,</a> <a rel="nofollow" target="blank" href="https://amzn.to/3xdF6l9">https://amzn.to/3xdF6l9</a><br />ChuckIt! Ball Launcher (thing works great for Bernie): <a rel="nofollow" target="blank" href="https://amzn.to/3g3WDq7">https://amzn.to/3g3WDq7</a><br />Eco Friendly Poop Bags (I use these): <a rel="nofollow" target="blank" href="https://amzn.to/3f8fjEP">https://amzn.to/3f8fjEP</a><br />Amazon Prescription Dog Food - <a rel="nofollow" target="blank" href="https://amzn.to/3fHz4lI">https://amzn.to/3fHz4lI</a><br />Amazon Deals on Pet Items - <a rel="nofollow" target="blank" href="https://amzn.to/3vdCvqw">https://amzn.to/3vdCvqw</a><br /><br />**As an Amazon Associate I earn commission with use of the above links on qualifying purchases**<br /><br />🎵  Where I get ALL of My Music from -- Epidemic Sound! <br />epidemicsound.com/referral/nfa6vr/{% endraw %}
