@@ -1,0 +1,15 @@
+---
+title: "Progressive Aspect | The parts of speech | Grammar | Khan Academy"
+image: "https:\/\/i.ytimg.com\/vi\/-PhyqbvnoCg\/hqdefault.jpg"
+vid_id: "-PhyqbvnoCg"
+categories: "Howto-Style"
+tags: ["education","online learning","learning"]
+date: "2022-02-03T22:26:19+03:00"
+vid_date: "2016-03-28T23:06:25Z"
+duration: "PT2M45S"
+viewcount: "273435"
+likeCount: "771"
+dislikeCount: ""
+channel: "Khan Academy"
+---
+{% raw %}If verb tense allows you to control the past, the present, and the future, then aspect gives you even finer control over time. David, Khan Academy's resident grammarian, explains.<br /><br />Practice this yourself on Khan Academy right now: <a rel="nofollow" target="blank" href="https://www.khanacademy.org/humanities/grammar/partsofspeech/grammar-verbs/e/progressive-verb-aspect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=grammar">https://www.khanacademy.org/humanities/grammar/partsofspeech/grammar-verbs/e/progressive-verb-aspect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=grammar</a><br /><br />Watch the next lesson: <a rel="nofollow" target="blank" href="https://www.khanacademy.org/humanities/grammar/partsofspeech/grammar-verbs/v/progressive-aspect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=grammar">https://www.khanacademy.org/humanities/grammar/partsofspeech/grammar-verbs/v/progressive-aspect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=grammar</a><br /><br />Missed the previous lesson? <a rel="nofollow" target="blank" href="https://www.khanacademy.org/humanities/grammar/partsofspeech/grammar-verbs/v/intro-to-aspect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=grammar">https://www.khanacademy.org/humanities/grammar/partsofspeech/grammar-verbs/v/intro-to-aspect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=grammar</a><br /><br />Grammar on Khan Academy: Grammar is the collection of rules and conventions that make languages go. This section is about Standard American English, but there's something here for everyone.<br /><br />About Khan Academy: Khan Academy offers practice exercises, instructional videos, and a personalized learning dashboard that empower learners to study at their own pace in and outside of the classroom. We tackle math, science, computer programming, history, art history, economics, and more. Our math missions guide learners from kindergarten to calculus using state-of-the-art, adaptive technology that identifies strengths and learning gaps. We've also partnered with institutions like NASA, The Museum of Modern Art, The California Academy of Sciences, and MIT to offer specialized content.<br /><br />For free. For everyone. Forever. #YouCanLearnAnything<br /><br />Subscribe to Khan Academy’s Grammar channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8JT97hQjMVWeO0B-x8eVxQ?sub_confirmation=1">https://www.youtube.com/channel/UC8JT97hQjMVWeO0B-x8eVxQ?sub_confirmation=1</a><br />Subscribe to Khan Academy: <a rel="nofollow" target="blank" href="https://www.youtube.com/subscription_center?add_user=khanacademy">https://www.youtube.com/subscription_center?add_user=khanacademy</a>{% endraw %}
