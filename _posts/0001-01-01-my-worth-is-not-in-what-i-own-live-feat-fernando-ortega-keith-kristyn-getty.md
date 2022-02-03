@@ -1,0 +1,15 @@
+---
+title: "My Worth Is Not in What I Own (Live feat. Fernando Ortega) - Keith & Kristyn Getty"
+image: "https:\/\/i.ytimg.com\/vi\/MV5x6M38ea8\/hqdefault.jpg"
+vid_id: "MV5x6M38ea8"
+categories: "Music"
+tags: ["getty","music","irish"]
+date: "2022-02-03T06:08:48+03:00"
+vid_date: "2020-01-23T15:36:23Z"
+duration: "PT4M22S"
+viewcount: "798052"
+likeCount: "6922"
+dislikeCount: ""
+channel: "KeithandKristyn Getty"
+---
+{% raw %}&quot;My Worth Is Not in What I Own&quot; led by Fernando Ortega &amp; Kristyn Getty<br />Recorded LIVE at the Bridgestone Arena for the Sing! Conference 2019<br />Stream this song and others on our official Spotify channel: <a rel="nofollow" target="blank" href="https://bit.ly/kkgprofile">https://bit.ly/kkgprofile</a><br /><br />Stay connected: <br /><a rel="nofollow" target="blank" href="http://www.facebook.com/gettymusic">http://www.facebook.com/gettymusic</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/gettymusic">http://instagram.com/gettymusic</a><br /><a rel="nofollow" target="blank" href="http://www.gettymusic.com">http://www.gettymusic.com</a><br /><a rel="nofollow" target="blank" href="http://www.gettymusicworshipconference.com">http://www.gettymusicworshipconference.com</a> <br /><br />Be sure to subscribe to our YouTube channel for more great modern hymns!<br /><br />Where do you find your worth? The world trains us to find it in wealth, power, pleasure, and popularity. The cross of Christ offers a different path. God himself pays the ultimate price to ransom us and fixes our value at the cost of the life of his beloved Son. He himself our greatest treasure and the wellspring of our life. What else can we do but rejoice in such a great Redeemer?<br /><br />One of our most meaningful moments of Sing 2019 was joining with our friend, Fernando Ortega, as he led over 10,000 people in singing “My Worth Is Not in What I Own (At the Cross).”<br /><br />Download free sheet music &amp; mp3: <a rel="nofollow" target="blank" href="http://bit.ly/myworthdl">http://bit.ly/myworthdl</a><br /><br />Lyrics<br />My worth is not in what I own<br />Not in the strength of flesh and bone<br />But in the costly wounds of love<br />At the cross<br /><br />My worth is not in skill or name<br />In win or lose, in pride or shame<br />But in the blood of Christ that flowed<br />At the cross<br /><br />Refrain:<br />I rejoice in my Redeemer<br />Greatest Treasure,<br />Wellspring of my soul<br />I will trust in Him, no other.<br />My soul is satisfied in Him alone.<br /><br />As summer flowers we fade and die<br />Fame, youth and beauty hurry by<br />But life eternal calls to us<br />At the cross<br /><br />I will not boast in wealth or might<br />Or human wisdom’s fleeting light<br />But I will boast in knowing Christ<br />At the cross<br /><br />Refrain<br /><br />Two wonders here that I confess<br />My worth and my unworthiness<br />My value fixed – my ransom paid<br />At the cross<br /><br />WORDS AND MUSIC BY KEITH GETTY, KRISTYN GETTY AND GRAHAM KENDRICK<br /><br />© 2014 GETTY MUSIC PUBLISHING (BMI) / MAKEWAY MUSIC (ADMIN BY MUSICSERVIES.ORG){% endraw %}
