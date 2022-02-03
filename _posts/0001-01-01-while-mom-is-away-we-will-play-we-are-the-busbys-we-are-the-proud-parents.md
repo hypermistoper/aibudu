@@ -1,0 +1,15 @@
+---
+title: "While Mom is Away! We will play!"
+image: "https:\/\/i.ytimg.com\/vi\/1iKYDa7nUhQ\/hqdefault.jpg"
+vid_id: "1iKYDa7nUhQ"
+categories: "People-Blogs"
+tags: ["busby family vlog","busby quints","busby quintuplets"]
+date: "2022-02-03T05:21:17+03:00"
+vid_date: "2022-01-30T13:36:12Z"
+duration: "PT7M19S"
+viewcount: "77870"
+likeCount: "3533"
+dislikeCount: ""
+channel: "It's a Buzz World"
+---
+{% raw %}We are the Busbys! We are the proud parents of 6 girls. Big sister Blayke and the Only ALL GIRL QUINTUPLETS in the United States(Ava Lane, Olivia Marie, Hazel Grace, Riley Paige and <br /><br />Parker Kate)!<br /><br />Fan Mail:  PO BOX 1153<br /><br />                   Kemah, TX 77565<br /><br /><br /><br />MERCH!:  <a rel="nofollow" target="blank" href="https://shop.itsabuzzworld.com">https://shop.itsabuzzworld.com</a><br /><br />Purchase the Vitamins and Supplements that we stand behind:  <a rel="nofollow" target="blank" href="https://buzzworld.idlife.com">https://buzzworld.idlife.com</a><br /><br />Contact us if you are looking to earn residual income and want to be a part of our team! <br /><br />Email:  IDlife@itsabuzzworld.com<br /><br /><br /><br />Please SUBSCRIBE by clicking here:  <a rel="nofollow" target="blank" href="https://www.youtube.com/itsabuzzworld">https://www.youtube.com/itsabuzzworld</a><br /><br />It gives us the motivation to keep putting out these videos consistently! We are going to be shooting for a Weekly schedule on Wednesdays and saturdays!<br /><br />Also, Follow us on our blog and other Social Media: <br /><br /><a rel="nofollow" target="blank" href="https://www.itsabuzzworld.com">https://www.itsabuzzworld.com</a> <br /><br /><a rel="nofollow" target="blank" href="https://www.TLC.com/OutDaughtered">https://www.TLC.com/OutDaughtered</a> <br /><br />Stream any episode of OutDaughtered Here:<br /><br /><a rel="nofollow" target="blank" href="https://www.tlcgo.com/outdaughtered/">https://www.tlcgo.com/outdaughtered/</a><br /><br />Facebook: <br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/itsabuzzworld">https://www.facebook.com/itsabuzzworld</a><br /><br /><a rel="nofollow" target="blank" href="https://www.Facebook.com/officialAdambusby">https://www.Facebook.com/officialAdambusby</a><br /><br />Instagram:  <br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/itsabuzzworld">https://www.instagram.com/itsabuzzworld</a><br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/adambuzz">https://www.instagram.com/adambuzz</a><br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/dbusby">https://www.instagram.com/dbusby</a><br /><br />Twitter:  <br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/itsabuzzworld">https://twitter.com/itsabuzzworld</a><br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/adambuzz">https://twitter.com/adambuzz</a><br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/DanieBuzz">https://twitter.com/DanieBuzz</a>{% endraw %}
