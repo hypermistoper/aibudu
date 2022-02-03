@@ -1,0 +1,15 @@
+---
+title: "How to Remodel a Bathroom in 7 Days or less | Summary | PLAN LEARN BUILD"
+image: "https:\/\/i.ytimg.com\/vi\/eYpLp16avJ0\/hqdefault.jpg"
+vid_id: "eYpLp16avJ0"
+categories: "Howto-Style"
+tags: ["Remodel","Bathroom","Summary"]
+date: "2022-02-03T05:36:51+03:00"
+vid_date: "2022-02-03T00:21:44Z"
+duration: "PT6M13S"
+viewcount: "188"
+likeCount: "21"
+dislikeCount: ""
+channel: "Bathroom Remodeling Teacher"
+---
+{% raw %}Remodeling a bathroom is complicated! A lot of different skill sets are required: plumbing, electrical, drywall, tiling, painting, etc. Having a good game plan is key to getting things done efficiently. Check out my course 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇<br /><br />👉For help with your bathroom remodel check out my course - <a rel="nofollow" target="blank" href="https://www.bathroomremodelingteacher.com/tubshowercourse">https://www.bathroomremodelingteacher.com/tubshowercourse</a><br /><br />👉Free✅Checklist - How to remodel a bathroom in 7 days or less ✅ - <a rel="nofollow" target="blank" href="https://www.checkli.com/process/61f424535832a">https://www.checkli.com/process/61f424535832a</a><br /><br />My goal is to simplify bathroom remodeling and help your PLAN, LEARN, &amp; BUILD your dream bathroom<br /><br />👍Subscribe to my channel - helps this platform tremendously 🙏🙏<br /><br />☕Buy me a coffee☕ Supporting this channel will allow me to continue to help, educate &amp; improve🙏🙏🙏 <a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/bathroomteacher">https://www.buymeacoffee.com/bathroomteacher</a><br /><br />👉Visit my Amazon Storefront to view and purchase all of my recommended items to help you BUILD: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/bathroomremodelingteacher_">https://www.amazon.com/shop/bathroomremodelingteacher_</a><br /><br />👋Follow me on all other social media sites 👍 <br />🎄<a rel="nofollow" target="blank" href="https://linktr.ee/bathroomremodelingteacher🎄">https://linktr.ee/bathroomremodelingteacher🎄</a><br /><br />🎬Chapters<br /><br />0:00 Bathroom makeover - before and after <br />1:02 How to remodel a bathroom in 7 days - Day 1<br />1:41 How to remodel a bathroom in 7 days - Day 2<br />2:09 How to remodel a bathroom in 7 days - Day 3<br />2:54 How to remodel a bathroom in 7 days - Day4<br />3:22 How to remodel a bathroom in 7 days - Day 5<br />3:43 How to remodel a bathroom in 7 days - Day 6<br />4:06 How to remodel a bathroom in 7 days - Day 7<br />4:46 How to remodel a bathroom in 7 days - Online Course - Enroll today<br /><br />#shower #homeimprovement #diy #bathroomremodel<br /><br />* Bathroom Remodeling &amp; construction is inherently dangerous. Please use proper safety equipment and care with the use of tools and materials. For full disclaimer please review: <a rel="nofollow" target="blank" href="https://docs.google.com/document/d/1y1pmWqV3TOjaJgGFGVcyNj3DVB-Sg9ciyt9onC-A7YY/edit?usp=sharing">https://docs.google.com/document/d/1y1pmWqV3TOjaJgGFGVcyNj3DVB-Sg9ciyt9onC-A7YY/edit?usp=sharing</a>{% endraw %}
