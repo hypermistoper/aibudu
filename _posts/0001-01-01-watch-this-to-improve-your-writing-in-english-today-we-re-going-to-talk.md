@@ -1,0 +1,15 @@
+---
+title: "WATCH THIS to improve your writing in English"
+image: "https:\/\/i.ytimg.com\/vi\/HhNurDo0dWI\/hqdefault.jpg"
+vid_id: "HhNurDo0dWI"
+categories: "Education"
+tags: ["english","english language","learn english"]
+date: "2022-02-03T19:56:16+03:00"
+vid_date: "2022-02-02T13:00:14Z"
+duration: "PT11M42S"
+viewcount: "68434"
+likeCount: "5111"
+dislikeCount: ""
+channel: "linguamarina"
+---
+{% raw %}Today, we're going to talk about tips and tricks I use for writing in English that help me make my writing more structured and more understandable.<br />📝 Get your English text corrected instantly - <a rel="nofollow" target="blank" href="https://fluent.express/">https://fluent.express/</a><br /><br />Timestamps:<br />00:00 Intro<br />01:23 Make an outline<br />02:02 Know your target audience<br />03:06 Understand what you’re writing about<br />04:09 Keep it simple<br />04:35 Don’t overuse the verb “to be”<br />05:28 Keep it positive<br />06:07 Hook your readers at the beginning<br />06:54 Learn how to organize a paragraph<br />07:07 Learn transitions<br />07:19 Get rid of fillers<br />07:37 Don’t use very / really<br />07:57 Use data<br />08:31 Imitate<br />08:58 Show your personality<br />09:13 Don’t depend on autocorrect<br />09:57 Read your text out loud<br />10:33 Practice makes perfect<br /><br />⭐ JOIN THE MEMBERSHIP - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCAQg09FkoobmLquNNoO4ulg/join">https://www.youtube.com/channel/UCAQg09FkoobmLquNNoO4ulg/join</a><br />⭐ INSTAGRAM - @linguamarina - <a rel="nofollow" target="blank" href="https://www.instagram.com/linguamarina/">https://www.instagram.com/linguamarina/</a><br />⭐ LEARN LANGUAGES ABROAD - <a rel="nofollow" target="blank" href="https://linguatrip.com">https://linguatrip.com</a><br />⭐ ENROLL IN MY YOUTUBE COURSE - <a rel="nofollow" target="blank" href="https://bit.ly/3geScYM">https://bit.ly/3geScYM</a><br />⭐ DOWNLOAD MY ENGLISH WORKBOOK - <a rel="nofollow" target="blank" href="https://marinamogilko.co/workbook">https://marinamogilko.co/workbook</a><br /><br />📝 Get your English text corrected instantly - <a rel="nofollow" target="blank" href="https://fluent.express/">https://fluent.express/</a><br /><br />📷 FILMING EQUIPMENT<br />- Gear for making my 'talking head' videos - <a rel="nofollow" target="blank" href="https://kit.co/linguamarina/gear-for-youtube">https://kit.co/linguamarina/gear-for-youtube</a><br />- Gear for vlogging - <a rel="nofollow" target="blank" href="https://kit.co/linguamarina/current-vlogging-setup">https://kit.co/linguamarina/current-vlogging-setup</a><br /><br />🎈PROMOS<br />$20 TO SPEND ON AIRBNB - <a rel="nofollow" target="blank" href="http://bit.ly/2g0F87Q">http://bit.ly/2g0F87Q</a><br />$20 TO SPEND ON UBER - <a rel="nofollow" target="blank" href="http://ubr.to/2k1B89L">http://ubr.to/2k1B89L</a><br /><br />I use affiliate links whenever possible (if you purchase items listed above using my affiliate links, I will get a bonus){% endraw %}
