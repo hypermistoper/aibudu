@@ -1,0 +1,15 @@
+---
+title: "COMBATTRE avec une FAUX ! - EEL#29"
+image: "https:\/\/i.ytimg.com\/vi\/TUQpokkPERA\/hqdefault.jpg"
+vid_id: "TUQpokkPERA"
+categories: "Entertainment"
+tags: ["Faux","faux agricole","faucher avec une faux"]
+date: "2022-02-04T01:49:53+03:00"
+vid_date: "2022-02-02T15:22:32Z"
+duration: "PT10M26S"
+viewcount: "17846"
+likeCount: "2248"
+dislikeCount: ""
+channel: "Entrer En Lice"
+---
+{% raw %}Aujourd'hui, nous allons découvrir le passage du manuscrit de Paulus Hector Mair qui décrit comment se battre avec une Faux Agricole !<br /><br />Site de Thomas Rivière (Lecture et Combat) : <a rel="nofollow" target="blank" href="https://lectureetcombat.home.blog/">https://lectureetcombat.home.blog/</a><br /><br />La page Utip pour soutenir la chaîne youtube : <a rel="nofollow" target="blank" href="https://utip.io/entrerenlice">https://utip.io/entrerenlice</a><br />La boutique Tunetoo pour les produits dérivés : <a rel="nofollow" target="blank" href="https://entrerenlice.tunetoo.com/">https://entrerenlice.tunetoo.com/</a><br /><br />Mes différents réseaux : <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/entrerenlice">https://twitter.com/entrerenlice</a><br />TikTok : <a rel="nofollow" target="blank" href="https://www.tiktok.com/@entrerenlice">https://www.tiktok.com/@entrerenlice</a><br />Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/benji_entrerenlice">https://www.instagram.com/benji_entrerenlice</a><br />Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/EntrerEnLice">https://www.facebook.com/EntrerEnLice</a><br /><br />Le serveur Discord si vous voulez discuter avec la Team Entrer en Lice et les membres de la commu: <a rel="nofollow" target="blank" href="https://discord.gg/w2scHWB">https://discord.gg/w2scHWB</a><br /><br />Ecriture : Benji et Thomas Rivière<br />Montage : Benji<br />Démonstrations : Thomas Rivière<br /><br />Musique du Générique : Down the Slopes of Gergovia - Telperion<br /><br /><br />Source: <br />Page de Paulus Hector Mair sur le wiki officiel de la FFAMHE : <a rel="nofollow" target="blank" href="https://www.ffamhe.fr/wiki/Paulus_Hector_Mair">https://www.ffamhe.fr/wiki/Paulus_Hector_Mair</a><br /><br />Page et numérisation des traités de PHM sur le site officiel des manuscrits d'arts martiaux historique européens : <br /><a rel="nofollow" target="blank" href="https://wiktenauer.com/wiki/Paulus_Hector_Mair">https://wiktenauer.com/wiki/Paulus_Hector_Mair</a><br /><br />Travaux de Thomas Rivière sur le Jeu de la Faux selon PHM:<br /><a rel="nofollow" target="blank" href="https://lectureetcombat.home.blog/2019/08/17/etudier-la-faux-de-paulus-hector-mair/">https://lectureetcombat.home.blog/2019/08/17/etudier-la-faux-de-paulus-hector-mair/</a><br /><br /><br />Musiques :<br />Toutes les musiques viennent de ce site : <a rel="nofollow" target="blank" href="https://vfx.productioncrate.com/">https://vfx.productioncrate.com/</a><br /><br />#Faux #Combat #AMHE{% endraw %}
