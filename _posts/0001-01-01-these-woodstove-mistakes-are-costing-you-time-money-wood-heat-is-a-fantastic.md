@@ -1,0 +1,15 @@
+---
+title: "These WOODSTOVE MISTAKES Are Costing You Time & Money!"
+image: "https:\/\/i.ytimg.com\/vi\/sUeQpQCY2Zo\/hqdefault.jpg"
+vid_id: "sUeQpQCY2Zo"
+categories: "People-Blogs"
+tags: ["These WOODSTOVE MISTAKES Are Costing You Time & Money!","heating with firewood","wood burning stove"]
+date: "2022-02-03T22:36:38+03:00"
+vid_date: "2021-01-27T20:30:37Z"
+duration: "PT9M39S"
+viewcount: "650884"
+likeCount: "8480"
+dislikeCount: ""
+channel: "Jill Winger - Old Fashioned on Purpose"
+---
+{% raw %}Wood heat is a fantastic option whether you're a homesteader or not (especially as we're looking at upcoming increases in propane prices!). However, there are some common pitfalls that a lot of wood stove owners make that cost them time &amp; money. *CLICK SHOW MORE*<br /><br />How We Built Our Homemade Log Splitter: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=r5zYdxFv9iI&amp;t=12s">https://www.youtube.com/watch?v=r5zYdxFv9iI&amp;t=12s</a><br /><br />Heat-powered fan: <a rel="nofollow" target="blank" href="https://www.pntrac.com/t/TUJGRktKSEJGTEtHTE5CRktFSUhJ?url=https%3A%2F%2Fwww.lehmans.com%2Fproduct%2Fheat-powered-oscillating-stove-fan%2F">https://www.pntrac.com/t/TUJGRktKSEJGTEtHTE5CRktFSUhJ?url=https%3A%2F%2Fwww.lehmans.com%2Fproduct%2Fheat-powered-oscillating-stove-fan%2F</a><br /><br />👩‍🌾 Design YOUR Dream Homestead, No Matter Where You Live: <a rel="nofollow" target="blank" href="http://theprairiehomestead.com/layout">http://theprairiehomestead.com/layout</a><br /><br />✔️ Old-Fashioned on Purpose T-Shirts: <a rel="nofollow" target="blank" href="http://homesteadswag.com">http://homesteadswag.com</a><br /><br />✔️All my favorite homesteading supplies &amp; ingredients: <a rel="nofollow" target="blank" href="https://www.theprairiehomestead.com/shop">https://www.theprairiehomestead.com/shop</a><br /><br />🐓 LIVE OLD-FASHIONED ON PURPOSE:<br />+ The Prairie Homestead Cookbook: <a rel="nofollow" target="blank" href="http://homesteadcookbook.com">http://homesteadcookbook.com</a><br />+ Learn How to Cook Like a Homesteader: <a rel="nofollow" target="blank" href="http://heritagecookingclass.com">http://heritagecookingclass.com</a><br />+ Learn How to Can (Safely!): <a rel="nofollow" target="blank" href="http://learnhowtocan.com/learntocan3">http://learnhowtocan.com/learntocan3</a><br />+ Prairie Homestead Merch! <a rel="nofollow" target="blank" href="http://homesteadswag.com">http://homesteadswag.com</a><br />+ The Homestead Mercantile: <a rel="nofollow" target="blank" href="http://theprairiehomestead.com/shop">http://theprairiehomestead.com/shop</a><br /><br />🌎 OTHER PLACES WE HANG OUT:<br />+ The Old-Fashioned on Purpose Podcast: <a rel="nofollow" target="blank" href="http://oldfashionedonpurpose.com">http://oldfashionedonpurpose.com</a><br />+ The Prairie Homestead Blog: <a rel="nofollow" target="blank" href="http://theprairiehomestead.com">http://theprairiehomestead.com</a><br />+ Follow Along on Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/theprairiehomestead">http://instagram.com/theprairiehomestead</a>{% endraw %}
