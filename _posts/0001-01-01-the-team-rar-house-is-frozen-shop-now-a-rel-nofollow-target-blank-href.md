@@ -1,0 +1,15 @@
+---
+title: "The Team RAR House is Frozen..."
+image: "https:\/\/i.ytimg.com\/vi\/o8Bu6TQlMMo\/hqdefault.jpg"
+vid_id: "o8Bu6TQlMMo"
+categories: "Entertainment"
+tags: ["Carter Sharer","carter","sharer"]
+date: "2022-02-04T05:58:08+03:00"
+vid_date: "2022-02-03T16:54:19Z"
+duration: "PT10M14S"
+viewcount: "133434"
+likeCount: "4702"
+dislikeCount: ""
+channel: "Carter's Life"
+---
+{% raw %}🔥SHOP NOW!!🔥━► <a rel="nofollow" target="blank" href="https://www.teamrar.com/">https://www.teamrar.com/</a> <br /><br />In episode 172 of Carter’s Life, @Carter Sharer Carter Sharer and @TEAM RAR Team RAR (@Bailey Payne Bailey Payne, @Ryan Prunty Ryan Prunty, @Stove's Kitchen Stove’s Kitchen, @Lizzy Capri Lizzy Capri and Carter Sharer) get surprised when the new team rar house gets completely frozen. The whole new team rar house is covered in ice! Carer and Lizzy (carzy) also off road the mini van right by the backyard pond at the new $100,000,000 team rar house. If you enjoyed ep 172 of carters life comment #TeamRAR #CartersLife<br /><br />❇️ MORE EPIC VLOGS ❇️<br />The Team RAR House is Flooded (Cops Called)<br /><a rel="nofollow" target="blank" href="https://youtu.be/og-wzlSdB90">https://youtu.be/og-wzlSdB90</a><br />The Team RAR House is Destroyed...<br /><a rel="nofollow" target="blank" href="https://youtu.be/03QnOnsqTNQ">https://youtu.be/03QnOnsqTNQ</a><br />The New Team RAR House is Destroyed...<br /><a rel="nofollow" target="blank" href="https://youtu.be/NrUaxBcLMdA">https://youtu.be/NrUaxBcLMdA</a><br />-----------------------------------------------------------------------------------------------------------<br />📷INSTAGRAM → @CarterSharer <a rel="nofollow" target="blank" href="https://www.instagram.com/cartersharer/">https://www.instagram.com/cartersharer/</a><br />📷INSTAGRAM → @OfficalTeamRAR <a rel="nofollow" target="blank" href="https://www.instagram.com/officialtea...">https://www.instagram.com/officialtea...</a><br />📘FACEBOOK → CARTER SHARER OFFICIAL <a rel="nofollow" target="blank" href="https://goo.gl/WM7mBu">https://goo.gl/WM7mBu</a><br /><br />Subscribe to my channel! <a rel="nofollow" target="blank" href="https://goo.gl/XjjCA8">https://goo.gl/XjjCA8</a><br />-----------------------------------------------------------------------------------------------------------<br />Business Inquiries: carter@nightmedia.co<br /><br />WARNING: <br />This video is only for entertainment purposes. Do not attempt to recreate any of the acts in this video, as they may be dangerous if not done correctly, and could result in serious injury. If you rely on the information portrayed in this video, you assume the responsibility for the results. Have fun, but always think ahead, and remember that every project you try is at YOUR OWN RISK.<br /><br />This footage is property of Team RAR inc. and is not allowed to be repurposed without written consent from Team RAR inc. For any requests from media contact us at carter@nightmedia.co<br />The Team RAR House is Frozen...<br /><a rel="nofollow" target="blank" href="https://youtu.be/o8Bu6TQlMMo">https://youtu.be/o8Bu6TQlMMo</a>{% endraw %}
