@@ -1,0 +1,15 @@
+---
+title: "Philosophy as a Way of Life | Pierre Hadot"
+image: "https:\/\/i.ytimg.com\/vi\/Fz6DT4yTLC8\/hqdefault.jpg"
+vid_id: "Fz6DT4yTLC8"
+categories: "Education"
+tags: ["philosophy","wisdom","philosophy way of life"]
+date: "2022-02-04T21:28:53+03:00"
+vid_date: "2021-10-16T07:00:10Z"
+duration: "PT5M24S"
+viewcount: "1281"
+likeCount: "68"
+dislikeCount: ""
+channel: "School of Philosophy and Economic Science"
+---
+{% raw %}How can philosophy be a way of life? Pierre Hadot wrote about ancient Greek and Roman philosophers who approached philosophy with the goal and practice of wisdom. What does this mean for us today? <br /><br />From Hadot’s book, ‘Philosophy as a Way of Life’: <br />“Philosophy was a mode of existing-in-the-world, which had to be practised at each instant, and the goal of which was to transform the whole of the individual's life ... <br />Philosophy was a way of life, both in its exercise and effort to achieve wisdom, and in its goal, wisdom itself. For real wisdom does not merely cause us to know: it makes us &quot;be&quot; in a different way ... <br />Philosophy is a conversion, a transformation of one's way of being and living, and a quest for wisdom.” Ch 11 <br /><br />The School of Philosophy and Economic Science offers courses in practical philosophy and economics with justice as well as other subjects. It aims to approach philosophy in a practical way, encouraging students to apply philosophy in their lives. The School also introduces a mindfulness-type exercise leading eventually to mantra meditation. <br /><br />Enjoyed this video? Subscribe to our channel to watch more videos from the School of Philosophy and Economic Science. Also visit our website for information about courses, lectures and events. <br /><br />Connect with us: <br />Website: <a rel="nofollow" target="blank" href="https://schoolofphilosophy.org">https://schoolofphilosophy.org</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/2YchKAoSPES">https://bit.ly/2YchKAoSPES</a> <br />Twitter: @mandevilleplace <br />Join our Mailing list: bit.ly/3iCRB4A<br /><br /><br />Support the School: The School has many offerings free of charge or at a reduced fee. Any gift, however small, will help the School continue with its work. Make a Donation: <a rel="nofollow" target="blank" href="https://cafdonate.cafonline.org/18466">https://cafdonate.cafonline.org/18466</a><br /><br /><br />© School of Philosophy and Economic Science.<br /><br />The School of Philosophy and Economic Science <br />11-13 Mandeville Pl, London W1U 3AJ <br />020 3287 1443 <br /><a rel="nofollow" target="blank" href="https://goo.gl/maps/Vv3kLCGNoVRDTtqe6">https://goo.gl/maps/Vv3kLCGNoVRDTtqe6</a> <br />Charity numbers: 313115 and SC039950<br /><br />Photo credits: Sorbonne: xiquinhosilva from Cacau, <br />College de France: Celette<br /><br />=============<br /><br />#philosophyasawayoflife #pierrehadot #philosophyasawayoflifehadot<br /><br />You may find this video also relates to ancient philosophy, being, transformation of being, spiritual practice, spirituality and practice.{% endraw %}
