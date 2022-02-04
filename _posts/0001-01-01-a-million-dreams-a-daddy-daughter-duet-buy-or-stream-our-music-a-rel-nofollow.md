@@ -1,0 +1,15 @@
+---
+title: "A Million Dreams - A Daddy Daughter Duet"
+image: "https:\/\/i.ytimg.com\/vi\/H_CxiftXJiQ\/hqdefault.jpg"
+vid_id: "H_CxiftXJiQ"
+categories: "Music"
+tags: ["duet","daddy daughter","a million dreams"]
+date: "2022-02-04T05:26:46+03:00"
+vid_date: "2020-03-09T04:51:25Z"
+duration: "PT4M43S"
+viewcount: "7006096"
+likeCount: "297353"
+dislikeCount: ""
+channel: "Mat and Savanna Shaw"
+---
+{% raw %}🎵 Buy or Stream our music: <a rel="nofollow" target="blank" href="https://matandsavanna.link/music">https://matandsavanna.link/music</a><br />🎫  See us LIVE IN CONCERT: <a rel="nofollow" target="blank" href="https://matandsavanna.link/shows">https://matandsavanna.link/shows</a><br />► Subscribe to our channel: <a rel="nofollow" target="blank" href="https://matandsavanna.link/YouTube">https://matandsavanna.link/YouTube</a><br />★ Join TheShawFam for early access, BTS content, and more: <a rel="nofollow" target="blank" href="https://matandsavanna.link/TheShawFam">https://matandsavanna.link/TheShawFam</a><br /><br />Savanna is unique. A 15 yr old without social media, until last week when she asked if she could start a singing Instagram account to keep in touch with her choir friends. She asked if we could record “The Prayer” together for her first post. <br /><br />Never in “a million dreams” would we have expected it to become what it has. I am so beyond grateful for all the kind words, the support in sharing our video, and mostly for the time shared together with my daughter. Thank you, thank you! <br /><br />Spotify: <a rel="nofollow" target="blank" href="https://matandsavanna.link/Spotify">https://matandsavanna.link/Spotify</a><br />iTunes/Apple Music: <a rel="nofollow" target="blank" href="https://matandsavanna.link/AppleMusic">https://matandsavanna.link/AppleMusic</a><br />Buy CDs: <a rel="nofollow" target="blank" href="https://matandsavanna.link/CDs">https://matandsavanna.link/CDs</a><br />Other Ways to Listen: <a rel="nofollow" target="blank" href="https://matandsavanna.link/music">https://matandsavanna.link/music</a><br />Sheet Music: <a rel="nofollow" target="blank" href="https://matandsavanna.link/sheet-music">https://matandsavanna.link/sheet-music</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://matandsavanna.link/Facebook">https://matandsavanna.link/Facebook</a><br />Instagram: <a rel="nofollow" target="blank" href="https://matandsavanna.link/Instagram">https://matandsavanna.link/Instagram</a><br />Twitter: <a rel="nofollow" target="blank" href="https://matandsavanna.link/Twitter">https://matandsavanna.link/Twitter</a><br />YouTube: <a rel="nofollow" target="blank" href="https://matandsavanna.link/YouTube">https://matandsavanna.link/YouTube</a><br />Website: <a rel="nofollow" target="blank" href="https://matandsavanna.link/website">https://matandsavanna.link/website</a><br /><br />#ShareHopeSpreadJoy<br />#DaddyDaughterDuet  #DaddyDaughterDuo<br />#FatherDaughterDuo  #FatherDaughterDuet<br /><br />Piano by www.youtube.com/sing2piano{% endraw %}
