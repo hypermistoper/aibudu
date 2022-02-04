@@ -1,0 +1,15 @@
+---
+title: "Sam Fender - Long Way Off (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/YboxUzRD29M\/hqdefault.jpg"
+vid_id: "YboxUzRD29M"
+categories: "Music"
+tags: ["Epic Sound","Sam fender","Long Way Off"]
+date: "2022-02-04T20:15:39+03:00"
+vid_date: "2021-10-08T04:00:35Z"
+duration: "PT3M50S"
+viewcount: "21221"
+likeCount: "304"
+dislikeCount: ""
+channel: "Epic Sound"
+---
+{% raw %}Subscribe and press (🔔) to join the Notification Squad and stay updated with new uploads <br /><br />Follow Sam Fender:<br /><a rel="nofollow" target="blank" href="https://SamFender.lnk.to/InstaID">https://SamFender.lnk.to/InstaID</a><br /><a rel="nofollow" target="blank" href="https://SamFender.lnk.to/FBID">https://SamFender.lnk.to/FBID</a><br /><a rel="nofollow" target="blank" href="https://SamFender.lnk.to/TwitterID">https://SamFender.lnk.to/TwitterID</a><br /><a rel="nofollow" target="blank" href="https://SamFender.lnk.to/SpotifyID">https://SamFender.lnk.to/SpotifyID</a><br /><br />📷 Wallpaper: <a rel="nofollow" target="blank" href="https://unsplash.com">https://unsplash.com</a><br /><br />Lyrics:<br /><br />[Verse 1]<br />I've seen enough of it<br />The sides are all cemented<br />Their incentives look the same<br />Are they vetted in the same ways?<br />As the little guy puts blood and tears<br />Into pushing deadweight on the capital steps<br />Bleeding out for a caricature of a '50s salesman<br />Hare checklist, tickin' every box<br />Dead for what?<br /><br />[Chorus]<br />Standing on the side, I never was the silent type<br />All the endless grey conundrums that are painted black and white<br />I heard a hundred million voices sound the same both left and right<br />We're still a long way off<br />We're still a long way off<br /><br />[Verse 2]<br />Some get along with it<br />They drag around from town to town<br />With a pretty lie that hoodwinked many of my loved ones<br />And I owe it to my folks for giving me an understanding of a world that shot my people down<br />The hungry and divided play into the hands of the man who put them there<br />So it goes<br />[Chorus]<br />Standing on the side, I never was the silent type<br />All the endless grey conundrums that are painted black and white<br />I heard a hundred million voices sound the same both left and right<br />We're still a long way off<br />We're still a long way off<br />We're still a long way off<br /><br />[Chorus]<br />Standing on the side, I never was the silent type<br />All the endless grey conundrums that are painted black and white<br />I heard a hundred million voices sound the same both left and right<br />We're still a long way off<br />We're still a long way off<br />We're still a long way off<br /><br />Tags<br />Sam fender, Long Way Off, lyrics, sam fender Long Way Off, Long Way Off Sam fender, Long Way Off lyrics, Sam fender Long Way Off lyrics, Sam fender lyrics Long Way Off, Long Way Off lyrics Sam fender, Long Way Off Sam fender lyrics, lyrics Sam fender Long Way Off, lyrics Long Way Off Sam fender{% endraw %}
