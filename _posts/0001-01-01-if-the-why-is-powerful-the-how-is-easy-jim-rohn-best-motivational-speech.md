@@ -1,0 +1,15 @@
+---
+title: "IF THE WHY IS POWERFUL THE HOW IS EASY -Jim Rohn | best Motivational speech 2020 jim rohn motivation"
+image: "https:\/\/i.ytimg.com\/vi\/w31Rq1FKsF4\/hqdefault.jpg"
+vid_id: "w31Rq1FKsF4"
+categories: "People-Blogs"
+tags: ["jim rohn","jim rohn motivation","motivational speech"]
+date: "2022-02-04T11:41:34+03:00"
+vid_date: "2020-06-01T11:32:10Z"
+duration: "PT11M5S"
+viewcount: "209089"
+likeCount: "5249"
+dislikeCount: ""
+channel: "Healthy Mindset"
+---
+{% raw %}I just hope this video will be helpful for somebody.<br />Thank you and don't forget to share,to motivate and inspire another people!<br /><br /><br />⚠️  we want to mention that this video is an original content of Healthy Mindset YouTube channel, it is a result of hard work to create a content that motivates and lifts people's spirits up ⚠️<br /><br />take full reponsibility | no excuses<br />It's Not what happens it's what you do about it<br />“ Don’t wish for less problems, wish for more skills. Don’t wish for less challenge, wish for more wisdom.”<br /> “If you are not willing to risk the unusual, you will have to settle for the ordinary.”<br /><br />✔️Follow us on social media for more motivational content:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/HENMotivatio...">https://www.facebook.com/HENMotivatio...</a><br /><br /><br />*CREDIT<br /><br />Jim Rohn<br />Visit Jim Rohn's websites:<br /><a rel="nofollow" target="blank" href="https://www.jimrohn.com/">https://www.jimrohn.com/</a><br /><a rel="nofollow" target="blank" href="https://store.jimrohn.com/">https://store.jimrohn.com/</a><br /> <br />Follow Jim Rohn @:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/OfficialJimR...">https://www.facebook.com/OfficialJimR...</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/OfficialJimRohn">https://twitter.com/OfficialJimRohn</a><br /><br /> All of the footage used in this video are copyright free and available on the following links:<br /><a rel="nofollow" target="blank" href="https://www.pexels.com">https://www.pexels.com</a><br /><br />Music by: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=3V-pYCGx0C4">https://www.youtube.com/watch?v=3V-pYCGx0C4</a><br /><br />#motivation #jimrohn<br /><br />FAIR-USE COPYRIGHT DISCLAIMER<br /><br />* Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.<br />1)This video has no negative impact on the original works (It would actually be positive for them)<br />2)This video is also for teaching purposes.<br />3)It is transformative in nature.<br />4)I only used bits and pieces of videos to get the point across where necessary.<br /><br /><br />****we have full rights to use speech, music and visuals in this****{% endraw %}
