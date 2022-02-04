@@ -1,0 +1,15 @@
+---
+title: "The Curious Case of Cliff Canyon (Marwan Habib) - DO NOT WORRY #45"
+image: "https:\/\/i.ytimg.com\/vi\/Xq-Frx97bAY\/hqdefault.jpg"
+vid_id: "Xq-Frx97bAY"
+categories: "Comedy"
+tags: ["do not worry","podcast","pod"]
+date: "2022-02-04T10:48:51+03:00"
+vid_date: "2022-02-03T16:59:02Z"
+duration: "PT39M51S"
+viewcount: "1875"
+likeCount: "144"
+dislikeCount: ""
+channel: "Anthony Sargon"
+---
+{% raw %}On Episode 45 of DO NOT WORRY, Anthony and Elijah are finally reacting to Cliff Canyon (Marwan Habib's American Alter Ego), as well as a recent TikTok Live where Chada got bullied by 3 random fools. There's also this influencer lady Sandra Rizk who dropped a hilariously classist and tone-deaf IG story. Anthony and Elijah are also testing out their Arabic-reading skills with some classic children's books!<br /><br />Coming to you from the heart of Beirut, Lebanon, DO NOT WORRY is a comedy podcast hosted by Anthony Sargon. In a country on the verge of complete economic and political collapse, let's take a few moments to discuss movies, TV, pop culture, influencer cringe, and life in Beirut.<br /><br />Consider Supporting Me on Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/anthonysargon">https://www.patreon.com/anthonysargon</a><br /><br />Join Our Discord:<br /><a rel="nofollow" target="blank" href="https://discord.com/invite/uEBdCGnzfr">https://discord.com/invite/uEBdCGnzfr</a><br /><br />Follow Anthony on:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/anthonysargon">https://www.instagram.com/anthonysargon</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/anthonysargon">https://twitter.com/anthonysargon</a><br /><br />Follow DO NOT WORRY on:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/donotworrypod">https://www.instagram.com/donotworrypod</a><br /><br />Listen to DO NOT WORRY on:<br />SPOTIFY: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/3FuOD77qcZehXPwqE6z76k">https://open.spotify.com/show/3FuOD77qcZehXPwqE6z76k</a><br />ANGHAMI: <a rel="nofollow" target="blank" href="https://play.anghami.com/album/1017350772">https://play.anghami.com/album/1017350772</a><br />APPLE PODCASTS: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/do-not-worry/id1550451990">https://podcasts.apple.com/us/podcast/do-not-worry/id1550451990</a><br />DEEZER: <a rel="nofollow" target="blank" href="https://deezer.com/show/2245632">https://deezer.com/show/2245632</a><br />GOOGLE PODCASTS: <a rel="nofollow" target="blank" href="https://www.google.com/podcasts?feed=aHR0cHM6Ly9mZWVkLnBvZGJlYW4uY29tL2Rvbm90d29ycnkvZmVlZC54bWw%3D">https://www.google.com/podcasts?feed=aHR0cHM6Ly9mZWVkLnBvZGJlYW4uY29tL2Rvbm90d29ycnkvZmVlZC54bWw%3D</a><br /><br />Timecodes:<br />0:00 - Intro<br />2:50 - Thank You Guys<br />6:41 - Elijah and I Read Arabic Children's Books<br />11:37 - Sandra Rizk Hates Poor People<br />15:54 - Chada Gets Bullied On TikTok Live<br />23:01 - We React to Cliff Canyon<br />37:36 - Outro<br />39:15 - Patreon Credits{% endraw %}
