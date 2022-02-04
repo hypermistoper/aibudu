@@ -1,0 +1,15 @@
+---
+title: "GET ORGANIZED WITHOUT SPENDING MONEY\/\/ Don’t Waste Your Money, Simple Ways to Get Organized for FREE"
+image: "https:\/\/i.ytimg.com\/vi\/CZWYbN64e8g\/hqdefault.jpg"
+vid_id: "CZWYbN64e8g"
+categories: "People-Blogs"
+tags: ["ORGANIZED","WITHOUT","SPENDING"]
+date: "2022-02-04T20:31:11+03:00"
+vid_date: "2022-01-29T16:00:05Z"
+duration: "PT9M52S"
+viewcount: "5984"
+likeCount: "738"
+dislikeCount: ""
+channel: "Sophisticated Organization"
+---
+{% raw %}While I love to up my organizing game with fancy bins and baskets I want to show you that you can get organized WITHOUT spending money! Don't waste your money, use these simple ways to get organized for free!<br /><br />xoxo Sophie <br /><br />*CONNECT WITH ME*<br />Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/2zmXIql">https://bit.ly/2zmXIql</a><br />Email (business inquiries): sophisticatedorganization@gmail.com<br />My Website: <a rel="nofollow" target="blank" href="https://www.sophisticatedorganization.com">https://www.sophisticatedorganization.com</a><br /><br />*THE SOPHISTICATED SHOP*<br />Daily and weekly planner pads, custom labels for organizing, cleaning supplies, printables and more! <br /><a rel="nofollow" target="blank" href="https://www.sophisticatedorganization.com/shop">https://www.sophisticatedorganization.com/shop</a><br /><br />*HELPFUL LINKS*<br />Sophisticated Declutter E-Book: <a rel="nofollow" target="blank" href="https://www.sophisticatedorganization.com/product-page/sophisticated-declutter-e-book">https://www.sophisticatedorganization.com/product-page/sophisticated-declutter-e-book</a><br /><br />Looking for more of my favorites? Check my Amazon Store: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/sophisticatedorganization">https://www.amazon.com/shop/sophisticatedorganization</a><br /><br />*PO BOX*<br />Sophisticated Organization<br />139 S 144th St., PO Box 253<br />Boys Town, NE 68010<br /><br />*VIDEO EQUIPMENT*<br />Camera: <a rel="nofollow" target="blank" href="https://amzn.to/2NdncNK">https://amzn.to/2NdncNK</a><br />Tripod: <a rel="nofollow" target="blank" href="https://amzn.to/3cTtNaF">https://amzn.to/3cTtNaF</a><br />Microphone: <a rel="nofollow" target="blank" href="https://amzn.to/36Xz9Op">https://amzn.to/36Xz9Op</a><br />Microphone Pop Filter: <a rel="nofollow" target="blank" href="https://amzn.to/36WjSNJ">https://amzn.to/36WjSNJ</a><br />SD Card: <a rel="nofollow" target="blank" href="https://amzn.to/2MO2pjF">https://amzn.to/2MO2pjF</a><br />External Harddrive: <a rel="nofollow" target="blank" href="https://amzn.to/3tI0X2S">https://amzn.to/3tI0X2S</a><br /> <br />*ABOUT ME*<br />Hi! I'm Sophie. I live in Omaha, Nebraska and I share videos on cleaning, organizing, motivation, productivity, and more! Subscribe to my channel and click the bell so you never miss a video!<br /><br />*DISCLAIMER*<br />Please note some of the links may be affiliate links. This means if you click on the link and purchase the item, I will receive a small affiliate commission at no extra cost to you. All opinions remain my own.{% endraw %}
