@@ -1,0 +1,15 @@
+---
+title: "How to Know You Get a Good Deal for Your Plumbing"
+image: "https:\/\/i.ytimg.com\/vi\/bFm4MmhctcA\/hqdefault.jpg"
+vid_id: "bFm4MmhctcA"
+categories: "Howto-Style"
+tags: ["Beautiful","Plumbing","Beautiful Plumbing"]
+date: "2022-02-06T10:15:02+03:00"
+vid_date: "2020-12-26T00:45:02Z"
+duration: "PT5M35S"
+viewcount: "1152"
+likeCount: "31"
+dislikeCount: ""
+channel: "Beautiful Plumbing"
+---
+{% raw %}How do you know you have gotten a good deal? Especially for a plumbing or gas job? Here are 3 things ☝️<br /><br />If you need help with this, give us a call 📞 on 1300 454 222. We'll be happy to help 🔧 Or contact us online via:<br /><br />Website: <a rel="nofollow" target="blank" href="https://www.beautifulplumbing.com.au">https://www.beautifulplumbing.com.au</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/BeautifulPlumbing/">https://www.facebook.com/BeautifulPlumbing/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/beautiful.plumbing/">https://www.instagram.com/beautiful.plumbing/</a> <br /><br />SUBSCRIBE to be updated about our latest videos: <a rel="nofollow" target="blank" href="https://tiny.cc/beautifulsubscribe">https://tiny.cc/beautifulsubscribe</a><br />OR<br />Check out our Community Tab for other regular updates and posts! ❤️ <a rel="nofollow" target="blank" href="http://tiny.cc/BeautifulCommunity">http://tiny.cc/BeautifulCommunity</a><br /><br />We are all about making helpful videos to help you maintain your beautiful homes 🏡 You can find our videos in playlists based on categories. Here are the top 5 👍<br /><br />1. For newcomers <a rel="nofollow" target="blank" href="https://tiny.cc/newbieplaylist">https://tiny.cc/newbieplaylist</a><br />2. #Blockage <a rel="nofollow" target="blank" href="https://tiny.cc/blockage">https://tiny.cc/blockage</a><br />3. #HotWaterSystem <a rel="nofollow" target="blank" href="https://tiny.cc/hwsplaylist">https://tiny.cc/hwsplaylist</a><br />4. #Toilet <a rel="nofollow" target="blank" href="https://tiny.cc/toiletplaylist">https://tiny.cc/toiletplaylist</a><br />5. #Gas Issues <a rel="nofollow" target="blank" href="https://tiny.cc/gasplaylist">https://tiny.cc/gasplaylist</a><br />6. More playlists: <a rel="nofollow" target="blank" href="https://tiny.cc/beautifulplaylists">https://tiny.cc/beautifulplaylists</a><br /><br />If this video has been helpful for you, or if you have any questions or even suggestions for our next videos, COMMENT BELOW. We'd love to hear from you! 👂<br /><br />We couldn't have done this without your support. So please WATCH, LIKE, COMMENT, SUBSCRIBE, and SHARE! We'd really appreciate it 😍<br /><br />This work is licensed under the Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License. To view a copy of this license, visit <a rel="nofollow" target="blank" href="http://creativecommons.org/licenses/by-nc-nd/4.0/.">http://creativecommons.org/licenses/by-nc-nd/4.0/.</a>{% endraw %}
