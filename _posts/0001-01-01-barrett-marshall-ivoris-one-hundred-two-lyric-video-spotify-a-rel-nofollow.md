@@ -1,0 +1,15 @@
+---
+title: "Barrett Marshall & Ivoris - One Hundred & Two (Lyric Video)"
+image: "https:\/\/i.ytimg.com\/vi\/jzz6RgnMXXs\/hqdefault.jpg"
+vid_id: "jzz6RgnMXXs"
+categories: "Music"
+tags: ["chill beats","pop music","new jack swing"]
+date: "2022-02-08T00:38:12+03:00"
+vid_date: "2021-07-08T15:00:17Z"
+duration: "PT3M12S"
+viewcount: "4173"
+likeCount: "113"
+dislikeCount: ""
+channel: "Barrett Marshall"
+---
+{% raw %}Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/album/4sgmWFqEZuep0VqdNtoKHl">https://open.spotify.com/album/4sgmWFqEZuep0VqdNtoKHl</a><br />Apple Music: <a rel="nofollow" target="blank" href="https://music.apple.com/us/album/one-hundred-two-single/1493147059?uo=4">https://music.apple.com/us/album/one-hundred-two-single/1493147059?uo=4</a><br /><br />Other: <a rel="nofollow" target="blank" href="https://distrokid.com/hyperfollow/barrettmarshallandivoris/one-hundred--two">https://distrokid.com/hyperfollow/barrettmarshallandivoris/one-hundred--two</a><br /><br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/barrett_marshall/">https://www.instagram.com/barrett_marshall/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ivorismusic/">https://www.instagram.com/ivorismusic/</a><br /><br /><br />it's only been hours since you've gone but<br />feelin' like forever to me <br />you've got strange super powers, honey<br />cause I never ever want you to leave<br /><br />and I just wonder what you do<br />when I'm not waking next to you<br />already missing how you move<br />when you're right here with me<br /><br />I wonder what you do<br />wish I was waking next to you<br />already missing how you move<br />and the truth is, baby<br /><br />I just wanna spend it with you<br />til we're one hundred and two<br />never lonely, when you hold me<br />we could be beautiful<br /><br />I just wanna lay by your side<br />and let our stories collide<br />cause we could be something lovely<br />we could be beautiful<br /><br />our tensions were high when you left<br />the distance almost broke all our plans<br />ooh ever since I realized I could spend forever<br />memorizing your hands<br /><br />and I just wonder what you do<br />when I'm not waking next to you<br />already missing how you move<br />just stay right here with me<br /><br />I just wanna spend it with you<br />til we're one hundred and two<br />never lonely when you hold me<br />we could be beautiful<br /><br />I just wanna lay by your side<br />and let our stories collide<br />cause we could be something lovely<br />we could be beautiful<br /><br />spend it, spend it with me<br />every, every minute<br />we could be beautiful<br />just so sensational<br /><br />I just wanna spend it with you<br />til we're one hundred and two<br />never lonely when you hold me<br />we could be beautiful<br /><br />I just wanna lay by your side<br />and let our stories collide<br />cause we could be something lovely<br />we could be beautiful<br /><br />spend it, spend it with me<br />every, every minute<br />we could be beautiful<br />just so sensational{% endraw %}
