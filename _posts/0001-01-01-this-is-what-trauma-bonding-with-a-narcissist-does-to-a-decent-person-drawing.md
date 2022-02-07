@@ -1,0 +1,15 @@
+---
+title: "THIS Is What Trauma Bonding With A Narcissist Does To A Decent Person"
+image: "https:\/\/i.ytimg.com\/vi\/7tPaTyy1zgM\/hqdefault.jpg"
+vid_id: "7tPaTyy1zgM"
+categories: "People-Blogs"
+tags: ["covert narcissist","malignant narcissist","trauma bonding"]
+date: "2022-02-07T19:22:53+03:00"
+vid_date: "2022-02-07T16:00:12Z"
+duration: "PT13M50S"
+viewcount: "1283"
+likeCount: "437"
+dislikeCount: ""
+channel: "Surviving Narcissism"
+---
+{% raw %}Drawing from specific comments from viewers and patients, Dr. Les Carter describes how trauma bonding with a malignant narcissist drains an otherwise decent person.  He then discusses how the bonds can be broken and how you can reclaim your self respect as you move away from the hyper-control of the narcissist.<br /><br />Sign up for Dr. Carter's course Free to Be HERE: <br /><a rel="nofollow" target="blank" href="https://survivingnarcissism.tv/go/freetobeyoutube/">https://survivingnarcissism.tv/go/freetobeyoutube/</a><br />Use the following coupon code to get 20% off Free To Be: FTBYouTube20<br /><br />Dr. Carter's new course:  This Is Me: Setting Boundaries With The Controllers In Your Life:   <a rel="nofollow" target="blank" href="https://survivingnarcissism.tv/this-is-me">https://survivingnarcissism.tv/this-is-me</a><br /><br />Join our Community HERE: <a rel="nofollow" target="blank" href="https://survivingnarcissism.tv/subscribe/">https://survivingnarcissism.tv/subscribe/</a><br /><br />Dr. Les Carter is a best selling author and therapist who has semi-retired to Waco, Tx. In the past 40+ years he has conducted more than 65,000 counseling sessions and many workshops and seminars.  He specializes in anger management and narcissistic personality disorder.<br /><br />If you are interested in online therapy, Dr. Carter has a sponsor who can assist.  As the need is there, please seek the help you deserve:  <a rel="nofollow" target="blank" href="https://betterhelp.com/drcarter">https://betterhelp.com/drcarter</a><br /><br />We receive commissions on referrals to BetterHelp. We only recommend services that we trust.<br /><br />Sign up for our email list and check out other videos, articles, webinars, quizzes, and more at our website:  <a rel="nofollow" target="blank" href="http://survivingnarcissism.tv">http://survivingnarcissism.tv</a><br />Twitter:  Surviving Narcissism @SNarcissism101<br />Instagram:  @survivingnarcissism101<br />Tik Tok:  <a rel="nofollow" target="blank" href="https://www.tiktok.com/@survivingnarcissism101?lang=en">https://www.tiktok.com/@survivingnarcissism101?lang=en</a><br /><br />Dr. Carter's personal website:  <a rel="nofollow" target="blank" href="http://drlescarter.com/">http://drlescarter.com/</a><br />Dr. Carter's other YouTube channel:  <a rel="nofollow" target="blank" href="https://www.youtube.com/c/drlescarter">https://www.youtube.com/c/drlescarter</a><br />Bookstore: <a rel="nofollow" target="blank" href="https://survivingnarcissism.tv/books-on-narcissism-surviving-narcissism/">https://survivingnarcissism.tv/books-on-narcissism-surviving-narcissism/</a>{% endraw %}
