@@ -1,0 +1,15 @@
+---
+title: "Insulated Tent Camping on a Frozen Lake for 48 hrs"
+image: "https:\/\/i.ytimg.com\/vi\/JPUB_NXWsL4\/hqdefault.jpg"
+vid_id: "JPUB_NXWsL4"
+categories: "Entertainment"
+tags: ["Insulated","Camping","Frozen"]
+date: "2022-02-08T18:55:01+03:00"
+vid_date: "2022-02-07T22:55:34Z"
+duration: "PT25M16S"
+viewcount: "336733"
+likeCount: "15387"
+dislikeCount: ""
+channel: "Mav"
+---
+{% raw %}<a rel="nofollow" target="blank" href="https://mavmadeit.com/">https://mavmadeit.com/</a><br /><br />My Discord- <a rel="nofollow" target="blank" href="https://discord.gg/GJY7YeY">https://discord.gg/GJY7YeY</a><br />My Instagram- <a rel="nofollow" target="blank" href="http://bit.ly/Mavgram">http://bit.ly/Mavgram</a><br />Snapchat <a rel="nofollow" target="blank" href="https://www.snapchat.com/add/mavrikjoos">https://www.snapchat.com/add/mavrikjoos</a><br />Twitter @mavrikjoos<br /><br />Send Fan Mail to <br /><br />Mavrik Joos<br />PO Box 232<br />Duluth MN 55801<br /><br /><br />My Top Truck Accessories-<br />Lift-Assist- <a rel="nofollow" target="blank" href="https://amzn.to/2tObIa1">https://amzn.to/2tObIa1</a><br />Fishing Rod Holder Kit (need to buy PVC)- <a rel="nofollow" target="blank" href="https://amzn.to/2Sumdr6">https://amzn.to/2Sumdr6</a><br />Traction Recovery Boards- <a rel="nofollow" target="blank" href="https://amzn.to/37gC95Y">https://amzn.to/37gC95Y</a><br />F150 Back Seat release- <a rel="nofollow" target="blank" href="https://amzn.to/31HxuZy">https://amzn.to/31HxuZy</a><br />Roof Basket- <a rel="nofollow" target="blank" href="https://amzn.to/39rRGRW">https://amzn.to/39rRGRW</a><br />Solar Panel- <a rel="nofollow" target="blank" href="https://amzn.to/38idWgV">https://amzn.to/38idWgV</a><br /><br /><br />OOH you campy huh?<br />Mattress- <a rel="nofollow" target="blank" href="https://amzn.to/2OM12Qu">https://amzn.to/2OM12Qu</a><br />Fridge- <a rel="nofollow" target="blank" href="https://amzn.to/2HeQAwG">https://amzn.to/2HeQAwG</a><br />AGM Marine Battery- <a rel="nofollow" target="blank" href="https://amzn.to/38kdpuG">https://amzn.to/38kdpuG</a><br />Portable solar- <a rel="nofollow" target="blank" href="https://amzn.to/2UFgrpv">https://amzn.to/2UFgrpv</a><br />Carbon Monoxide Detector- <a rel="nofollow" target="blank" href="https://amzn.to/2vmY6mA">https://amzn.to/2vmY6mA</a><br /><br /><br />My Filming Kit<br />Travel/Vlog Small Camera- <a rel="nofollow" target="blank" href="https://amzn.to/2vjQTUd">https://amzn.to/2vjQTUd</a><br />Photo/Main Camera- <a rel="nofollow" target="blank" href="https://amzn.to/2HaWKhp">https://amzn.to/2HaWKhp</a><br />Go Pro- <a rel="nofollow" target="blank" href="https://amzn.to/31OE8gK">https://amzn.to/31OE8gK</a><br />Main cam mic - <a rel="nofollow" target="blank" href="https://amzn.to/2UGVnPh">https://amzn.to/2UGVnPh</a><br />Mini Cam/Gopro Mic- <a rel="nofollow" target="blank" href="https://amzn.to/2UFX6nY">https://amzn.to/2UFX6nY</a><br />Peak Design Camera Strap - <a rel="nofollow" target="blank" href="https://amzn.to/2uBvx4H">https://amzn.to/2uBvx4H</a>{% endraw %}
