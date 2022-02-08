@@ -1,0 +1,15 @@
+---
+title: "Tough Interview Questions: Is There Anything Else You Would Like to Add? | JobSearchTV.com"
+image: "https:\/\/i.ytimg.com\/vi\/9eF5fOVvE8A\/hqdefault.jpg"
+vid_id: "9eF5fOVvE8A"
+categories: "Howto-Style"
+tags: ["JobSearchTV.com","Tough Interview Questions","interview questions"]
+date: "2022-02-08T07:35:16+03:00"
+vid_date: "2018-03-26T11:59:09Z"
+duration: "PT5M12S"
+viewcount: "1594"
+likeCount: "26"
+dislikeCount: ""
+channel: "Jeff Altman, The Big Game Hunter"
+---
+{% raw %}In this video, I explain how to answer this golden opportunity of a question.<br /><br />ABOUT JEFF ALTMAN, THE BIG GAME HUNTER<br />Jeff Altman, The Big Game Hunter is a coach who worked as a recruiter for what seems like one hundred years. His work involves career coaching, all as well as executive job search coaching, job coaching and interview coaching. He is the host of “No BS Job Search Advice Radio,” the #1 podcast in iTunes for job search with more than 1900 episodes and is a member of The Forbes Coaches Council.<br /><br />Are you interested in 1:1 coaching, interview coaching, advice about networking more effectively, how to negotiate your offer or leadership coaching? Message me at my website, www.TheBigGameHunter.us<br /><br />If you have a quick question for me, you can get it answered with a 3-5 minute video at <a rel="nofollow" target="blank" href="https://thebiggamehunter.us/videoanswer.">https://thebiggamehunter.us/videoanswer.</a> Want to do it live? <a rel="nofollow" target="blank" href="https://thebiggamehunter.us/live">https://thebiggamehunter.us/live</a><br /><br />JobSearchCoachingHQ.com offers great advice for job hunters—videos, my books and guides to job hunting, podcasts, articles, PLUS a community for you to ask questions of PLUS the ability to ask me questions where I function as your ally with no conflict of interest answering your questions.  <br /><br />Join And Attend My Classes On Skillshare <a rel="nofollow" target="blank" href="https://thebiggamehunter.us/Skillshare">https://thebiggamehunter.us/Skillshare</a><br /><br />Join Career Angles on Facebook and receive support, ideas and advice in your current career and job.<br /><br />Connect with me on LinkedIn www.linkedin.com/in/thebiggamehunter Mention you listen to the podcast or watch my YouTube channel. Otherwise, I may not accept the request, particularly if you are outside the US.<br /><br />You can order a copy of &quot;Diagnosing Your Job Search Problems&quot; for Kindle on Amazon and receive free Kindle versions of &quot;No BS Resume Advice&quot; and &quot;Interview Preparation.&quot; If you are starting your search, order, “Get Ready for the Job Jungle.” <br />, <br />Watch my videos on YouTube at JobSearchTV.com, the Job Search TV app for Roku, fireTV or a fire stick or Bingenetworks.tv for AppleTV, and 90+ smart tv's.<br /><br />Subscribe And Give This Video A Thumbs Up If You Found It Helpful.<br /><br />#toughinterviewquestions #interviewquestionsandanswers #interviewquestions #jobsearchtv #jobinterviewquestions{% endraw %}
