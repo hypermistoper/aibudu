@@ -1,0 +1,15 @@
+---
+title: "Microsoft Loop Explained: this will change how you work"
+image: "https:\/\/i.ytimg.com\/vi\/OjShmC6Y_is\/hqdefault.jpg"
+vid_id: "OjShmC6Y_is"
+categories: "Science-Technology"
+tags: ["kevin stratvert","microsoft loop","loop"]
+date: "2022-02-08T14:33:49+03:00"
+vid_date: "2022-02-08T09:15:52Z"
+duration: "PT13M11S"
+viewcount: "4968"
+likeCount: "415"
+dislikeCount: ""
+channel: "Kevin Stratvert"
+---
+{% raw %}In this overview video, learn what Microsoft Loop is, how it'll change work, how you can test it now, how it compares to competition like Notion, and what's coming up next. Microsoft Loop is a new app that combines a powerful and flexible canvas with portable components that stay in sync and move freely across Microsoft 365 apps.<br /><br />👋 Additional resources<br />- All the Microsoft 365 Apps Explained: <a rel="nofollow" target="blank" href="https://youtu.be/LmKUxgSIADU">https://youtu.be/LmKUxgSIADU</a><br /><br />⌚ Timestamps<br />0:00 Introduction<br />2:50 Loop Elements<br />4:33 How to use Loop now<br />10:56 Loop vs. Notion<br />12:15 What's coming soon<br />12:36 Wrap up<br /> <br />📃 Watch related playlists<br />- Playlist with all my videos on Microsoft Loop: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLlKpQrBME6xK-851mw8MGrqZ3oOqCtaqC">https://youtube.com/playlist?list=PLlKpQrBME6xK-851mw8MGrqZ3oOqCtaqC</a><br /><br />🚩 Connect with me on social<br />- LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/kevinstratvert/">https://www.linkedin.com/in/kevinstratvert/</a><br />- Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/kevstrat">https://twitter.com/kevstrat</a><br />- Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Kevin-Stratvert-101912218227818">https://www.facebook.com/Kevin-Stratvert-101912218227818</a><br />- TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@kevinstratvert">https://www.tiktok.com/@kevinstratvert</a><br />- Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/kevinstratvert/">https://www.instagram.com/kevinstratvert/</a><br /><br />🙏 Request How To Tutorial Videos<br /><a rel="nofollow" target="blank" href="https://forms.gle/BDrTNUoxheEoMLGt5">https://forms.gle/BDrTNUoxheEoMLGt5</a><br /><br />🔔 Subscribe to my YouTube channel<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/kevlers?sub_confirmation=1">https://www.youtube.com/user/kevlers?sub_confirmation=1</a><br /><br />🎬 Want to watch again? Navigate back to my YouTube channel quickly<br /><a rel="nofollow" target="blank" href="http://www.kevinstratvert.com">http://www.kevinstratvert.com</a><br /><br />🛍 Support me with your Amazon purchases: <a rel="nofollow" target="blank" href="https://amzn.to/3kCP2yz">https://amzn.to/3kCP2yz</a><br /><br />⚖ As full disclosure, I use affiliate links above. Purchasing through these links gives me a small commission to support videos on this channel -- the price to you is the same.<br /><br />#stratvert{% endraw %}
