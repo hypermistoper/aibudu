@@ -1,0 +1,15 @@
+---
+title: "Nintendo 64 Game Facts (N64)"
+image: "https:\/\/i.ytimg.com\/vi\/H0BOGk4hrag\/hqdefault.jpg"
+vid_id: "H0BOGk4hrag"
+categories: "Gaming"
+tags: ["n64 games","nintendo 64 games","nintendo games"]
+date: "2022-02-10T01:51:51+03:00"
+vid_date: "2022-02-09T19:00:17Z"
+duration: "PT9M50S"
+viewcount: "30309"
+likeCount: "2133"
+dislikeCount: ""
+channel: "DidYouKnowGaming?"
+---
+{% raw %}SUBSCRIBE for more N64 Facts ► <a rel="nofollow" target="blank" href="http://bit.ly/DYKG_Subscribe">http://bit.ly/DYKG_Subscribe</a><br /><br />1 HOUR of Pokemon facts ► <a rel="nofollow" target="blank" href="https://youtu.be/2yT4tQGHxAM">https://youtu.be/2yT4tQGHxAM</a><br /><br /><br /><br />In this video, Did You Know Gaming takes a look at some facts, secrets and Easter eggs surrounding N64 games, including such Nintendo 64 titles as The Legend of Zelda: Ocarina of Time, Pokemon Snap, Diddy Kong Racing, and more!<br /><br /><br /><br />Follow DYKG on:<br /><br />Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/2oOavs2">http://bit.ly/2oOavs2</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/2oO4jjA">http://bit.ly/2oO4jjA</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/2nIrFp9">http://bit.ly/2nIrFp9</a><br /><br />Website: <a rel="nofollow" target="blank" href="http://bit.ly/NpYDbD">http://bit.ly/NpYDbD</a><br /><br /><br /><br />Sources/Further Reading:<br /><a rel="nofollow" target="blank" href="https://web.archive.org/web/20140210121309/http://rare.co.uk/blog/2012/05/18/mini-scribes-may-18-2012/">https://web.archive.org/web/20140210121309/http://rare.co.uk/blog/2012/05/18/mini-scribes-may-18-2012/</a><br /><a rel="nofollow" target="blank" href="https://web.archive.org/web/20080804094926/http://www.the-nextlevel.com/feature/conkers-public-address/">https://web.archive.org/web/20080804094926/http://www.the-nextlevel.com/feature/conkers-public-address/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/rareltd/status/1445797744640208896">https://twitter.com/rareltd/status/1445797744640208896</a><br /><a rel="nofollow" target="blank" href="http://www.vgmuseum.com/end/n64/a/mischief.htm">http://www.vgmuseum.com/end/n64/a/mischief.htm</a> <br /><a rel="nofollow" target="blank" href="https://en.wikipedia.org/wiki/Body_Harvest#Development">https://en.wikipedia.org/wiki/Body_Harvest#Development</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=eohCFsHAVUY#t=33m50s">https://www.youtube.com/watch?v=eohCFsHAVUY#t=33m50s</a><br /><a rel="nofollow" target="blank" href="https://ign.com/articles/new-pokemon-snap-was-given-to-bandai-namco-because-of-pokken-tournament">https://ign.com/articles/new-pokemon-snap-was-given-to-bandai-namco-because-of-pokken-tournament</a><br /><a rel="nofollow" target="blank" href="https://tcrf.net/The_Legend_of_Zelda:_Ocarina_of_Time/Crash_Debugger">https://tcrf.net/The_Legend_of_Zelda:_Ocarina_of_Time/Crash_Debugger</a><br /> <br /><br />#N64 #Nintendo64 #Nintendo #OcarinaOfTime #Pokemon #PokemonSnap #Zelda{% endraw %}
