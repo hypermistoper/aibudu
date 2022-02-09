@@ -1,0 +1,15 @@
+---
+title: "Tango Close Embrace: 3 Tips for a Comfortable Embrace (common mistakes to avoid)"
+image: "https:\/\/i.ytimg.com\/vi\/a7bYf6k_jgw\/hqdefault.jpg"
+vid_id: "a7bYf6k_jgw"
+categories: "Comedy"
+tags: ["tango tips","tango secrets","argentine tango"]
+date: "2022-02-09T18:34:29+03:00"
+vid_date: "2019-07-24T12:58:08Z"
+duration: "PT8M19S"
+viewcount: "23347"
+likeCount: "831"
+dislikeCount: ""
+channel: "Tango Space - Argentine Tango School"
+---
+{% raw %}Dear dancer, <br /><br />If you're anything like us, you really want your partner to feel comfortable in your embrace...<br /><br />(Isn't it niiiiiiice, when people compliment your embrace at the end of a tanda?...)<br /><br />Yet there are some common mistakes we see (and that we have had to correct on ourselves to) that sometimes make the embrace feel... clunky!<br /><br />After, the tango embrace, abrazo, means hug! So it should feel natural and comfortable, but we know that it is not always the case at times. <br /><br />So in this video we give you 3 tips to avoid common embrace mistakes we see, and help you feel more comfortable in the tango embrace. <br /><br />Added bonus, a comfortable embrace will help with your balance and you will be more elegant, and more daring in the dance!<br /><br />Click on the video to learn how to <br />-How to position your head to feel comfortable and make sure your partner is at ease too (a good reminder!)<br />-Where your embrace should come from in your body to feel like a **hug** 🤗 <br />-how to align your shoulders to your partner's to protect your balance and help them feel relaxed in your arms<br /><br />We really hope it helps<br /><br />If you enjoyed this video, subscribe to our channel and sign up for your free weekly tango tips at: tango-space.com/blog-2/<br /><br />*********<br /><br />Tango dancer, do you want clarity on tango dancing? <br />Frustrated with how long it takes to improve your tango technique? <br />Do you want to look &amp; feel more powerful &amp; elegant in your tango dancing?<br />Have a look at our step-by-step Online technique Course, it might be the right tool to take your tango to the next level :-)<br />Check it out here: <a rel="nofollow" target="blank" href="http://www.tango-space.com/tango-technique-videos/">http://www.tango-space.com/tango-technique-videos/</a><br /><br /><br />FOLLOW US AT:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/tangospaceschool/">https://www.facebook.com/tangospaceschool/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/tango_space">https://twitter.com/tango_space</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/tangospace/">https://www.instagram.com/tangospace/</a><br />Our YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCTJ5xuVnWfX0nVhwcITNbUw">https://www.youtube.com/channel/UCTJ5xuVnWfX0nVhwcITNbUw</a><br />Tango Space in London: www.tango-space.com<br />Tango Space in Paris: www.tango-space-paris.com{% endraw %}
