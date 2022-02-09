@@ -1,0 +1,15 @@
+---
+title: "Meghan Trainor - Title (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/8I9fiP0DKp4\/hqdefault.jpg"
+vid_id: "8I9fiP0DKp4"
+categories: "Music"
+tags: ["The Seventh String","The Seventh","The String"]
+date: "2022-02-09T04:58:56+03:00"
+vid_date: "2020-03-23T15:30:00Z"
+duration: "PT3M33S"
+viewcount: "212691"
+likeCount: "2933"
+dislikeCount: ""
+channel: "The Seventh String"
+---
+{% raw %}Title by Meghan Trainor<br />Album: Title<br />Spotify: <br /><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/track/18IwlUCETTJSrS0fYkZGEo">https://open.spotify.com/track/18IwlUCETTJSrS0fYkZGEo</a><br /><br />Title Lyrics:<br /><br /><br />If you want my love<br />You gotta do what it does<br />If you want these sweet-like-sugar Gucci lips<br />You gotta give it up<br />I know you think I'm cool<br />But I ain't one of the boys<br />No, don't be scared that I'm gon' tie you down<br />But I need a little more<br /><br />Baby, don't call me your friend<br />If I hear that word again<br />You might never get a chance to see me naked in your bed<br />And I know girls ain't hard to find<br />But if you think you wanna try<br />Then consider this an invitation to kiss my ass goodbye<br /><br />Gimme that title, title<br />Come and gimme that title, title<br />Better gimme that title, title<br />Come and gimme that title, title<br /><br />If it ain't no thang<br />I won't be hanging around<br />But don't blow up my shit at 3 AM saying how you need me now<br />Don't call me &quot;boo&quot;<br />Like you're some kind of ghost<br />(But you're a ghost)<br />If you don't want me seeing other guys<br />Well, here's what you need to know<br /><br />Baby, don't call me your friend<br />If I hear that word again<br />You might never get a chance to see me naked in your bed<br />And I know girls ain't hard to find<br />But if you think you wanna try<br />Then consider this an invitation to kiss my ass goodbye<br /><br />Gimme that title, title<br />Come and gimme that title, title<br />Better gimme that title, title<br />Come and gimme that title, title<br /><br />Yo... said I'm a special kinda woman<br />I'm loving what you got, but I'm hating what you doing<br />You gotta understand<br />That I'm looking for a man<br />Who can get up on a bike<br />Look ma, no hands!<br />You gotta show me off, off<br />What you embarrassed?<br />If that's the case I'm long gone<br />You gotta treat me like a trophy, put me on the shelf<br />Or call me something else<br /><br />Baby, don't call me your friend<br />If I hear that word again<br />You might never get a chance to see me naked in your bed<br />And I know girls ain't hard to find<br />But if you think you wanna try<br />Then consider this an invitation to kiss my ass goodbye<br /><br />Gimme that title, title<br />Come and gimme that title, title<br />Better gimme that title, title<br />Come and gimme that title, title<br /><br /><br /><br /><br />#Title<br />#MeghanTrainor <br />#Title{% endraw %}
