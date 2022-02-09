@@ -1,0 +1,15 @@
+---
+title: "ABSOLUTELY TERRIFYING | Mr. Hopps Playhouse"
+image: "https:\/\/i.ytimg.com\/vi\/CXsEGPQuAt0\/hqdefault.jpg"
+vid_id: "CXsEGPQuAt0"
+categories: "Gaming"
+tags: ["mr hopps playhouse","mr hopps playhouse markiplier","scariest game ever"]
+date: "2022-02-09T06:44:59+03:00"
+vid_date: "2019-10-16T15:00:05Z"
+duration: "PT29M49S"
+viewcount: "8826466"
+likeCount: "270939"
+dislikeCount: ""
+channel: "Markiplier"
+---
+{% raw %}CHECK OUT A Heist With Markiplier ►► <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9TjfkXmwbTs">https://www.youtube.com/watch?v=9TjfkXmwbTs</a><br />Mr Hopps Playhouse is one of the SCARIEST GAMES I've play in a long LONG time! Turn off the lights and get your blanket because you're in for one HELL of a horror game!<br />ALL NEW CLOTHES ►► <a rel="nofollow" target="blank" href="https://cloakbrand.com/">https://cloakbrand.com/</a><br /><br />Play Mr. Hopps Playhouse ► <a rel="nofollow" target="blank" href="https://moonbit.itch.io/mrhoppsplayhouse">https://moonbit.itch.io/mrhoppsplayhouse</a><br /><br />Mr Hopps is pixelated horror game about a creepy haunted toy that is haunting the life of this poor poor child. Filled to the brim with jumpscare after jumpscare this is a scary game you don't want to miss out on this indie horror game!<br /><br />EDITED BY ► LIXIAN <a rel="nofollow" target="blank" href="https://www.youtube.com/user/LixianTV">https://www.youtube.com/user/LixianTV</a><br /><br />Check Out My WEBSITE!! ► <a rel="nofollow" target="blank" href="https://markiplier.com/">https://markiplier.com/</a><br /><br />Subscribe Today! ► <a rel="nofollow" target="blank" href="http://bit.ly/Markiplier">http://bit.ly/Markiplier</a><br /><br />Awesome Games Playlist ► <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL3tRBEVW0hiDAf0LeFLFH8S83JWBjvtqE">https://www.youtube.com/playlist?list=PL3tRBEVW0hiDAf0LeFLFH8S83JWBjvtqE</a><br /><br />Scary Games Playlist ► <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL3tRBEVW0hiBSFOFhTC5wt75P2BES0rAo">https://www.youtube.com/playlist?list=PL3tRBEVW0hiBSFOFhTC5wt75P2BES0rAo</a><br /><br />Follow my Instagram ► <a rel="nofollow" target="blank" href="http://instagram.com/markiplier">http://instagram.com/markiplier</a><br />Follow me on Twitter ► <a rel="nofollow" target="blank" href="https://twitter.com/markiplier">https://twitter.com/markiplier</a><br />Like me on Facebook ► <a rel="nofollow" target="blank" href="https://www.facebook.com/markiplier">https://www.facebook.com/markiplier</a><br />Join us on Reddit! ► <a rel="nofollow" target="blank" href="https://www.reddit.com/r/Markiplier/">https://www.reddit.com/r/Markiplier/</a><br /><br />Horror Outro ► <a rel="nofollow" target="blank" href="https://soundcloud.com/shurkofficial/haunted">https://soundcloud.com/shurkofficial/haunted</a><br />Happy Outro ► <a rel="nofollow" target="blank" href="https://soundcloud.com/hielia/minimusicman-crazy-la-paint">https://soundcloud.com/hielia/minimusicman-crazy-la-paint</a>{% endraw %}
