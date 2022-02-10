@@ -1,0 +1,15 @@
+---
+title: "The End Times: New Jerusalem, Revived Roman Empire, Great Tribulation  - Mark Hitchcock"
+image: "https:\/\/i.ytimg.com\/vi\/zdX3SOS-z_s\/hqdefault.jpg"
+vid_id: "zdX3SOS-z_s"
+categories: "Nonprofits-Activism"
+tags: ["ukraine","russia","100Huntley"]
+date: "2022-02-10T06:40:08+03:00"
+vid_date: "2022-01-24T15:13:54Z"
+duration: "PT6M5S"
+viewcount: "50904"
+likeCount: "1312"
+dislikeCount: ""
+channel: "100huntley"
+---
+{% raw %}Bible Prophecy expert Mark Hitchcock talks on Ezekiel 38 &amp; 39. What does the Bible tell us about the New Jerusalem, Revived Roman Empire, &amp; Great Tribulation &amp; is Russia mentioned?  Dr. Mark Hitchcock speak with Dr. John Hull about this and more.<br /><br />Join this channel to help spread the word about Jesus on Youtube:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC4b1cyjfinmRIsTljCJMUIA/join">https://www.youtube.com/channel/UC4b1cyjfinmRIsTljCJMUIA/join</a><br /><br />Need prayer? Our Prayer Line services 1-866-273-4444 are available toll-free 24/7. <br />Or you can submit your prayer requests online <a rel="nofollow" target="blank" href="http://100hs.ca/prayer">http://100hs.ca/prayer</a><br />We also offer extended assistance to those in need.<br /><br />Click here if you're interested in subscribing: <a rel="nofollow" target="blank" href="http://100hs.ca/subscribe">http://100hs.ca/subscribe</a> <br /><br />Connect with 100 Huntley Street Online: <br />• Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/100huntley/">https://www.facebook.com/100huntley/</a><br />• Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/100Huntley">https://twitter.com/100Huntley</a><br />• Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/100huntley/">https://www.instagram.com/100huntley/</a><br /><br />About 100 Huntley Street™: <a rel="nofollow" target="blank" href="http://100huntley.com">http://100huntley.com</a><br /> <br />Looking for a daily show that will encourage and inspire your Christian faith? <br />Every day at 12 noon EST 100 Huntley Street brings you the amazing stories of people – whether they be world leaders, celebrities, sports figures, or everyday people – who have had life-changing encounters with God.  <br /><br />100 Huntley Street is a production of Crossroads Christian Communications Inc.<br />This program is funded by the generous support of viewers. To donate or to become a monthly partner visit <a rel="nofollow" target="blank" href="https://donate.crossroads.ca/">https://donate.crossroads.ca/</a><br /><br />About Castle™: <a rel="nofollow" target="blank" href="http://intothecastle.com">http://intothecastle.com</a><br /><br />Castle is home to hundreds of television shows, documentaries, movies, including all Crossroads productions like See Hear Love, Context Beyond the Headlines, and 100 Huntley Street. One of the unique features of Castle is the ability to chat in real-time with a digital pastor. Castle is 100% FREE for all.{% endraw %}
