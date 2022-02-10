@@ -1,0 +1,15 @@
+---
+title: "👑Searching For Your Crown👑"
+image: "https:\/\/i.ytimg.com\/vi\/47nWDd1D20Q\/hqdefault.jpg"
+vid_id: "47nWDd1D20Q"
+categories: "People-Blogs"
+tags: ["best motivational video","change your mentality","change your mind"]
+date: "2022-02-10T09:17:29+03:00"
+vid_date: "2022-02-10T05:22:43Z"
+duration: "PT4H3M54S"
+viewcount: "698"
+likeCount: "104"
+dislikeCount: ""
+channel: "THEMANMINDSET. COM Dating&Manhood HELP for all men"
+---
+{% raw %}👑Searching For Your Crown👑: The man mindset show teaches men how to have more control of their life. Our purpose is to develop strong character and communication skills that will lead you through your own personal development and growth. The Man Mindset assists you in looking deeply within to see where you stand...with leadership, success, relationships with women, marriage, fathering, and personal goals. Ultimately leading to a realization of your own purpose and mission in life. <br /><br /><br /><br /><br /><br />THANKS FOR VIEWING, LIKE, COMMENT &amp; SHARE! <br /><br /><br /><br />PLEASE NOTE*** Advice will be given to your tailored situation if you book a coaching session. Please understand if you need advice on a particular situation to schedule a coaching session. Appreciate your understanding.<br /><br /><br /><br /><br /><br />FOR MORE EXCLUSIVE CONTENT FOLLOW ME ON SOCIAL MEDIA:<br /><br /><br /><br />📸 INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/themanmindset/">https://www.instagram.com/themanmindset/</a><br /><br />📉 FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/themanmindset/">https://www.facebook.com/themanmindset/</a><br /><br />💬 TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/themanmindset">https://twitter.com/themanmindset</a><br /><br />🖥 WEBSITE: <a rel="nofollow" target="blank" href="https://www.themanmindset.com">https://www.themanmindset.com</a><br /><br />🖥 TIKTOK: <a rel="nofollow" target="blank" href="https://www.tiktok.com/search?q=the%20man%20mindset&amp;t=1639298070599">https://www.tiktok.com/search?q=the%20man%20mindset&amp;t=1639298070599</a><br /><br /><br /><br />*This video is designed for entertainment and information purposes only.  All advice discussed in this video (and this channel) are my personal opinions and are based on my personal experiences.  I am not a licensed therapist, psychologist, marriage counselor, medical doctor, dietician or financial advisor.  You are responsible for your own actions.  You should not act or rely upon any of the information contained herein without seeking professional advice.<br /><br /><br /><br />Reaction videos: *Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use. No copyright infringement intended. ALL RIGHTS BELONG TO THEIR RESPECTIVE OWNERS*{% endraw %}
