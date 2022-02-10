@@ -1,0 +1,15 @@
+---
+title: "OVERNIGHT TRAIN from New York to Miami (24 hours on the Viewliner II Amtrak Silver Meteor Bedroom)"
+image: "https:\/\/i.ytimg.com\/vi\/KqS1-ooM_Zg\/hqdefault.jpg"
+vid_id: "KqS1-ooM_Zg"
+categories: "Travel-Events"
+tags: ["travel vlog","daily travel vlog","flying the nest"]
+date: "2022-02-10T15:58:54+03:00"
+vid_date: "2022-02-09T16:00:09Z"
+duration: "PT17M30S"
+viewcount: "49115"
+likeCount: "3373"
+dislikeCount: ""
+channel: "Flying The Nest"
+---
+{% raw %}Head to <a rel="nofollow" target="blank" href="https://www.squarespace.com/flyingthenest">https://www.squarespace.com/flyingthenest</a><br /><br />We love going on overnight trains and realised it's been several years since we last did one! So while we were here in the states we thought to take an Amtrak Bedroom suite on the Silver Meteor Route from New York to Miami.<br /><br />#travel #train #overnighttrain<br />----------------------------------------­­--<br /><br />Flying the Nest:<br />→ Follow our Journey → <a rel="nofollow" target="blank" href="https://linktr.ee/flyingthenest">https://linktr.ee/flyingthenest</a><br />→ Shop our Presets → <a rel="nofollow" target="blank" href="https://linktr.ee/flyingthenestshop">https://linktr.ee/flyingthenestshop</a><br />→ Learn to edit videos for YouTube → <a rel="nofollow" target="blank" href="https://bit.ly/ftnacademyvideo">https://bit.ly/ftnacademyvideo</a><br />→ Learn to grow your Instagram → <a rel="nofollow" target="blank" href="https://bit.ly/FTNacademyinstagram">https://bit.ly/FTNacademyinstagram</a><br /><br />→ Sign up for our Weekly Coop Update email: <a rel="nofollow" target="blank" href="https://bit.ly/2Xj573c">https://bit.ly/2Xj573c</a> <br />→ Our current camera + gear setup → <a rel="nofollow" target="blank" href="http://bit.ly/currentgear">http://bit.ly/currentgear</a><br /><br />----------------------------------------­­--<br /><br />----------------------------------------­­--<br /><br />WHERE YOU CAN FIND US:<br />→ Instagram → <a rel="nofollow" target="blank" href="https://linktr.ee/ftnInstagram">https://linktr.ee/ftnInstagram</a><br />→ Flying the Nesters Travel Community Group → <a rel="nofollow" target="blank" href="https://linktr.ee/FTNFacebook">https://linktr.ee/FTNFacebook</a><br />→ Twitter → <a rel="nofollow" target="blank" href="https://linktr.ee/ftntwitter">https://linktr.ee/ftntwitter</a><br />→  Our Blog →  <a rel="nofollow" target="blank" href="https://linktr.ee/flyingthenestblog">https://linktr.ee/flyingthenestblog</a><br />→ Listen to our Podcast → <a rel="nofollow" target="blank" href="https://linktr.ee/storiesflyingthenest">https://linktr.ee/storiesflyingthenest</a><br />----------------------------------------­­-<br />→ Where we get our music from → <a rel="nofollow" target="blank" href="http://share.mscbd.fm/flyingthenest">http://share.mscbd.fm/flyingthenest</a><br /><br />----------------------------------------­­--<br />Hi, we are Stephen, Jess and little Hunter, a travelling van life family who self-converted their dream house on wheels - we now live full-time in our Sprinter van called Cooper as we do a full lap of our home Australia.{% endraw %}
