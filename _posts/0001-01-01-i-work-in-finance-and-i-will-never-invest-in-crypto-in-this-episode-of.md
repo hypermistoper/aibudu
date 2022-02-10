@@ -1,0 +1,15 @@
+---
+title: "I Work In Finance, And I Will Never Invest In Crypto"
+image: "https:\/\/i.ytimg.com\/vi\/S6YHs-VnOxo\/hqdefault.jpg"
+vid_id: "S6YHs-VnOxo"
+categories: "Howto-Style"
+tags: ["the financial diet","chelsea fagan","personal finance"]
+date: "2022-02-10T14:14:10+03:00"
+vid_date: "2022-01-27T17:09:08Z"
+duration: "PT4M51S"
+viewcount: "55626"
+likeCount: "2585"
+dislikeCount: ""
+channel: "The Financial Diet"
+---
+{% raw %}In this episode of Making It Work, one woman explains why she'll never invest in crypto, and why she prefers to keep her money in other investments.<br /><br />Through weekly video essays, &quot;Making It Work&quot; showcases how *real* people have upgraded their personal or financial lives in some meaningful way. Making your life work for you doesn't mean getting rich just for the sake of it. It means making the most of what you have to build a life you love, both in your present and in your future. And while managing money is a crucial life skill for everyone, there's no one &quot;right way&quot; to go about it — you have to figure out what works best for *you,* full stop.<br /><br />Written by Keertana Anandraj<br /><br />Video by Grace Lee <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/WhatsSoGreatAboutThat">https://www.youtube.com/c/WhatsSoGreatAboutThat</a> <a rel="nofollow" target="blank" href="https://twitter.com/whatssograce">https://twitter.com/whatssograce</a><br /><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCSPYNpQ2fHv9HJ-q6MIMaPw/join">https://www.youtube.com/channel/UCSPYNpQ2fHv9HJ-q6MIMaPw/join</a><br /><br />The Financial Diet site:<br /><a rel="nofollow" target="blank" href="http://www.thefinancialdiet.com">http://www.thefinancialdiet.com</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/thefinancialdiet">https://www.facebook.com/thefinancialdiet</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TFDiet">https://twitter.com/TFDiet</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/thefinancialdiet/?hl=en">https://www.instagram.com/thefinancialdiet/?hl=en</a><br /><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCSPYNpQ2fHv9HJ-q6MIMaPw/join">https://www.youtube.com/channel/UCSPYNpQ2fHv9HJ-q6MIMaPw/join</a><br /><br />The Financial Diet site:<br /><a rel="nofollow" target="blank" href="http://www.thefinancialdiet.com">http://www.thefinancialdiet.com</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/thefinancialdiet">https://www.facebook.com/thefinancialdiet</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TFDiet">https://twitter.com/TFDiet</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/thefinancialdiet/?hl=en">https://www.instagram.com/thefinancialdiet/?hl=en</a>{% endraw %}
