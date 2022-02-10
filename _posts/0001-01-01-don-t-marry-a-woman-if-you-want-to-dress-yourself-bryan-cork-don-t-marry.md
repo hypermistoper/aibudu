@@ -1,0 +1,15 @@
+---
+title: "Don't Marry A Woman If You Want To Dress Yourself. Bryan Cork"
+image: "https:\/\/i.ytimg.com\/vi\/i00CnlpKNbE\/hqdefault.jpg"
+vid_id: "i00CnlpKNbE"
+categories: "Comedy"
+tags: ["Clean Comedy","Dry Bar Comedy","Stand Up Comedy"]
+date: "2022-02-10T09:07:04+03:00"
+vid_date: "2022-02-10T00:45:02Z"
+duration: "PT6M28S"
+viewcount: "14050"
+likeCount: "883"
+dislikeCount: ""
+channel: "Dry Bar Comedy"
+---
+{% raw %}Don't marry a woman if you want to dress yourself, or at least thats the advice Bray Cork gives in this clip from his first ever Dry Bar Comedy special. Whether it's your wife picking out your clothes for you, or your favorite clothes mysteriously disappearing in the laundry, when you get married your ability to dress yourself slowly disappears. Whether you're someone who has been married for decades, or someone who is just recently dating this clip from Bryan Cork is sure to keep you laughing from start to finish.<br /><br />Watch Bryan Cork's full special exclusively on the Dry Bar Comedy + App.  <br /><a rel="nofollow" target="blank" href="https://www.drybarcomedy.com/">https://www.drybarcomedy.com/</a><br /><br />Come See Us On Tour<br /><a rel="nofollow" target="blank" href="https://store.drybarcomedy.com/pages/live">https://store.drybarcomedy.com/pages/live</a><br /><br />If you enjoyed this clip from Bryan Cork, be sure to check out the links below for even more Dry Bar Comedians you might enjoy!<br /><br />Mike Seigel<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=43Xm4OkHC3M">https://www.youtube.com/watch?v=43Xm4OkHC3M</a><br /><br />Jeff Allen<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=EEkgTv3LEAc">https://www.youtube.com/watch?v=EEkgTv3LEAc</a><br /><br />Rex Havens<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=pXNpDiT8jDE">https://www.youtube.com/watch?v=pXNpDiT8jDE</a><br /><br />A little More Dry Bar<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC4VofsSdzu0voTu6SNthZ6Q">https://www.youtube.com/channel/UC4VofsSdzu0voTu6SNthZ6Q</a><br /><br />Subscribe to Dry Bar Comedy Shorts<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCv5IFs8NDX-zh2IANREoFLw">https://www.youtube.com/channel/UCv5IFs8NDX-zh2IANREoFLw</a><br /><br />Want More Dry Bar Comedy?<br /><br />Check us out on our other social media channels.<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DryBarComedy/">https://www.facebook.com/DryBarComedy/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/drybarcomedy/">https://www.instagram.com/drybarcomedy/</a><br />TikTok: <a rel="nofollow" target="blank" href="https://vm.tiktok.com/gfQo9S/">https://vm.tiktok.com/gfQo9S/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/drybarcomedy">https://twitter.com/drybarcomedy</a><br /><br />#drybar #comedy #standup{% endraw %}
