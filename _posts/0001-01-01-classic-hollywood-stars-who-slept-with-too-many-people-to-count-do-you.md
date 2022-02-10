@@ -1,0 +1,15 @@
+---
+title: "Classic Hollywood Stars Who Slept With Too Many People to Count"
+image: "https:\/\/i.ytimg.com\/vi\/q2BNEZuZu1g\/hqdefault.jpg"
+vid_id: "q2BNEZuZu1g"
+categories: "Entertainment"
+tags: ["Classic Hollywood Stars Who Slept With Too Many People to Count","Hollywood Stars who slept with a lot of people","classic celebrities that slept with too many people"]
+date: "2022-02-10T13:05:53+03:00"
+vid_date: "2022-02-06T00:00:11Z"
+duration: "PT8M50S"
+viewcount: "283761"
+likeCount: "5749"
+dislikeCount: ""
+channel: "Facts Verse"
+---
+{% raw %}Do you think being sexually promiscuous in Hollywood adds or detracts to a star's reputation? And can you think of any stars or starlets that we're particularly loose back during the Golden Age of cinema? Let us know in the comments.<br /><br />▬Contents of this video▬<br />00:00 - Intro<br />00:39 - Ava Gardner<br />01:37 - Elizabeth Taylor<br />02:31 - Vivien Leigh<br />03:51 - Tallulah Bankhead<br />05:26 - Jayne Mansfield<br />05:54 - Mae West<br />06:41 - Lupe Velez<br />07:22 - Clara Bow<br />07:47 - Louise Brooks<br />08:11 - Outro<br /><br />Like this content? Subscribe here: <a rel="nofollow" target="blank" href="https://www.youtube.com/factsverse?sub_confirmation=1">https://www.youtube.com/factsverse?sub_confirmation=1</a> <br /><br />Or, watch more videos here: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLkXAntdjbcSKgHx6EQVOwNKVz1cR2hKV">https://www.youtube.com/playlist?list=PLkXAntdjbcSKgHx6EQVOwNKVz1cR2hKV</a><br /><br />Do you think you know a lot about TV? Try our quiz and enter to win $500!<br />Click below to check the trivia question <br /><a rel="nofollow" target="blank" href="https://bit.ly/3rEeMxk">https://bit.ly/3rEeMxk</a>  <br /><br />Some might think that the Hollywood of today is fairly wild, but it shockingly was just as crazy back during it's so-called Golden Age. It was an era of cougars and seductresses. Female film stars did whatever they wanted with whoever they wanted and their male counterparts of show business followed suit. It was almost like everyone was going at it back then.<br /><br />Marriage was just a piece of paper. It didn't even matter if stars were married or not. Infidelity ran rampant and divorces were everyday happenings. That's not to say that cheating is a very classy move. Some of the most iconic stars of the day such as Elizabeth Taylor and Vivien Leigh received quite a bit of flack for cheating on their spouses. Taylor's infamous affair with Richard Burton even inspired the Vatican of all people to issue a formal statement condemning the illicit union.<br /><br />Stars were getting it on so often and with so many partners that it was hard for them to keep track of all of their intimate liaisons. In this video, we'll be taking a look at some classic Hollywood stars who slept with too many people to count. After watching this video, you'll likely never look at the stars of the silver screen the same way again.<br /><br />Classic Hollywood Stars Who Slept With Too Many People to Count{% endraw %}
