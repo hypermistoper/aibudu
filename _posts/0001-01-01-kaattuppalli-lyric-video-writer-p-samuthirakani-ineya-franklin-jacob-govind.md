@@ -1,0 +1,15 @@
+---
+title: "Kaattuppalli Lyric Video | Writer | P. Samuthirakani, Ineya | Franklin Jacob | Govind Vasantha"
+image: "https:\/\/i.ytimg.com\/vi\/H4mE3cWDjSI\/hqdefault.jpg"
+vid_id: "H4mE3cWDjSI"
+categories: "Music"
+tags: ["Kaattuppalli","Lyric","Video"]
+date: "2022-02-11T09:05:24+03:00"
+vid_date: "2022-02-08T11:30:02Z"
+duration: "PT4M43S"
+viewcount: "19115"
+likeCount: "630"
+dislikeCount: ""
+channel: "Think Music India"
+---
+{% raw %}#Writer | #Kaattuppalli Lyric Video | #PSamuthirakani, #Ineya | #FranklinJacob | #GovindVasantha | #PaRanjith, #AbhayanandSingh, #PiiyushSingh, #AditiAnand | #NeelamProductions, #GoldenRatioFilms, #LittleRedCarFilms, #JettyProductions | #Writer<br /><br />Movie: WRITER<br />Song: Kaattuppalli<br />Music: Govind Vasantha<br />Singer: Govind Vasantha<br />Lyrics: Yugabharathi<br /><br />Movie Credits:<br /><br />Cast: P.Samuthirakani, Dileeban, Ineya, Harikrishnan Anbudurai, Subramaniam Shiva, G.M Sundhar, Maheswari, Lizzie Antony, Kavitha Bharathy, Kavin Jay Babu,” Merku Thodarchi Malai” Antony,<br />Lucky Kumar, D.Lemuvel, Bose Venkat, Muthuraman, Sivamaran, Anush<br /><br />Producers : Pa.Ranjith, Abhayanand Singh, Piiyush Singh, Aditi Anand<br />Co-Producer : U.M.Rao<br /><br />Director: Franklin Jacob<br />DOP: Pratheep Kaliraja<br />Editor: Manigandan Sivakumar<br />Art: A.Raja<br />Stills: R.S. Raja<br />Executive Producers : Sanjay, Rupesh<br />Stunt : Sudesh<br />Choreography : Satish Krishnan<br />Lyrics: Yuga bharathi, Muthuvel<br />Singers: Pratheep Kumar, Anthakudi Ilayaraja, Lakshmi Chandru, Ananda Priyan, Jesurani,<br />Meenakshi Ilayaraja, Govind Vasantha<br />Costumer: M.Mohammed Subier<br />Makeup : Vinoth<br />Stills: R.S. Raja<br />Publicity Designs: Kabilan Chellaiah<br />Sound Design: Suren.G, Alagiyakoothan<br />Sound Mix : Suren.G<br />Dubbing : Balu Studios <br />Dubbing Engineer : Muthu krishnan<br />Production Executive : D.Murugan<br />Production Manager : (Sethur) K. Elango<br />VFX: Art Fx studio<br />Lyrical video : Antony Jerome<br />BTS : Terry Derose<br />DI : Accel Media<br />Colorist : B.Yugendran D.F.Tech<br />PRO: Riaz K Ahamed, Guna<br />Subtitles: Vikrem, Varsha Bharath<br />Banner: Neelam Productions, Golden Ratio Films, Little red car films, Jetty Productions<br />Audio Label: Think Music<br /><br />© 2022 SPI Music Pvt. Ltd.<br /><br />For All Latest Updates:<br />Website: <a rel="nofollow" target="blank" href="https://thinkmusic.in/">https://thinkmusic.in/</a><br />Subscribe to us on: <a rel="nofollow" target="blank" href="http://www.youtube.com/thinkmusicindia">http://www.youtube.com/thinkmusicindia</a><br />Follow us on: <a rel="nofollow" target="blank" href="https://twitter.com/thinkmusicindia">https://twitter.com/thinkmusicindia</a><br />Like us on: <a rel="nofollow" target="blank" href="https://www.facebook.com/Thinkmusicofficial">https://www.facebook.com/Thinkmusicofficial</a><br />Follow us on: <a rel="nofollow" target="blank" href="https://www.instagram.com/thinkmusicofficial">https://www.instagram.com/thinkmusicofficial</a>{% endraw %}
