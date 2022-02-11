@@ -1,0 +1,15 @@
+---
+title: "Something BIG Just Detected By Scientists.. What's Lurking Near Our Sun?"
+image: "https:\/\/i.ytimg.com\/vi\/TFuZ6yk9mZQ\/hqdefault.jpg"
+vid_id: "TFuZ6yk9mZQ"
+categories: "Entertainment"
+tags: ["unexplained","strange","UFO"]
+date: "2022-02-11T10:43:26+03:00"
+vid_date: "2022-02-10T05:33:55Z"
+duration: "PT10M35S"
+viewcount: "168866"
+likeCount: "18238"
+dislikeCount: ""
+channel: "secureteam10"
+---
+{% raw %}➨Insomnia Merch: <a rel="nofollow" target="blank" href="https://secureteamtees.com">https://secureteamtees.com</a><br />➨Be sure to Follow my Socials below for up-to-date Info!<br />➨If you enjoy my work &amp; dedication to this topic and would like to show financial support to now-hidden Creators like me, you can do so securely with Patreon or PayPal. See links below. You can also show your support by simply Liking my videos, posting a comment and sharing. Your support keeps this channel alive and is greatly appreciated!<br /><br />➨Be A Monthly Patron of Secureteam: <a rel="nofollow" target="blank" href="http://patreon.com/TheSecureteam">http://patreon.com/TheSecureteam</a><br />➨Support directly to our Paypal: <a rel="nofollow" target="blank" href="https://paypal.me/secureteam">https://paypal.me/secureteam</a><br /><br />➨Follow Secureteam for Channel News &amp; Updates on:<br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/secureteamtyler">http://instagram.com/secureteamtyler</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/SecureTeam10">http://twitter.com/SecureTeam10</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/Secureteam10">http://facebook.com/Secureteam10</a><br /><br />➨To submit UFO footage or info, please use the proper email address below.<br /><br />➨Note: Email usually shrinks/downgrades video quality when sent, so I recommend If your UFO video is too large or is likely to lose resolution, the best way is to simply upload it to Youtube and email me the video link.<br /><br />➨Send UFO Vids/Pics to: SecureteamNews@gmail.com<br />Please put &quot;UFO Footage&quot; or &quot;UFO News/Info&quot; as Subject of email. - Note: This is the only email checked/used for viewer UFO submissions. Because I get 100's of emails per day, it may take some time for me to get to yours, so thanks for your patience &amp; messages!<br />-------------------------------------------<br />➨For Business or Sponsorship inquiries Only: <br />Contact Tyler at: SecureteamBusiness@gmail.com<br />If possible please put &quot;Business&quot; or &quot;Sponsorship&quot; as the email Subject - as this helps for faster responses on my end, and I'll get back to you within 24-48 hours. Thanks!<br />-------------------------------------------<br />➨PO BOX For Viewer-Mail &amp; Packages: <br />I Love getting cool stuff from you guys! From channel artwork, UFO stories, Books, letters or anything else! Just ship it out to my Box below and I'd love to feature it and say thanks!<br /><br />Secureteam<br />P.O. BOX 671<br />101 W High St.<br />Mount Vernon, OH 43050<br />United States<br /><br />#Secureteam10{% endraw %}
