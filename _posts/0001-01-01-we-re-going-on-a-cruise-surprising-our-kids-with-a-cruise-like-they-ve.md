@@ -1,0 +1,15 @@
+---
+title: "WE’RE GOING ON A CRUISE! SURPRISING OUR KIDS WITH A CRUISE LIKE THEY’VE NEVER BEEN ON BEFORE!"
+image: "https:\/\/i.ytimg.com\/vi\/3LEeG2x0N18\/hqdefault.jpg"
+vid_id: "3LEeG2x0N18"
+categories: "People-Blogs"
+tags: ["Family","Fun","Happy"]
+date: "2022-02-11T17:45:57+03:00"
+vid_date: "2022-02-10T19:00:03Z"
+duration: "PT17M9S"
+viewcount: "90052"
+likeCount: "5851"
+dislikeCount: ""
+channel: "This Is How We Bingham"
+---
+{% raw %}We have one of the most epic surprises of all time for our kids today! A surprise that's truly out of this world. Taking our kids on a cruise like they've never been on before. Truly, like no one has ever been on before! We can't wait to take you along on this once in a lifetime adventure and are so grateful for this extremely rare and unique opportunity! Buckle up because we're about to take this baby into lightspeed!<br /><br />#ThisIsHowWeBingham #TIHWB<br /><br />Yesterday's VLOG: <a rel="nofollow" target="blank" href="https://youtu.be/4ruFBLhul0U">https://youtu.be/4ruFBLhul0U</a><br /><br />FIRST DISNEY DREAM CRUISE: <a rel="nofollow" target="blank" href="https://youtu.be/EDp0jB7xA54">https://youtu.be/EDp0jB7xA54</a><br />DISNEY WORLD FAMILY VACATION MOVIE: <a rel="nofollow" target="blank" href="https://youtu.be/r7o1d91lpPI">https://youtu.be/r7o1d91lpPI</a><br />DISNEYLAND BIRTHDAY MOVIE: <a rel="nofollow" target="blank" href="https://youtu.be/PRO-f2_0fHg">https://youtu.be/PRO-f2_0fHg</a><br />DISNEYLAND SURPRISE MOVIE: <a rel="nofollow" target="blank" href="https://youtu.be/NrzWG0-pKIU">https://youtu.be/NrzWG0-pKIU</a><br />FIRST FAMILY CRUISE MOVIE: <a rel="nofollow" target="blank" href="https://youtu.be/-vI8Lo01XFQ">https://youtu.be/-vI8Lo01XFQ</a><br /><br />SUBSCRIBE and tell your friends ;)<br /><br />LET'S BE FAMILY EVERYWHERE!<br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/ThisIsHowWeBingham">http://instagram.com/ThisIsHowWeBingham</a><br />@ThisIsHowWeBingham<br /><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/ThisIsHowWeBingham">http://facebook.com/ThisIsHowWeBingham</a><br /><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@tihwb">https://www.tiktok.com/@tihwb</a><br />@TIHWB<br /><br />TWITCH: <a rel="nofollow" target="blank" href="https://www.twitch.tv/thisishowwebingham">https://www.twitch.tv/thisishowwebingham</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/HowWeBingham">http://twitter.com/HowWeBingham</a><br />@HowWeBingham<br /><br />Snapchat: @HowWeBingham<br /><br />Blog: <a rel="nofollow" target="blank" href="http://thisishowwebingham.com">http://thisishowwebingham.com</a><br /><br />Store: <a rel="nofollow" target="blank" href="http://thisishowwebingham.com/shop">http://thisishowwebingham.com/shop</a><br /><br />BEST OF BINGHAM: <a rel="nofollow" target="blank" href="https://youtu.be/FW4ouEXiolM">https://youtu.be/FW4ouEXiolM</a><br /><br />Mailing Address:<br />P.O. Box 1276<br />Pleasant Grove, UT<br />84062<br /><br />Music provided by Epidemic Sound<br /><br />Family Fun, Family VLOG, Daily VLOG{% endraw %}
