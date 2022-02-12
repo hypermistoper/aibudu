@@ -1,0 +1,15 @@
+---
+title: "Thomas Sowell Five Best Moments Against The Left"
+image: "https:\/\/i.ytimg.com\/vi\/sWAlPOVQuTo\/hqdefault.jpg"
+vid_id: "sWAlPOVQuTo"
+categories: "News-Politics"
+tags: ["Thomas Sowell","Thomas Sowell on socialism","Thomas Sowell on income"]
+date: "2022-02-13T02:15:29+03:00"
+vid_date: "2021-05-19T16:09:57Z"
+duration: "PT13M30S"
+viewcount: "207518"
+likeCount: "10648"
+dislikeCount: ""
+channel: "Thomas SowellTV"
+---
+{% raw %}Support on Patreon: <br /><a rel="nofollow" target="blank" href="https://www.patreon.com/user?u=49799823">https://www.patreon.com/user?u=49799823</a><br />To get all this content plus free quotes of Dr. Thomas Sowell, visit thomassowellwisdom.com <br /><br />You can support our work by buying any of Dr. Sowell's books:<br />- Intellectuals and society:<br /> <a rel="nofollow" target="blank" href="https://amzn.to/3kYFD5x">https://amzn.to/3kYFD5x</a><br />- Intellectuals and Race:<br /><a rel="nofollow" target="blank" href="https://amzn.to/2OEyAms">https://amzn.to/2OEyAms</a><br />- Basic Economics:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3kYGlzJ">https://amzn.to/3kYGlzJ</a><br />- Charter Schools and their enemies:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3l2P3gs">https://amzn.to/3l2P3gs</a><br />- Discrimination and Disparities:<br /><a rel="nofollow" target="blank" href="https://amzn.to/30w17gu">https://amzn.to/30w17gu</a><br />- Economic Facts and Falacies:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3qy7Zo4">https://amzn.to/3qy7Zo4</a><br />- The Vision of the Anointed: Self-congratulation as a Basis for Social Policy:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3buiOmW">https://amzn.to/3buiOmW</a><br /><br /><br /><br /><br />Thomas Sowell is an American economist and political commentator. He taught economics at Cornell University, the University of California, Los Angeles, and since 1980 at the Hoover Institution at Stanford University, where he is currently a Senior Fellow.<br />This channel helps to promote his teachings and principles of economics and philosophy.<br />Please subscribe to this channel through the link<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC46lOhs-EHKgvjXSjz1r9Ig">https://www.youtube.com/channel/UC46lOhs-EHKgvjXSjz1r9Ig</a><br /><br />FAIR USE NOTICE: This Videos may contain copyrighted (©) material the use of which has not always been specifically authorized by the copyright owner. Such material is made available to advance understanding of ecological, political, human rights, economic, democracy, scientific, moral, ethical, and social justice issues, etc. It is believed that this constitutes a 'fair use' of any such copyrighted material as provided for in section 107 of the US Copyright Law. In accordance with Title 17 U.S.C. Section 107, this material is distributed without profit to those who have expressed a prior general interest in receiving similar information for research and educational purposes.{% endraw %}
