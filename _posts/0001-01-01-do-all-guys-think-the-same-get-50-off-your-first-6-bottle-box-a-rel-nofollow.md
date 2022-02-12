@@ -1,0 +1,15 @@
+---
+title: "Do All Guys Think The Same?"
+image: "https:\/\/i.ytimg.com\/vi\/g-Kt-fOjFls\/hqdefault.jpg"
+vid_id: "g-Kt-fOjFls"
+categories: "Comedy"
+tags: ["knj","kian and jc","kian lawley"]
+date: "2022-02-12T07:45:55+03:00"
+vid_date: "2022-01-20T01:52:12Z"
+duration: "PT33M41S"
+viewcount: "1116101"
+likeCount: "56547"
+dislikeCount: ""
+channel: "David Alvareeezy"
+---
+{% raw %}Get 50% OFF your first 6-bottle box <a rel="nofollow" target="blank" href="https://bit.ly/BrightCellarsAlvareezy">https://bit.ly/BrightCellarsAlvareezy</a> for $53 plus taxes. Bright Cellars is the monthly wine club that matches you with wine that you’ll love. Get started by taking the taste palate quiz to see your personalized matches.<br /><br />If you liked this video please like and comment! helps me out a lot <br /><br />Follow me on TWITCH<br /><br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/davidalvareeezy">https://www.twitch.tv/davidalvareeezy</a><br /><br />FOLLOW ME!<br />David Alvarez: <br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/davidalvareeezy">http://www.twitter.com/davidalvareeezy</a><br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/davidalvareeezy">http://www.instagram.com/davidalvareeezy</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DavidAlvaree...">https://www.facebook.com/DavidAlvaree...</a><br />For business inquires: Please Email me at AlphaMonkeysBusiness@gmail.com<br /><br />video inspired by Jubilee! make sure to check out their channel<br /><a rel="nofollow" target="blank" href="https://youtu.be/mCmoqUqHGCk">https://youtu.be/mCmoqUqHGCk</a><br />--------<br /><br />DIRECTED BY<br />Carlos Alvarez<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/carlosalvareezy/">https://www.instagram.com/carlosalvareezy/</a><br /><br /><br />Produced by Team Playback<br />Website: <a rel="nofollow" target="blank" href="https://www.teamplayback.com">https://www.teamplayback.com</a><br />IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/team.playback/">https://www.instagram.com/team.playback/</a><br />Biz Inquiries: matt@teamplayback.com<br />——————-——————————-<br /><br /><br />follow my FRIENDS!<br />Brian Terada<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/BrianTerada">https://youtube.com/c/BrianTerada</a><br /><br /><br />Kevin Langue<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/KevinLangue">https://youtube.com/c/KevinLangue</a><br /><br /><br />Kian Lawley<br /><a rel="nofollow" target="blank" href="https://youtube.com/user/KianAndJc">https://youtube.com/user/KianAndJc</a><br /><br /><br />Jorge Muñoz<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/JRMun0z">https://youtube.com/c/JRMun0z</a><br /><br /><br />Alex Wassabi<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/Wassabi">https://youtube.com/c/Wassabi</a><br /><br /><br />if you see this comment “I think David shouldn’t be thinking haha happy birthday loser”{% endraw %}
