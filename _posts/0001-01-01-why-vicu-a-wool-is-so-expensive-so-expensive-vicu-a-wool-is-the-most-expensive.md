@@ -1,0 +1,15 @@
+---
+title: "Why Vicuña Wool Is So Expensive | So Expensive"
+image: "https:\/\/i.ytimg.com\/vi\/xSFh0rsidPU\/hqdefault.jpg"
+vid_id: "xSFh0rsidPU"
+categories: "News-Politics"
+tags: ["Business Insider","Business News","So Expensive"]
+date: "2022-02-12T19:47:30+03:00"
+vid_date: "2022-02-12T16:00:34Z"
+duration: "PT9M45S"
+viewcount: "10680"
+likeCount: "487"
+dislikeCount: ""
+channel: "Business Insider"
+---
+{% raw %}Vicuña wool is the most expensive textile in the world. And it’s exceptionally difficult to come by. This ultrasoft material is harvested from its namesake, the elusive vicuña, a cousin to llamas and alpacas. It can only be gathered once every two years, when indigenous communities in the Andes Mountains work with the government and conservation organizations to corral the animals, shear them, and release them back into the wild. Only then can the wool be shipped around the world and made into coats that can cost over $30,000. This shearing process must be delicately executed by skilled experts, so as to keep the vicuña population thriving in their natural habitat. So what does it take to corral the vicuñas? And what makes its wool so expensive?<br /><br />MORE BUSINESS INSIDER VIDEOS:<br />How 7.5 Million Pounds Of Donated Clothes End Up At A Market In Ghana Every Week | World Wide Waste<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Ichj0ac3V_Y">https://www.youtube.com/watch?v=Ichj0ac3V_Y</a><br />Why Sea Urchins Are So Expensive | So Expensive<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=M6joZsJpXWM">https://www.youtube.com/watch?v=M6joZsJpXWM</a><br />How Beijing Spent Billions More Than The Official Olympic Budget | True Cost<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=cvr2Keh64cQ">https://www.youtube.com/watch?v=cvr2Keh64cQ</a><br /><br />------------------------------------------------------<br /><br />#VicunaWool #SoExpensive #BusinessInsider<br /><br />Business Insider tells you all you need to know about business, finance, tech, retail, and more.<br /><br />Visit us at: <a rel="nofollow" target="blank" href="https://www.businessinsider.com">https://www.businessinsider.com</a><br />Subscribe: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/businessinsider">https://www.youtube.com/user/businessinsider</a><br />BI on Facebook: <a rel="nofollow" target="blank" href="https://read.bi/2xOcEcj">https://read.bi/2xOcEcj</a><br />BI on Instagram: <a rel="nofollow" target="blank" href="https://read.bi/2Q2D29T">https://read.bi/2Q2D29T</a><br />BI on Twitter: <a rel="nofollow" target="blank" href="https://read.bi/2xCnzGF">https://read.bi/2xCnzGF</a><br />BI on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Business_Insider/5319643143">https://www.snapchat.com/discover/Business_Insider/5319643143</a><br />Boot Camp on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Boot_Camp/3383377771">https://www.snapchat.com/discover/Boot_Camp/3383377771</a><br /><br />Why Vicuña Wool Is So Expensive | So Expensive{% endraw %}
