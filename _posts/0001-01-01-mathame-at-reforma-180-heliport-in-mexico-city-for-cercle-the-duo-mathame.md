@@ -1,0 +1,15 @@
+---
+title: "Mathame at Reforma 180 heliport in Mexico city for Cercle"
+image: "https:\/\/i.ytimg.com\/vi\/dQjkqyc5nlc\/hqdefault.jpg"
+vid_id: "dQjkqyc5nlc"
+categories: "Music"
+tags: ["cercle","mathame","reforma 180"]
+date: "2022-02-12T23:59:18+03:00"
+vid_date: "2019-11-21T15:00:07Z"
+duration: "PT1H31M44S"
+viewcount: "4270612"
+likeCount: "61197"
+dislikeCount: ""
+channel: "Cercle"
+---
+{% raw %}The duo Mathame playing an exclusive set in Mexico City at Reforma 180 heliport for Cercle.<br />☞ Subscribe our channel for more videos: <a rel="nofollow" target="blank" href="http://bit.ly/2BINQUh">http://bit.ly/2BINQUh</a><br />☞ Subscribe our Spotify playlist: <a rel="nofollow" target="blank" href="https://Cercle.lnk.to/Spotifyplaylist/">https://Cercle.lnk.to/Spotifyplaylist/</a><br />☞ Cercle on Apple Music: <a rel="nofollow" target="blank" href="https://apple.co/3wcY0bf">https://apple.co/3wcY0bf</a><br />☞ Become a Cercle Member: <a rel="nofollow" target="blank" href="https://Cercle.lnk.to/Members">https://Cercle.lnk.to/Members</a><br /><br />☞ Mathame <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/MathameMusic/">https://www.facebook.com/MathameMusic/</a><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/6QSwQEz8CDMg8Rqk8dEkxS?si=eR8ejnYoS8W5uyfidbhQRA">https://open.spotify.com/artist/6QSwQEz8CDMg8Rqk8dEkxS?si=eR8ejnYoS8W5uyfidbhQRA</a><br /><br />19°25'46.6&quot;N 99°09'39.6&quot;W<br /><br />Video credits:<br /><br />Artists: Mathame<br />Venue: Reforma 180 Heliport<br />Produced by Cercle<br />Executive producers: Philippe Tuchmann &amp; Derek Barbolla<br />Film directed by: Pol Souchier &amp; Derek Barbolla<br />Directors of photography: Haytham Omar &amp; Mickaël Fidjili<br />Drone pilot: Jeremie Tridard<br />Stage manager: Aaron Kometa<br />Sound mix &amp; mastering: Laurent de Boisgisson <br />Technical Manager: Aurélien Moisan<br />Post-production: Mathieu Glissant / Saison Unique Production<br /><br />--<br />Special thanks to Adrian Valadez from Dynamic Waves and Diego Jenkins from Reforma 180. <br />Galerie Joseph. <br /><br />This artistic performance has been recorded live. <br /><br />-- <br /><br />Tracks: <br />- Nothing Around us (edit intro) - Afterlife <br /><a rel="nofollow" target="blank" href="https://open.spotify.com/track/6DuTXPpowLA1vk8fzqaLtB?si=SRN2FsAqRpaWhwBFleRYxQ">https://open.spotify.com/track/6DuTXPpowLA1vk8fzqaLtB?si=SRN2FsAqRpaWhwBFleRYxQ</a><br />- Mystery - Adriatique (Tale of us &amp; Mathame remix) - Afterlife<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/track/3fdXEMBTjHNJ5Bug5c7rZi?si=VjQNafEATKCKUwdHokECeA">https://open.spotify.com/track/3fdXEMBTjHNJ5Bug5c7rZi?si=VjQNafEATKCKUwdHokECeA</a><br />- Mathame - Skywalking (orginal mix) - Afterlife<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/track/0so587BGO1K3OU3fMqF25I?si=5pFsEaEMQqCSLNW64KLmcg">https://open.spotify.com/track/0so587BGO1K3OU3fMqF25I?si=5pFsEaEMQqCSLNW64KLmcg</a><br /><br />______<br /><br />Follow us on <a rel="nofollow" target="blank" href="http://www.cercle.live">http://www.cercle.live</a>{% endraw %}
