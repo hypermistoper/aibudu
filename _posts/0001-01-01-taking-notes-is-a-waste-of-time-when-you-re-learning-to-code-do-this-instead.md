@@ -1,0 +1,15 @@
+---
+title: "Taking Notes is a WASTE OF TIME When You're Learning To Code! DO THIS INSTEAD!"
+image: "https:\/\/i.ytimg.com\/vi\/VCWzQpUwsaw\/hqdefault.jpg"
+vid_id: "VCWzQpUwsaw"
+categories: "Education"
+tags: ["self taught programmer","self taught web developer","self taught developer"]
+date: "2022-02-12T09:03:59+03:00"
+vid_date: "2021-05-05T18:30:41Z"
+duration: "PT10M53S"
+viewcount: "211050"
+likeCount: "10361"
+dislikeCount: ""
+channel: "Dorian Develops"
+---
+{% raw %}I wasted a lot of time taking notes when I first began teaching myself how to code. In this video I'll tell you why you shouldn't take notes when you're learning to code and what you can do instead that will help you when you start applying for your first software developer job.<br /><br />Buy me a beer or a coffee <a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/doriandevelops">https://www.buymeacoffee.com/doriandevelops</a><br /><br />Discord (<a rel="nofollow" target="blank" href="https://discord.gg/XckBsDRQxg)">https://discord.gg/XckBsDRQxg)</a><br /><br />Here are some affiliate links for the gear that I use in my home office and gear that I use to make my YouTube videos<br /><br />______Home Office_____ <br />MacBook Pro (<a rel="nofollow" target="blank" href="https://amzn.to/32Vsdyr)">https://amzn.to/32Vsdyr)</a><br />Monitor (<a rel="nofollow" target="blank" href="https://amzn.to/32Z7euy)">https://amzn.to/32Z7euy)</a><br />Keyboard (<a rel="nofollow" target="blank" href="https://amzn.to/2SIquYP)">https://amzn.to/2SIquYP)</a><br />Mouse (<a rel="nofollow" target="blank" href="https://amzn.to/3ddKdZK)">https://amzn.to/3ddKdZK)</a><br />Noise Canceling Headphones (<a rel="nofollow" target="blank" href="https://amzn.to/2EOKB4e)">https://amzn.to/2EOKB4e)</a><br />Standing Desk Base (<a rel="nofollow" target="blank" href="https://amzn.to/3bpKtEb)">https://amzn.to/3bpKtEb)</a> with Ikea Counter top (<a rel="nofollow" target="blank" href="https://www.ikea.com/us/en/cat/kitchen-countertops-24264/)">https://www.ikea.com/us/en/cat/kitchen-countertops-24264/)</a><br />Ergo Stool (<a rel="nofollow" target="blank" href="https://amzn.to/3jM6q3g)">https://amzn.to/3jM6q3g)</a><br /><br />_____YouTube Gear_____<br />Camera Canon EOS M50 (<a rel="nofollow" target="blank" href="https://amzn.to/3gS3hg9)">https://amzn.to/3gS3hg9)</a><br />GoPro Hero 8 (<a rel="nofollow" target="blank" href="https://amzn.to/3lLRC6k)">https://amzn.to/3lLRC6k)</a><br />Blue Yeti Blackout - Studio Mic (<a rel="nofollow" target="blank" href="https://amzn.to/3gTTEgX)">https://amzn.to/3gTTEgX)</a><br />Rode VideoMicro Mic - Vlogging Mic (<a rel="nofollow" target="blank" href="https://amzn.to/2Z2tOl5)">https://amzn.to/2Z2tOl5)</a><br />Joby Gorilla Pod 5k(<a rel="nofollow" target="blank" href="https://amzn.to/3lNvh8r)">https://amzn.to/3lNvh8r)</a><br />SoftBox Lights (<a rel="nofollow" target="blank" href="https://amzn.to/31Wx2Zi)">https://amzn.to/31Wx2Zi)</a><br />Green Screen Setup (<a rel="nofollow" target="blank" href="https://amzn.to/2EVv4iX)">https://amzn.to/2EVv4iX)</a><br /><br />#programming #webdevelopment #softwareengineer{% endraw %}
