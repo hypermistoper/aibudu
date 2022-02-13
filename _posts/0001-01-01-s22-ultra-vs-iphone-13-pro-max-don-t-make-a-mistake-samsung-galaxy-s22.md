@@ -1,0 +1,15 @@
+---
+title: "S22 Ultra vs iPhone 13 Pro Max – DON'T Make a Mistake!"
+image: "https:\/\/i.ytimg.com\/vi\/PAuQqgOZggU\/hqdefault.jpg"
+vid_id: "PAuQqgOZggU"
+categories: "Science-Technology"
+tags: ["S22 Ultra","S22 ultra vs iphone 13 pro max","s22 ultra vs 13 pro max"]
+date: "2022-02-13T08:33:07+03:00"
+vid_date: "2022-02-11T17:39:37Z"
+duration: "PT8M52S"
+viewcount: "234698"
+likeCount: "7296"
+dislikeCount: ""
+channel: "ZONEofTECH"
+---
+{% raw %}Samsung Galaxy S22 Ultra vs iPhone 13 Pro Max. Comparing the Design, Display, Camera, Performance, Features, Battery &amp; Value. Which one is good for what and which one should you go for? <br /><br />😁 Subscribe - <a rel="nofollow" target="blank" href="https://goo.gl/yMWV8c">https://goo.gl/yMWV8c</a><br />🤳 Instagram - <a rel="nofollow" target="blank" href="http://instagram.com/ZONEofTECH">http://instagram.com/ZONEofTECH</a><br />🐤 Twitter - <a rel="nofollow" target="blank" href="http://twitter.com/ZONEofTECH">http://twitter.com/ZONEofTECH</a><br />📘 Facebook - <a rel="nofollow" target="blank" href="http://facebook.com/ZONEofTECH">http://facebook.com/ZONEofTECH</a><br />📱 Concepts - <a rel="nofollow" target="blank" href="https://instagram.com/ZONEofCONCEPTS">https://instagram.com/ZONEofCONCEPTS</a><br />❤️ Team - <a rel="nofollow" target="blank" href="https://www.zoneoftech.com/meet-the-team">https://www.zoneoftech.com/meet-the-team</a><br /><br />🍿 Support ZONEofTECH and get Exclusive Rewards! - <a rel="nofollow" target="blank" href="https://youtube.com/zoneoftech/join">https://youtube.com/zoneoftech/join</a><br /><br />Business Enquiries: business@zoneoftech.com<br /><br />Product Links:<br />▶ S22 Ultra (International) - <a rel="nofollow" target="blank" href="https://geni.us/ZoTS22Ultra">https://geni.us/ZoTS22Ultra</a><br />▶ S22 Ultra (UK) - <a rel="nofollow" target="blank" href="https://tidd.ly/3oDgzUx">https://tidd.ly/3oDgzUx</a><br />▶ iPhone 13 Pro Max - <a rel="nofollow" target="blank" href="https://geni.us/ZoTiPhone13ProMax">https://geni.us/ZoTiPhone13ProMax</a><br />▶ My Favourite USB C Charger - <a rel="nofollow" target="blank" href="https://geni.us/ZoTankerNanoCharger">https://geni.us/ZoTankerNanoCharger</a><br />▶ Anker USB C Cable - <a rel="nofollow" target="blank" href="https://geni.us/ZoTankerUSB-Ccable">https://geni.us/ZoTankerUSB-Ccable</a><br />▶ Anker USB C to Lightning Cable - <a rel="nofollow" target="blank" href="https://geni.us/ZoTusb-cLightningCable">https://geni.us/ZoTusb-cLightningCable</a><br /><br />▶ GRID Disassembled Apple Frame - <a rel="nofollow" target="blank" href="https://shrsl.com/3anpd">https://shrsl.com/3anpd</a> (Code ZT10 for 10% off)<br />▶ Support ZONEofTECH when shopping through Amazon - <a rel="nofollow" target="blank" href="https://geni.us/ZoTAmazon">https://geni.us/ZoTAmazon</a><br /><br />Disclosure:<br />As an affiliate we earn a small commission from qualifying purchases made using the links above.<br /><br />Music from EpidemicSound <br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/2wo1w7">https://www.epidemicsound.com/referral/2wo1w7</a>{% endraw %}
