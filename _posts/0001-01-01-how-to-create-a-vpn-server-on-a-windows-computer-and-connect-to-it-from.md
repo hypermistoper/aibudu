@@ -1,0 +1,15 @@
+---
+title: "How to Create a VPN Server on a Windows Computer and Connect to It from Another Computer  💻↔️🖥️"
+image: "https:\/\/i.ytimg.com\/vi\/YH2nmDOYoz0\/hqdefault.jpg"
+vid_id: "YH2nmDOYoz0"
+categories: "Science-Technology"
+tags: ["VPN","Windows 10","how to create a server"]
+date: "2022-02-13T23:06:28+03:00"
+vid_date: "2018-06-11T09:30:49Z"
+duration: "PT10M39S"
+viewcount: "130148"
+likeCount: "1233"
+dislikeCount: ""
+channel: "Hetman Software: Data Recovery for Windows"
+---
+{% raw %}👍 Watch you how to create a VPN server on a Windows computer and how to connect to such server from another PC.<br />Such VPN server can be used: <br />• for anonymous browsing the Web, as the real IP address is concealed;<br />• to bypass the blocks set by the network administrator, or restrictions of the Internet provider;<br />• to encrypt the transmitted data;<br />• to access blocked websites from your country;<br />• to enable downloading files from p2p networks (such as torrents);<br />• to protect your computer when connecting to free WiFi.<br /><br />Content:<br />0:00 - Intro;<br />0:14 - How can a VPN server be used?<br />1:29 - Creating a VPN server on a computer<br />2:23 - Share a folder<br />3:05 - VPN Server Connection<br />4:58 - Making changes to the settings of the Incoming connection of the server computer<br />5:52 - Accessing a shared folder<br />7:35 - Connecting to a VPN Server on a Router<br />9:03 - Internet connection<br /><br />Folders “$Windows.~BT” and “$Windows.~WS.” What Are They For and Can You Delete Them: <a rel="nofollow" target="blank" href="https://hetmanrecovery.com/recovery_news/folders-windows-bt-and-windows-ws-what-are-they-for-and-can-you-delete-them.htm">https://hetmanrecovery.com/recovery_news/folders-windows-bt-and-windows-ws-what-are-they-for-and-can-you-delete-them.htm</a><br /><br />Certainly, if you need VPN to bypass blocking of some websites by your provider, or just to hide your IP address when surfing the web, you don’t have to set up a VPN server. You can use ready-made services instead.  You can learn more from another video. Find the link in the description: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=16eIoGQIWqM.">https://www.youtube.com/watch?v=16eIoGQIWqM.</a><br /><br />How to View and Change the Password to DLink, TPLink, Asus, Netis, Zyxel, ZTE Router or Modem - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=NB6YxbC-ykQ.">https://www.youtube.com/watch?v=NB6YxbC-ykQ.</a><br /><br />That is all for now.  If you find this video useful, hit the Like button below. Subscribe to Hetman Software channel. Thank you for watching. Good luck.<br /><br />Other videos: #Windows10, #VPN, #Server, #Client.<br /><br />Playlist: Tuning and Adjusting Windows 10: Restore Points, Resetting Passwords, Backup, Defragmentation, Compatibility Mode - <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLWfvrWYvsWiIIvLGyaCgBbwreA08y_ycT.">https://www.youtube.com/playlist?list=PLWfvrWYvsWiIIvLGyaCgBbwreA08y_ycT.</a>{% endraw %}
