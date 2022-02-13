@@ -1,0 +1,15 @@
+---
+title: "I'm in a Super Bowl Commercial because of THIS invention!"
+image: "https:\/\/i.ytimg.com\/vi\/1q02ZTq6Rhk\/hqdefault.jpg"
+vid_id: "1q02ZTq6Rhk"
+categories: "Entertainment"
+tags: ["Unnecessary Inventions","3d Printing","3d Printer"]
+date: "2022-02-14T00:03:32+03:00"
+vid_date: "2022-02-11T23:44:03Z"
+duration: "PT8M8S"
+viewcount: "27568"
+likeCount: "2549"
+dislikeCount: ""
+channel: "Unnecessary Inventions"
+---
+{% raw %}Spice up your Super Bowl with Capatin Morgan: <a rel="nofollow" target="blank" href="https://punchbowl.captainmorgan.com/en/gate">https://punchbowl.captainmorgan.com/en/gate</a><br /><br />#ad The @Captain Morgan USA  Super Bowl Punch Bowl &amp; Double Ladle *TM Emoji* Spice up your Super Bowl LVI watch party with this<br />revolutionary piece of technology to enhance your football viewing and drinking experience. If you are lucky enough to have one of these at your party, fill the bowl with your freshly made punch and connect your phone to the bowl’s Wi-Fi network. From there, users can operate via the Bluetooth instructions in either Game Mode or Party Mode to control lights, sounds, and super-sonic mixing capabilities.The Bowl even keeps up with real-time events during the game so you don’t miss a minute of the action! <br /><br />🚨Subscribe | <a rel="nofollow" target="blank" href="http://bit.ly/UnnecessarySubscribe">http://bit.ly/UnnecessarySubscribe</a> <br /><br />🙃Where You Can Find Me 🙃<br />📱Text me +1 (802) 392-0259<br />🚨Subscribe | <a rel="nofollow" target="blank" href="http://bit.ly/UnnecessarySubscribe">http://bit.ly/UnnecessarySubscribe</a><br />🛒Shop | <a rel="nofollow" target="blank" href="https://www.unnecessaryinventions.com/shop/">https://www.unnecessaryinventions.com/shop/</a><br />🤳🏻Instagram | <a rel="nofollow" target="blank" href="https://www.instagram.com/unnecessaryinventions/">https://www.instagram.com/unnecessaryinventions/</a><br />💡Invention Portfolio | <a rel="nofollow" target="blank" href="https://www.unnecessaryinventions.com/">https://www.unnecessaryinventions.com/</a><br />👤Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/unnecessaryinventions/">https://www.facebook.com/unnecessaryinventions/</a><br />👽Subreddit | <a rel="nofollow" target="blank" href="https://www.reddit.com/r/UnnecessaryInventions/">https://www.reddit.com/r/UnnecessaryInventions/</a><br />🐦Twitter | <a rel="nofollow" target="blank" href="https://www.twitter.com/mattyxb">https://www.twitter.com/mattyxb</a><br />💃🏻TikTok | <a rel="nofollow" target="blank" href="https://www.tiktok.com/@unnecessaryinventions">https://www.tiktok.com/@unnecessaryinventions</a><br /><br />💰Get up to $500 off a GLOWFORGE Laser Cutter💰<br /><a rel="nofollow" target="blank" href="https://www.glowforge.com/unnecessaryinventions">https://www.glowforge.com/unnecessaryinventions</a><br /><br />_____________________<br />Unnecessary Inventions is the brainchild of product designer Matty Benedetto, where he designs &amp; builds 2-4 brand new products each week that solve problems that don't exist.{% endraw %}
