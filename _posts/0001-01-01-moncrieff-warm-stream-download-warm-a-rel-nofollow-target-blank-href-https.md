@@ -1,0 +1,15 @@
+---
+title: "Moncrieff - Warm"
+image: "https:\/\/i.ytimg.com\/vi\/_bDStmosc9s\/hqdefault.jpg"
+vid_id: "_bDStmosc9s"
+categories: "Entertainment"
+tags: ["Moncrieff","warm","officialmusicvideo"]
+date: "2022-02-15T01:33:19+03:00"
+vid_date: "2022-01-21T17:00:10Z"
+duration: "PT3M20S"
+viewcount: "286081"
+likeCount: "743"
+dislikeCount: ""
+channel: "Moncrieff"
+---
+{% raw %}Stream/Download Warm: <a rel="nofollow" target="blank" href="https://energie.lnk.to/Moncrieff_Warm_SingleWe">https://energie.lnk.to/Moncrieff_Warm_SingleWe</a><br />Video Directed and Produced by Antoine Poulard<br /><br /><br />Moncrieff<br />Subscribe to Moncrieff: <a rel="nofollow" target="blank" href="https://lnkfi.re/MoncrieffYT">https://lnkfi.re/MoncrieffYT</a><br />Follow Moncrieff on Instagram: <a rel="nofollow" target="blank" href="https://lnkfi.re/MoncInsta">https://lnkfi.re/MoncInsta</a><br />Like Moncrieff on Facebook:<a rel="nofollow" target="blank" href="https://lnkfi.re/MoncrieffFB">https://lnkfi.re/MoncrieffFB</a><br />Follow Moncrieff on Twitter: <a rel="nofollow" target="blank" href="https://lnkfi.re/MoncrieffTwitter">https://lnkfi.re/MoncrieffTwitter</a><br /><br /><br />Director: Antoine Poulard<br />Assistant: Joe Webster<br />Starofshow: Sarah Teare<br />Colourist: Vanya Tomova<br /><br /><br />------------------------------------------------------------------------------<br /><br />Lyrics<br /><br />I remember everything<br />the picnic in the park<br />How the rain played on the roof that night<br />and movies in the dark<br />I know you’re so afraid to sing<br />but baby that’s my favourite sound <br />I love all the all these little things<br />That make who you are  <br /><br />And I know that we’re so far apart<br />I see your face when I look to the stars <br />Oh I  <br /><br />I'm so far from perfect <br />I get so Insecure <br />But you pour holy water <br />Over all of my flaws <br />And I’ll always be heartless<br />Cause it’ll always be yours <br />On your coldest of nights babe<br />I’ll be there keeping you warm<br />I’ll be there keeping you warm<br /><br />I notice how your top lip shakes <br />Whenever you're mad <br />I can tell just when that smile is fake<br />I know thats when your sad <br />And all these little memories<br />Play me like a melody<br />But I don’t this song to end <br />It belongs to you and me <br /><br />Oh I'm so far from perfect <br />I get so Insecure <br />But you pour holy water <br />Over all of my flaws <br />And I’ll always be heartless<br />It’ll always be yours <br />On your coldest of nights babe<br />I’ll be there keeping you warm<br />I'll be there keeping you warm<br /><br /><br />I'm so far from perfect <br />I get so Insecure <br />But you pour holy water <br />Over all of my flaws <br />And I’ll always be heartless<br />It’ll always be yours <br />On your coldest of nights babe<br />I’ll be there keeping you warm<br />I'll be there keeping you warm<br /><br />I'll be there keeping you warm<br />I'll be there keeping you warm{% endraw %}
