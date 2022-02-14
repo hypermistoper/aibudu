@@ -1,0 +1,15 @@
+---
+title: "5. Courage to Lead | THE 5 PRACTICES"
+image: "https:\/\/i.ytimg.com\/vi\/gPcgEBbNQvw\/hqdefault.jpg"
+vid_id: "gPcgEBbNQvw"
+categories: "People-Blogs"
+tags: ["simon sinek","sinek simon","sinek"]
+date: "2022-02-14T22:55:54+03:00"
+vid_date: "2019-11-07T11:00:13Z"
+duration: "PT13M42S"
+viewcount: "350678"
+likeCount: "7859"
+dislikeCount: ""
+channel: "Simon Sinek"
+---
+{% raw %}It's unbelievably hard to keep a Just Cause in mind as the guiding principle especially if you have to make decisions that hurt in the short term. <br /><br />It's hard to lead with an infinite mindset and it takes courage.<br /><br />This is the fifth of The 5 Practices outlined in THE INFINITE GAME.<br /><br />+ + +<br /><br />Simon is an unshakable optimist who believes in a bright future and our ability to build it together. Described as “a visionary thinker with a rare intellect,” Simon teaches leaders and organizations how to inspire people. With a bold goal to help build a world in which the vast majority of people wake up every single day feeling inspired, feel safe at work, and feel fulfilled at the end of the day, Simon is leading a movement to inspire people to do the things that inspire them. Simon is the author of multiple best-selling books including Start With Why, Leaders Eat Last, Together is Better, and Find Your Why. His new book, The Infinite Game, will be released in 2019.<br /><br />Simon’s WHY: To inspire people to do the things that inspire them so that, together, each of us can change our world for the better.<br /><br />+ + +<br /><br />Website: <a rel="nofollow" target="blank" href="http://simonsinek.com/">http://simonsinek.com/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/simonsinek/">https://instagram.com/simonsinek/</a><br />Linkedin: <a rel="nofollow" target="blank" href="https://linkedin.com/in/simonsinek/">https://linkedin.com/in/simonsinek/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/simonsinek">https://twitter.com/simonsinek</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/simonsinek">https://www.facebook.com/simonsinek</a><br /><br />Simon’s books:<br />The Infinite Game: <a rel="nofollow" target="blank" href="https://simonsinek.com/product/the-infinite-game/">https://simonsinek.com/product/the-infinite-game/</a><br />Start With Why: <a rel="nofollow" target="blank" href="https://simonsinek.com/product/start-with-why/">https://simonsinek.com/product/start-with-why/</a><br />Find Your Why: <a rel="nofollow" target="blank" href="https://simonsinek.com/product/find-your-why/">https://simonsinek.com/product/find-your-why/</a><br />Leaders Eat Last: <a rel="nofollow" target="blank" href="https://simonsinek.com/product/leaders-eat-last/">https://simonsinek.com/product/leaders-eat-last/</a><br />Together is Better: <a rel="nofollow" target="blank" href="https://simonsinek.com/product/together-is-better/">https://simonsinek.com/product/together-is-better/</a>{% endraw %}
