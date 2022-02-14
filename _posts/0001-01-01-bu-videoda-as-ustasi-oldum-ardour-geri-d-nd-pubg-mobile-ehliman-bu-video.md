@@ -1,0 +1,15 @@
+---
+title: "Bu Videoda AS USTASI Oldum!! ARDOUR Geri Döndü! - PUBG Mobile (Ehliman)"
+image: "https:\/\/i.ytimg.com\/vi\/oXG3lzGwgJ4\/hqdefault.jpg"
+vid_id: "oXG3lzGwgJ4"
+categories: "Gaming"
+tags: ["pubg","pubg mobile","pubg mobile gameplay"]
+date: "2022-02-14T12:47:35+03:00"
+vid_date: "2022-02-13T15:00:21Z"
+duration: "PT16M44S"
+viewcount: "381"
+likeCount: "136"
+dislikeCount: ""
+channel: "ARDOUR"
+---
+{% raw %}Bu video da as ustası oldum, kaykay nasıl alınır. Rank maçı one man squad yəni 1vs4 oynadım. Ardour olaraq PUBG Mobile ipad 8 le geri döndüm. Xoş izləmələr.<br /><br />Videoya like ataraq, kanala abone olaraq dəstək ola bilərsiniz.<br /><br />Dəstəyiniz üçün minnətdaram!<br />Sosial şəbəkələrdə məni izləyə bilərsiniz:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/ardour.pubg">https://www.instagram.com/ardour.pubg</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/ebpg2wh">https://discord.gg/ebpg2wh</a><br /><br />Digər Pubg Mobile videolarımı da nəzərdən keçirə bilərsiniz:<br /><br />İLK FACECAM'LI VİDEO'M | 24+ KİLLS | ARDOUR 2021 - PUBG Mobile<br /><a rel="nofollow" target="blank" href="https://youtu.be/6AL6JejJHsw">https://youtu.be/6AL6JejJHsw</a><br />YENİ MODU YOXLADIM | GÜC ZIRHI | ARDOUR - PUBG MOBİLE<br /><a rel="nofollow" target="blank" href="https://youtu.be/kV3hDpdEk0o">https://youtu.be/kV3hDpdEk0o</a><br />SINIRSIZ BOMBA BUGU? | 4100+ HASAR | ARDOUR - PUBG Mobile<br /><a rel="nofollow" target="blank" href="https://youtu.be/z-lmKGHW9CA">https://youtu.be/z-lmKGHW9CA</a><br />TAC LİGİNDE 1VS4 YARGI 4300+ HASAR | TAC LİGİ SAVAŞLARI / PUBG MOBILE ARDOUR<br /><a rel="nofollow" target="blank" href="https://youtu.be/RDc4c7FZiDQ">https://youtu.be/RDc4c7FZiDQ</a><br />BÜTÜN ERANGEL AWM OLARSA NE OLAR? AWM SAVAŞI PUBG MOBILE ARDOUR<br /><a rel="nofollow" target="blank" href="https://youtu.be/gjjV4V8TuuY">https://youtu.be/gjjV4V8TuuY</a><br />BOOTCAMPDEN SAĞ ÇIXARSAM VİDEO BİTER!! #2 | ZORLU CHALLENGE / PUBG MOBILE ARDOUR<br /><a rel="nofollow" target="blank" href="https://youtu.be/DTgpOTFyApg">https://youtu.be/DTgpOTFyApg</a><br />KD NASIL KASILIR? BOT MEKANLARI LİVİK ERANGEL SANHOK - PUBG Mobile<br /><a rel="nofollow" target="blank" href="https://youtu.be/2WJe6IeYxvE">https://youtu.be/2WJe6IeYxvE</a><br />3 GÜNDE NASIL FATİH OLUNUR? EN HIZLI RANK KASMA TAKTİKLERİ! 19 SEZON FATİH OLMA  | PUBG MOBILE<br /><a rel="nofollow" target="blank" href="https://youtu.be/CrXdsh8Zik8">https://youtu.be/CrXdsh8Zik8</a><br />BEDAVA RP ALDIM! SAÇ SAKAL GELDİ! 19 SEZON 1-100 LEVEL! PUBG MOBILE BEDAVA RP NASIL ALINIR?<br /><a rel="nofollow" target="blank" href="https://youtu.be/ZhX6appLsts">https://youtu.be/ZhX6appLsts</a><br /><br />Playlistlər: <br />1v4 GamePlay: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLoj7Ky7P_MHz-dm12G9V0psWze60dBEqO">https://youtube.com/playlist?list=PLoj7Ky7P_MHz-dm12G9V0psWze60dBEqO</a><br />#pubg #pubgmobile #ArdourPubg #TeamPUBGM #gameplay{% endraw %}
