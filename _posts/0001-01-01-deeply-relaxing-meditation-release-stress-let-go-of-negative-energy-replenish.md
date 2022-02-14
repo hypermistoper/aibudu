@@ -1,0 +1,15 @@
+---
+title: "Deeply Relaxing Meditation; Release Stress; Let Go of Negative Energy; Replenish & Re-Balance"
+image: "https:\/\/i.ytimg.com\/vi\/6LWLBcoLEck\/hqdefault.jpg"
+vid_id: "6LWLBcoLEck"
+categories: "Howto-Style"
+tags: ["positive thinking","meditation","positive meditation"]
+date: "2022-02-14T17:10:00+03:00"
+vid_date: "2020-03-27T22:30:00Z"
+duration: "PT28M49S"
+viewcount: "14329"
+likeCount: "271"
+dislikeCount: ""
+channel: "Linda Hall Meditation"
+---
+{% raw %}This deeply relaxing and soothing meditation for #relaxation, managing #anxiety, and releasing #stress, helps you let go of negative thinking and eases physical and mental tension through mindfulness practice,  breathing techniques and #self-compassion. <br /><br />This meditation will help to boost positive thinking, increase self-worth, nurture self-kindness,  #improvementalhealth and help with #sleep<br /><br /> If you've enjoyed this meditation, check-out my course 'Protect Your Body From Daily Stress' on Insight Timer App: <a rel="nofollow" target="blank" href="http://insig.ht/course_protect-your-body-from-daily-stress">http://insig.ht/course_protect-your-body-from-daily-stress</a><br /><br />Guided meditation and mindfulness practice has been proven to help depression, stress and anxiety. Begin your journey through meditation with Linda Hall, subscribe now to get the latest video in your inbox.<br /><br />If you've enjoyed this video please like, share and comment and if have questions, feel free to reach out in the section below.<br /><br />Music: 'Silent Waves' by Silencio Music. Licensed by Silencio Music.<br />--------------------------------------------------------------------------------------------------------<br />I am Linda Hall, and welcome to my YouTube videos. I hope these guided meditations nourish and support you. They come from the heart. The inspiration for my meditations is drawn from my own personal experience as much as from all the people I've had the privilege to teach over the years. <br /><br />Subscribe to my channel here: <a rel="nofollow" target="blank" href="http://bit.ly/AudioMeditation">http://bit.ly/AudioMeditation</a><br /><br />Visit my website: <a rel="nofollow" target="blank" href="https://www.lindahallmeditation.com/">https://www.lindahallmeditation.com/</a><br /><br />Audios by Linda Hall available to buy: <a rel="nofollow" target="blank" href="http://www.audiomeditation.co.uk/">http://www.audiomeditation.co.uk/</a><br /><br />Follow me on Social Media:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/lindahallme...">https://www.instagram.com/lindahallme...</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/mindease/">https://twitter.com/mindease/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/audiomeditation">https://www.facebook.com/audiomeditation</a><br />Facebook Linda Hall: <a rel="nofollow" target="blank" href="https://www.facebook.com/linda.hall.3...">https://www.facebook.com/linda.hall.3...</a><br />Category<br />How-to &amp; Style<br />Licence<br />Standard YouTube Licence{% endraw %}
