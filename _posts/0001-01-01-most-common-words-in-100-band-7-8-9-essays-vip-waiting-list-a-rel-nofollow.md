@@ -1,0 +1,15 @@
+---
+title: "Most Common Words in 100 Band 7, 8 + 9 Essays"
+image: "https:\/\/i.ytimg.com\/vi\/AaZvMJNxALs\/hqdefault.jpg"
+vid_id: "AaZvMJNxALs"
+categories: "Education"
+tags: ["IELTS","IELTS Writing","Most Common Words"]
+date: "2022-02-14T22:40:21+03:00"
+vid_date: "2022-01-26T10:00:10Z"
+duration: "PT15M15S"
+viewcount: "88125"
+likeCount: "3229"
+dislikeCount: ""
+channel: "IELTS Advantage"
+---
+{% raw %}VIP Waiting List - <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/join-the-waiting-list?el=youtubedesc">https://www.ieltsadvantage.com/join-the-waiting-list?el=youtubedesc</a><br /><br />***<br /><br />Do you struggle to write a Band 7+ essay? Do you try to use as many ‘high-level’ words as possible? Do you try to avoid repeating a word you’ve already used? Have you received advice from a teacher or an online video that hasn’t improved your score? <br /><br />We recently analysed 100 essays written by our VIP students that achieved a Band 7, 8 or 9. The data showed the most commonly used words in these essays, and the results might surprise you. To see what they were, watch the video above.<br /><br />***<br /><br />More help:<br /><br />VIP Waiting List - <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/join-the-waiting-list?el=youtubedesc">https://www.ieltsadvantage.com/join-the-waiting-list?el=youtubedesc</a><br /><br />IELTS Writing Task 1: <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/writing-task-1/?el=youtubedesc">https://www.ieltsadvantage.com/writing-task-1/?el=youtubedesc</a><br /><br />IELTS Writing Task 2: <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/writing-task-2/?el=youtubedesc">https://www.ieltsadvantage.com/writing-task-2/?el=youtubedesc</a><br /><br />IELTS Speaking: <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/speaking/?el=youtubedesc">https://www.ieltsadvantage.com/speaking/?el=youtubedesc</a><br /><br />IELTS Reading: <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/reading/?el=youtubedesc">https://www.ieltsadvantage.com/reading/?el=youtubedesc</a><br /><br />IELTS Listening: <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/listening/?el=youtubedesc">https://www.ieltsadvantage.com/listening/?el=youtubedesc</a><br /><br />IELTS Vocabulary: <a rel="nofollow" target="blank" href="https://www.ieltsadvantage.com/vocabulary/?el=youtubedesc">https://www.ieltsadvantage.com/vocabulary/?el=youtubedesc</a><br /><br /><br />*** <br /><br />Join the IELTS Advantage community!<br /><br />Facebook: facebook.com/IELTSAdvantage<br />Instagram: @ielts_advantage<br />Website: www.ieltsadvantage.com?el=youtubedesc<br />Email: chris@ieltsadvantage.com<br /><br />***<br />Any questions or feedback? <br /><br />Let us know in the comments below 👇 or email the team here: <br />chris@ieltsadvantage.com<br /><br />We answer every email we get and we’re always happy to help.<br /><br />#IELTS #IELTSWriting #IELTSTest{% endraw %}
