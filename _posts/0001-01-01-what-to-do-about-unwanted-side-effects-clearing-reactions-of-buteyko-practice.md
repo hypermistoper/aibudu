@@ -1,0 +1,15 @@
+---
+title: "What to do about unwanted side effects (Clearing reactions) of Buteyko practice - Janet Brindley"
+image: "https:\/\/i.ytimg.com\/vi\/Ct7BEHH4uzU\/hqdefault.jpg"
+vid_id: "Ct7BEHH4uzU"
+categories: "Howto-Style"
+tags: ["Buteyko side effects","catarrh","ree online Buteyko"]
+date: "2022-02-15T20:10:53+03:00"
+vid_date: "2021-01-28T10:22:02Z"
+duration: "PT3M54S"
+viewcount: "459"
+likeCount: "9"
+dislikeCount: ""
+channel: "Just Buteyko"
+---
+{% raw %}Buteyko Breathwork teacher Janet Brindley talks about possible side effects of Buteyko and what to do about them.  For one-to-one online tuition with Janet look at <a rel="nofollow" target="blank" href="https://www.buteykobreathing.org/buteyko-teachers/janet-brindley/">https://www.buteykobreathing.org/buteyko-teachers/janet-brindley/</a><br /><br />The symptoms of Clearing reactions vary greatly between individuals, but most often they are cold-like symptoms such as:<br />Headaches<br />Increased mucus production- such as a runny nose<br />Feeling generally unwell<br />Nausea<br />Muscle and joint aches<br />Diarrhoea<br />Mild fever<br /><br />How to overcome clearing reactions?<br />Firstly reduce the amount of air hunger in your Buteyko practice for the next couple of days.<br />Many people find that taking simple medicines - such as those you would normally use if you catch a cold.<br /><br />The traditional treatment recommended by Professor Buteyko is to take 1/3 teaspoon of sea-salt dissolved in a large glass of water. This can work well with symptoms such as headaches.<br /><br />The most persistent of these clearing reactions is mucus discharge from the nose - a very runny nose - especially in people who haven’t used their nose to breathe for a very long time. The symptoms may get worse for up to 14 days and then the nose gradually becomes clearer and clearer. Once the nose has cleared it tends to says clear. It may take a month or more before the nose is completely clear.<br /><br />People sometimes interpret these reactions as sign that an underlying condition is getting worse, but that is not the case. The way this works is that things seems to get worse for a short time before they start to get much better.<br /><br />When might I get clearing reactions?<br />Most clearing reactions happen in the first week of practice, but there can be a second reaction with every 10 second increase in CP. So people starting with a CP of 10 will often experience symptoms when their CP hits around 20.<br />Here again if you are having problems an experienced Buteyko teacher will help guide you through and provide encouragement and advice on how to cope with symptoms without giving up Buteyko.<br /><br />Breathlessness is not a clearing reaction<br />It is important to recognise that feeling breathlessness and symptoms of asthma, such as breathlessness, are not part of a clearing reaction. If you have asthma or breathlessness symptoms then this should be treated as directed by your doctor.<br /><br />So, take it steady, try to practise 3 Buteyko Sets each day and if you have time practise another two making 5 sets a day, but no more than this.{% endraw %}
