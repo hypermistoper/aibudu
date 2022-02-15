@@ -1,0 +1,15 @@
+---
+title: "Alok – Side Effect (feat. Au\/Ra) [Official Music Video] (#360RA) – Use 🎧"
+image: "https:\/\/i.ytimg.com\/vi\/a5dx4ueCn44\/hqdefault.jpg"
+vid_id: "a5dx4ueCn44"
+categories: "Music"
+tags: ["Alok","side effect","side"]
+date: "2022-02-15T03:03:26+03:00"
+vid_date: "2022-02-04T15:00:00Z"
+duration: "PT2M25S"
+viewcount: "691322"
+likeCount: "30340"
+dislikeCount: ""
+channel: "Alok"
+---
+{% raw %}PUT YOUR HEADPHONES ON for a simulated 360 Reality Audio experience 🎧<br />“Side Effect” was mixed with an immersive #360RA experience in mind, use headphones for full effect. <br />Stream “Side Effect” in 360 Reality Audio on Amazon Music Unlimited, Deezer and TIDAL and enjoy the experience through any headphones and supporting speakers.<br />Check it out here: <a rel="nofollow" target="blank" href="https://spinnin.lnk.to/side-effect">https://spinnin.lnk.to/side-effect</a><br />Get a free trial: <a rel="nofollow" target="blank" href="https://smarturl.it/ix71d1?utm_source=alok">https://smarturl.it/ix71d1?utm_source=alok</a><br /><br />Listen and Download: <a rel="nofollow" target="blank" href="https://outnow.io/t/sideeffect">https://outnow.io/t/sideeffect</a><br />CONTROVERSIA playlist: <a rel="nofollow" target="blank" href="https://bit.ly/ControversiaPlaylist">https://bit.ly/ControversiaPlaylist</a><br /><br />Follow ALOK <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/alok">https://www.instagram.com/alok</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/livealok">https://www.facebook.com/livealok</a><br />Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/alokoficial">https://www.twitter.com/alokoficial</a><br /><br />Follow AU/RA <br />Instagram: <a rel="nofollow" target="blank" href="http://au-ra.world/ig">http://au-ra.world/ig</a><br />Facebook: <a rel="nofollow" target="blank" href="http://au-ra.world/fb">http://au-ra.world/fb</a><br />Twitter: <a rel="nofollow" target="blank" href="http://au-ra.world/tw">http://au-ra.world/tw</a><br /><br />Follow CONTROVERSIA Records <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/controversia.records/">https://www.instagram.com/controversia.records/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/controversiarec/">https://www.facebook.com/controversiarec/</a><br />Spotify: <a rel="nofollow" target="blank" href="https://bit.ly/ControversiaPlaylist">https://bit.ly/ControversiaPlaylist</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/controversiarecords">https://soundcloud.com/controversiarecords</a><br /><br /><br /><br />Credits:<br />Director: @alexey_figurov<br />Edit: @figurova_anna<br />Producer: @nataliyapadilla<br />DP: @tigran_mutafyan<br />Actress: @izzycka<br />Dancer: @_1realmccoy_<br />VFX: @friends_video_<br />Makeup: @glambyalena <br />1st AC :Paulina Zamorano<br />Geffer: Justin  Kelley<br />PA: @_markorlov <br />Behind the scenes photos: @victoriasirakovaphotographer<br /><br /><br /><br /><br /><br />#360RA #Alok #AuRa{% endraw %}
