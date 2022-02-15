@@ -1,0 +1,15 @@
+---
+title: "Are YOU a GENIUS? : Signs You Are a Genius"
+image: "https:\/\/i.ytimg.com\/vi\/n61ZCxxW--U\/hqdefault.jpg"
+vid_id: "n61ZCxxW--U"
+categories: "Entertainment"
+tags: ["signs you are a genius","genius","intelligence"]
+date: "2022-02-15T22:45:25+03:00"
+vid_date: "2021-03-07T14:30:04Z"
+duration: "PT3M21S"
+viewcount: "648773"
+likeCount: "14757"
+dislikeCount: ""
+channel: "Tally"
+---
+{% raw %}Have people called you smart before? Were you a straight-A student in school? Have you considered if you might actually be a genius? If you’ve taken an IQ test but didn’t make the genius cut don’t fret. Just because you failed physics doesn’t mean you lack intelligence or career potential. You may be a genius by another name entirely! Here are some signs that you are a genius.<br /><br />Intelligence is measured in terms of IQ. It checks the person’s ability to solve and reason the problems. IQ is expressed in terms of numbers. 100 is considered an average IQ. If a person scores more than 100, he is above average (smarter) and one who scores less is considered as less smart. A score of 70 or below is considered a low score, which is also considered a benchmark for mental retardation. <br /><br />Intelligence has been a prized human trait for a long time. When we think of smart people, we know that they typically earn more money, attend school for longer, and have an easier time managing all of the troubles we face in life. They seem to have more common sense and see things that will happen over the long term. Maybe they’re even better at games like poker.<br /><br />When you spend time with a genius, it’s obvious that they are smart. They don’t need to tell you that they’re smart, show you proof of their achievements, or be arrogant. You just know. Their brilliance and common sense show themselves during routine conversations. They just seem more knowledgeable about everything than others.<br /><br />There are common signs you may be a genius. If you have a lot of these characteristics, you’re probably highly intelligent. If you can relate to most of the ones in this video, then you may be smarter than you give yourself credit for! Of course, everyone is smart in their own way. Remember that next time you, or anyone else, questions your intelligence.<br /><br />SUBSCRIBE TO OUR CHANNEL —► - <a rel="nofollow" target="blank" href="https://bit.ly/2YxSZw1">https://bit.ly/2YxSZw1</a><br /><br />Let us know in the comments below if there's a video you'd like to see!<br /><br />The data and statistics videos are based on internet searches, online community discussions and online articles.  Data listed may be out of date, incorrect or valid.  All sources are listed in the description.<br /><br />Follow us on FaceBook for more interesting facts!<br />➤<a rel="nofollow" target="blank" href="https://www.facebook.com/TallyStats/">https://www.facebook.com/TallyStats/</a><br /><br />Sources:<br />➤<a rel="nofollow" target="blank" href="https://pastebin.com/57kPQy2t">https://pastebin.com/57kPQy2t</a>{% endraw %}
