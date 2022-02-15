@@ -1,0 +1,15 @@
+---
+title: "How to QUICKLY Return Shots at the Net - Badminton Secrets"
+image: "https:\/\/i.ytimg.com\/vi\/sU7K66PeX8o\/hqdefault.jpg"
+vid_id: "sU7K66PeX8o"
+categories: "Sports"
+tags: ["badminton","return","serve"]
+date: "2022-02-15T12:37:44+03:00"
+vid_date: "2011-10-07T16:13:15Z"
+duration: "PT5M16S"
+viewcount: "1132065"
+likeCount: "7471"
+dislikeCount: ""
+channel: "betterbadminton"
+---
+{% raw %}NEW VIDEO ALL THE TIME! SUBSCRIBE TO OUR BADMINTON CHANNEL NOW!<br /><br />LIKE this video? Show your support by clicking the THUMBS UP button above!<br /><br />Don't forget to leave us a comment – we'd love to hear from you!<br /><br />ALREADY SUBSCRIBED TO BETTER BADMINTON? Go here to get EXCLUSIVE videos, badminton training tips, and secrets from Pro Players before anyone else!<br /><br />************************************************************<br /><a rel="nofollow" target="blank" href="http://www.betterbadminton.com">http://www.betterbadminton.com</a><br />************************************************************<br /><br />LIKE US ON FACEBOOK TOO! <br /><br />************************************************************<br /><br /><a rel="nofollow" target="blank" href="http://www.facebook.com/betterbadminton">http://www.facebook.com/betterbadminton</a><br />************************************************************<br /><br />badminton, better badminton, badminton smash, play badminton, badminton tips, badminton video, badminton skills, Badminton World Federation (Organization), Lin Dan, Badminton Champion, Yonex, BWF, World Championships, Olympics, racket, women singles,bao chunLai, Badminton Champion secrets,badminton Champion interview,Badminton Asia Championships (Sports Association),BWF World Championships (Sports Association),Badminton Footwork,Badminton Lesson,badminton pros,Anna Rice,<br /><br />-----------------------------------------------------------------------------------------------------------<br />Disclaimer<br /><br />Better Badminton and Anna Rice strongly recommend that you consult with your physician before beginning any exercise program. You should be in good physical condition and be able to participate in the exercise.<br /> <br />Better Badminton and Anna Rice are not a licensed medical care provider and represent that they have no expertise in diagnosing, examining, or treating medical conditions of any kind, or in determining the effect of any specific exercise on a medical condition.<br /> <br />You should understand that when participating in any exercise or exercise program, there is the possibility of physical injury, death, property damage or loss. If you engage in this exercise or exercise program, you agree that you do so at your own risk, are voluntarily participating in these activities, assume all risks and dangers associated with participating in these activities, and agree to release and discharge Better Badminton and Anna Rice from any and all claims or causes of action, known or unknown, arising due to any cause whatsoever, including Better Badminton and Anna Rice's negligence.{% endraw %}
