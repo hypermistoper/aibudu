@@ -1,0 +1,15 @@
+---
+title: "YarbSub a top online yarn resource #Yarnsub #AffordablyCrafty #Crochettool #yarnlover #knittingtool"
+image: "https:\/\/i.ytimg.com\/vi\/5-B24WzSjx0\/hqdefault.jpg"
+vid_id: "5-B24WzSjx0"
+categories: "Entertainment"
+tags: ["#inshot"]
+date: "2022-02-15T21:31:44+03:00"
+vid_date: "2022-02-14T16:30:00Z"
+duration: "PT7M34S"
+viewcount: "511"
+likeCount: "129"
+dislikeCount: ""
+channel: "Affordably Crafty"
+---
+{% raw %}<a rel="nofollow" target="blank" href="https://yarnsub.com/">https://yarnsub.com/</a><br /><br />join me here too &amp; build our community!<br />linktree: <a rel="nofollow" target="blank" href="https://linktr.ee/AffordablyCrafty">https://linktr.ee/AffordablyCrafty</a><br /><br />Affiliate links - please support my channel<br />Leisure arts - craft patterns &amp; vintage patterns as well<br /><a rel="nofollow" target="blank" href="https://www.shareasale.com/m-pr.cfm?merchantID=19565&amp;userID=2694608&amp;productID=1229118716">https://www.shareasale.com/m-pr.cfm?merchantID=19565&amp;userID=2694608&amp;productID=1229118716</a><br /><br />Dollar Tree - choose ship to store <br /><a rel="nofollow" target="blank" href="https://shareasale.com/r.cfm?b=845001&amp;u=2694608&amp;m=64888&amp;urllink=&amp;afftrack=">https://shareasale.com/r.cfm?b=845001&amp;u=2694608&amp;m=64888&amp;urllink=&amp;afftrack=</a><br /><br />Mary Maxim - yarn, crochet, knit, and more crafts<br /><a rel="nofollow" target="blank" href="https://shareasale.com/r.cfm?b=1882506&amp;u=2694608&amp;m=117712&amp;urllink=&amp;afftrack=">https://shareasale.com/r.cfm?b=1882506&amp;u=2694608&amp;m=117712&amp;urllink=&amp;afftrack=</a><br /><br />happy mail:<br />Affordably Crafty<br />PO BOX 73<br />Rehoboth, MA 02769<br /><br />instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/affordably_crafty/">https://www.instagram.com/affordably_crafty/</a><br />facebook group: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/239027440779696">https://www.facebook.com/groups/239027440779696</a><br />       ** where I post all my steals, deals, and freebies I find in my travels in the crafting world<br />ravelry: <a rel="nofollow" target="blank" href="https://www.ravelry.com/stores/affordably-crafty-designs">https://www.ravelry.com/stores/affordably-crafty-designs</a><br />email: AffordablyCrafty@Gmail.com<br /><br />Thanks you so so much for all of your support!<br /><br />Affordably Geeky! An amazing collaboration with my Yarnie Bestie Ginger from Yarn Geek!<br />Yarn Geek on Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/YarnGeeks/featured">https://www.youtube.com/c/YarnGeeks/featured</a><br />LIVE Saturday 8a-11am EST  on my channel, Affordably Crafty<br />LIVE Wednesday 9-10:30 EST on Yarn Geek, Ginger's channel<br /><br />Affordably Geeky Facebook Group: <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/groups/166375185169297">https://www.facebook.com/groups/166375185169297</a><br /><br />Ginger's Yarn Geek Links:<br />all links Koji: <a rel="nofollow" target="blank" href="https://withkoji.com/@YarnGeek">https://withkoji.com/@YarnGeek</a>{% endraw %}
