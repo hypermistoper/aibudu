@@ -1,0 +1,15 @@
+---
+title: "Protesters Confront Martial Law Police & This is What They GOT.."
+image: "https:\/\/i.ytimg.com\/vi\/ScL8ZOAMZLs\/hqdefault.jpg"
+vid_id: "ScL8ZOAMZLs"
+categories: "Science-Technology"
+tags: ["jwtv","freedom convoy","protest"]
+date: "2022-02-16T17:44:45+03:00"
+vid_date: "2022-02-16T01:07:11Z"
+duration: "PT6M19S"
+viewcount: "4964"
+likeCount: "638"
+dislikeCount: ""
+channel: "JW Tv"
+---
+{% raw %}trucker freedom Convoy protesters confront police <br /><br />Video You Missed: 🚨 Its Begun|  American's Rising up P1 <a rel="nofollow" target="blank" href="https://youtu.be/vgKJkt7m4Rc">https://youtu.be/vgKJkt7m4Rc</a><br /><br />Buy Pine Needles Harvested by me &amp; my fiancee <a rel="nofollow" target="blank" href="https://www.etsy.com/listing/1137270961/pine-needles-4oz-per-bag?ref=hp_rv-2">https://www.etsy.com/listing/1137270961/pine-needles-4oz-per-bag?ref=hp_rv-2</a><br /><br />Get RF Shielding Material Built by Navy Engineer: <a rel="nofollow" target="blank" href="https://www.ftwproject.com/ref/7/">https://www.ftwproject.com/ref/7/</a><br /><br />Live on YouTube: Mon-Fri<br /><br />Donate To Support<br /><a rel="nofollow" target="blank" href="https://www.paypal.com/donate/?hosted_button_id=LQZ56TANPGT4Y">https://www.paypal.com/donate/?hosted_button_id=LQZ56TANPGT4Y</a><br /><br /><br />Get Water Filtration, Air Filtration, Solar Power Oven, Batteries and more<br /><a rel="nofollow" target="blank" href="https://mypatriotsupply.com/?rfsn=2851619.0797a7">https://mypatriotsupply.com/?rfsn=2851619.0797a7</a><br /><br />for only $3 a month join my patreon <a rel="nofollow" target="blank" href="https://www.patreon.com/jwtv">https://www.patreon.com/jwtv</a><br /><br />Jwtv Tshirt Apparel:  <a rel="nofollow" target="blank" href="https://www.customink.com/designs/jwtvshirt/aqx0-00bt-944n/share?pc=EMAIL-40778&amp;utm_campaign=shared%20design&amp;utm_source=share%20link&amp;utm_medium=shared%20design&amp;utm_content=shared%20mobile">https://www.customink.com/designs/jwtvshirt/aqx0-00bt-944n/share?pc=EMAIL-40778&amp;utm_campaign=shared%20design&amp;utm_source=share%20link&amp;utm_medium=shared%20design&amp;utm_content=shared%20mobile</a><br /><br />It's our world and our job to make change happen nobody else will do it for us. Join the movement subscribe<br /><br />Email: sjackson2447@gmail.com <br /><br />JWorkouts tv💻 #Shtf #news <br />————————————<br />Most Viewed Videos<br /><br />Zombie effects happening? <a rel="nofollow" target="blank" href="https://youtu.be/0zB-7p3_FnQ">https://youtu.be/0zB-7p3_FnQ</a><br /><br />Life Hacks Unknown 2017: <a rel="nofollow" target="blank" href="https://youtu.be/WdWOrduVchk">https://youtu.be/WdWOrduVchk</a><br /><br />You didn't hear about this? (P2): <a rel="nofollow" target="blank" href="https://youtu.be/xYUsNughWDM">https://youtu.be/xYUsNughWDM</a><br /><br />————————————<br />(JWorkouts tv 📺) <a rel="nofollow" target="blank" href="https://youtube.com/Jworkoutstv">https://youtube.com/Jworkoutstv</a>{% endraw %}
