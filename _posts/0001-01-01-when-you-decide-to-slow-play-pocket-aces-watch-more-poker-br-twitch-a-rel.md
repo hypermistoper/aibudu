@@ -1,0 +1,15 @@
+---
+title: "When you decide to SLOW PLAY pocket Aces!"
+image: "https:\/\/i.ytimg.com\/vi\/8AwlfTUPh3M\/hqdefault.jpg"
+vid_id: "8AwlfTUPh3M"
+categories: "Gaming"
+tags: ["poker","poker 2020","2020 poker"]
+date: "2022-02-16T19:34:40+03:00"
+vid_date: "2020-04-28T18:22:28Z"
+duration: "PT13M22S"
+viewcount: "24148"
+likeCount: "232"
+dislikeCount: ""
+channel: "PokerXpress"
+---
+{% raw %}Watch more #poker:<br />Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/partypokertv">https://www.twitch.tv/partypokertv</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCwsWa65jkbHfvAblmmW_Z-Q">https://www.youtube.com/channel/UCwsWa65jkbHfvAblmmW_Z-Q</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCwsWa65jkbHfvAblmmW_Z-Q">https://www.youtube.com/channel/UCwsWa65jkbHfvAblmmW_Z-Q</a><br />Follow partypoker on:<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/partypoker">https://twitter.com/partypoker</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/partypokerLIVE">https://twitter.com/partypokerLIVE</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/partypoker/">https://www.facebook.com/partypoker/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/partypokerLIVE/">https://www.facebook.com/partypokerLIVE/</a><br />Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/partypoker">https://www.instagram.com/partypoker</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/partypokerlive">https://www.instagram.com/partypokerlive</a><br /><br />Original sources of videos used:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Tm39ooZeTuc">https://www.youtube.com/watch?v=Tm39ooZeTuc</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=4FjSUb_qfYs">https://www.youtube.com/watch?v=4FjSUb_qfYs</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=jMfDkforHG4&amp;list=PLp4CVOWoYbRH2naRInNV0tpGsxHLliPeT&amp;index=12">https://www.youtube.com/watch?v=jMfDkforHG4&amp;list=PLp4CVOWoYbRH2naRInNV0tpGsxHLliPeT&amp;index=12</a><br />partypoker Live TV: <a rel="nofollow" target="blank" href="https://partypokerlive.com/en/tv">https://partypokerlive.com/en/tv</a><br />partypokerTV YouTube Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCwsWa65jkbHfvAblmmW_Z-Q">https://www.youtube.com/channel/UCwsWa65jkbHfvAblmmW_Z-Q</a><br /><br />Visit our website: <a rel="nofollow" target="blank" href="http://www.pokerxpress.net">http://www.pokerxpress.net</a><br />Find us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/pokerxpress/">https://www.facebook.com/pokerxpress/</a><br />Find us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/PokerXpress">https://twitter.com/PokerXpress</a><br />Find us on Reddit: <a rel="nofollow" target="blank" href="https://www.reddit.com/user/pokerxpress/">https://www.reddit.com/user/pokerxpress/</a>{% endraw %}
