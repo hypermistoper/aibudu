@@ -1,0 +1,15 @@
+---
+title: "Understanding Sciatica- Everything you need to know about the causes and treatment of sciatica."
+image: "https:\/\/i.ytimg.com\/vi\/CHLm-u_p954\/hqdefault.jpg"
+vid_id: "CHLm-u_p954"
+categories: "Howto-Style"
+tags: ["sciatic nerve","sciatica (symptom)","lower back pain stretches to relieve pain"]
+date: "2022-02-16T13:18:42+03:00"
+vid_date: "2021-02-27T15:00:10Z"
+duration: "PT24M52S"
+viewcount: "390126"
+likeCount: "7678"
+dislikeCount: ""
+channel: "Precision Wellbeing Group"
+---
+{% raw %}📖 My FREE eBook<br />&quot;Path To Recovery - Understanding and Taming Your Pain&quot;<br /><a rel="nofollow" target="blank" href="https://www.precisionwellbeing.co.uk/injury-ebook">https://www.precisionwellbeing.co.uk/injury-ebook</a><br /><br />WORK WITH ME<br /><a rel="nofollow" target="blank" href="https://www.precisionwellbeing.co.uk/work-with-ashley">https://www.precisionwellbeing.co.uk/work-with-ashley</a><br /><br />DID YOU FIND THIS VIDEO HELPFUL?<br />☕ Want to thank me? Buy me a coffee :) <br /><a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/ashleyridout">https://www.buymeacoffee.com/ashleyridout</a><br /><br /><br />===============<br />TIMESTAMPS<br />===============<br />00:00 Intro<br />00:24 What is sciatica?<br />01:33 Lower back causes of sciatica<br />04:25 Buttock causes of sciatica<br />06:37 Sciatica risk factors<br />06:56 Is sciatica coming from your lower back or your buttocks?<br />10:17 Self treatment of sciatica<br />21:15 Other treatments for sciatica<br />24:05 Final thoughts<br /><br />WEBSITE: <a rel="nofollow" target="blank" href="https://www.precisionwellbeing.co.uk">https://www.precisionwellbeing.co.uk</a><br />EMAIL: info@precisionwellbeing.co.uk<br />TEL: 0203 356 7060<br />FACEBOOK: <a rel="nofollow" target="blank" href="http://facebook.com/precisionwellbeing">http://facebook.com/precisionwellbeing</a><br /><br />The Precision Wellbeing Group is a multi-disciplinary health &amp; wellbeing clinic based in North Finchley, London, specialising in Injuries, Chronic Health Conditions and Weight Management.<br /><br />DISCLAIMER<br />This content (the video, description, links, and comments) is not medical advice or a treatment plan and is intended for general education and demonstration purposes only. This content should not be used to self-diagnose or self-treat any health, medical, or physical condition. Don’t use this content to avoid going to your own healthcare professional or to replace the advice they give you. Consult with your healthcare professional before doing anything contained in this content. You agree to indemnify and hold harmless Precision Wellbeing Group Ltd, its officers, employees, and contractors for any and all losses, injuries, or damages resulting from any and all claims that arise from your use or misuse of this content. Precision Wellbeing Group Ltd makes no representations about the accuracy or suitability of this content. Use of this content is at your sole risk.{% endraw %}
