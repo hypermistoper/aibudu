@@ -1,0 +1,15 @@
+---
+title: "HOW TO USE 0.5MM DERMAROLLER - Gin Amber Beauty"
+image: "https:\/\/i.ytimg.com\/vi\/TWpOusQuYKM\/hqdefault.jpg"
+vid_id: "TWpOusQuYKM"
+categories: "Howto-Style"
+tags: ["DERMAROLLER","DERMAROLLING","gin amber"]
+date: "2022-02-16T17:03:17+03:00"
+vid_date: "2021-05-07T20:58:08Z"
+duration: "PT17M11S"
+viewcount: "13943"
+likeCount: "598"
+dislikeCount: ""
+channel: "Gin Amber"
+---
+{% raw %}This is an updated video on how to PROPERLY use a 0.5mm dermaroller.<br /><br />There are quite a few dermaroller needle sizes and while one size doesn't fit all, I explain how to use the 0.5mm in particulare for best results. It's best to be using a real-needle dermaroller, such as my very own Gin Amber Beauty Dermarollers. And keep in mind that using fake needles is absolutely terrible for your skin and can have adverse effects.<br /><br />Check out this infographic about how often to use each dermaroller needle size: <a rel="nofollow" target="blank" href="https://ginamber.com/pages/faq-dermaroller">https://ginamber.com/pages/faq-dermaroller</a><br /><br />Gin Amber Beauty MICRONEEDLING skincare line: <a rel="nofollow" target="blank" href="https://ginamber.com">https://ginamber.com</a> <br />Use code YOUTUBE20 to get 20% OFF. For subscribers only.<br /><br />PLEASE SUBSCRIBE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ginamber">https://www.youtube.com/c/ginamber</a><br />DERMAROLLING PLAYLIST: <a rel="nofollow" target="blank" href="https://bit.ly/2D0wBCg">https://bit.ly/2D0wBCg</a><br /><br />✅ PLEASE SUBSCRIBE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ginamber">https://www.youtube.com/c/ginamber</a><br />🔔 Don’t forget to click on the bell to turn on post notifications!<br />🎥 FREE DERMAROLLING PLAYLIST: <a rel="nofollow" target="blank" href="https://bit.ly/2D0wBCg">https://bit.ly/2D0wBCg</a><br /> 👉 Real Individual Needle Dermaroller: <a rel="nofollow" target="blank" href="https://ginamber.com">https://ginamber.com</a><br />HOW TO USE DERMAROLLER: <a rel="nofollow" target="blank" href="https://youtu.be/ga5l-Fg_arE">https://youtu.be/ga5l-Fg_arE</a><br /><br /><br />🔹🔹🔹🔹👇 I share FREE beauty tips here 👇🔹🔹🔹🔹<br /><br />❤️ <a rel="nofollow" target="blank" href="https://www.instagram.com/ginamberx/">https://www.instagram.com/ginamberx/</a><br />❤️ <a rel="nofollow" target="blank" href="https://www.instagram.com/ginamberbea...">https://www.instagram.com/ginamberbea...</a><br />❤️ <a rel="nofollow" target="blank" href="https://www.facebook.com/ginamberx/">https://www.facebook.com/ginamberx/</a><br />❤️ <a rel="nofollow" target="blank" href="https://twitter.com/GinAmberX">https://twitter.com/GinAmberX</a><br />❤️ <a rel="nofollow" target="blank" href="https://www.tiktok.com/@ginamberx?">https://www.tiktok.com/@ginamberx?</a><br /><br />CLUBHOUSE @ginamber <br /><br />I'm European(LT) living in Miami<br />English is my 4th language, that's why I have some accent <br />Email: gint7777@gmail.com<br /><br />Shipping address:<br />Gin Amber<br />655 W Flagler st<br />Suite 206<br />Miami, FL 33130{% endraw %}
