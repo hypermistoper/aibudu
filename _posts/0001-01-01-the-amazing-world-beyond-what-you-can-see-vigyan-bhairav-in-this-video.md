@@ -1,0 +1,15 @@
+---
+title: "The AMAZING World BEYOND What You Can See! | Vigyan Bhairav"
+image: "https:\/\/i.ytimg.com\/vi\/gGALjRiRwKE\/hqdefault.jpg"
+vid_id: "gGALjRiRwKE"
+categories: "Howto-Style"
+tags: ["sri sri ravi shankar","sri sri","Gurudev"]
+date: "2022-02-16T10:16:04+03:00"
+vid_date: "2022-01-23T06:30:09Z"
+duration: "PT8M31S"
+viewcount: "224272"
+likeCount: "9230"
+dislikeCount: ""
+channel: "Gurudev Sri Sri Ravi Shankar"
+---
+{% raw %}In this video from Vigyan Bhairav, Gurudev first takes us through each of our senses and what we consume via that and how far that has taken us in life. Then, Gurudev takes us through the different elements and layers that we are made of and reveals what really lies beyond the surface. <br /><br />About #Gurudev - <br />World-renowned humanitarian, spiritual leader, and an ambassador of peace and human values. Through his life and work, Gurudev Sri Sri Ravi Shankar has inspired millions around the world with a vision of a stress-free and violence-free world. Gurudev founded The Art of Living, a non-profit organization that is engaged in stress-management and service initiatives across the world.<br /><br />Learn Sudarshan Kriya the world's most powerful breathing technique: <a rel="nofollow" target="blank" href="https://aoliv.in/learnsudarshankriya">https://aoliv.in/learnsudarshankriya</a><br /><br />Do Like, Comment, Share &amp; Subscribe to the channel!<br /><br />Subscribe to Gurudev's Channel: <br /><a rel="nofollow" target="blank" href="https://youtube.com/srisri">https://youtube.com/srisri</a><br /><br />🎧Listen to Gurudev on Spotify:<br />Talks - <a rel="nofollow" target="blank" href="https://open.spotify.com/show/75Wx1ZyzhReLUFI6lgQGTS">https://open.spotify.com/show/75Wx1ZyzhReLUFI6lgQGTS</a><br />Meditations - <a rel="nofollow" target="blank" href="https://open.spotify.com/show/6INVWvhJjH9t88iURiN2xf">https://open.spotify.com/show/6INVWvhJjH9t88iURiN2xf</a><br /><br />Follow Gurudev on Instagram: <br /><a rel="nofollow" target="blank" href="https://instagram.com/srisriravishankar">https://instagram.com/srisriravishankar</a><br /><br />Like Gurudev on Facebook: <br /><a rel="nofollow" target="blank" href="https://facebook.com/gurudev">https://facebook.com/gurudev</a><br /><br />Follow Gurudev on Twitter: <br /><a rel="nofollow" target="blank" href="https://twitter.com/srisri">https://twitter.com/srisri</a><br /><br />Follow Gurudev on LinkedIn:<br /><a rel="nofollow" target="blank" href="https://in.linkedin.com/in/srisriravishankar">https://in.linkedin.com/in/srisriravishankar</a><br /><br />Visit Gurudev's website:<br /><a rel="nofollow" target="blank" href="https://www.srisri.org">https://www.srisri.org</a><br /><br />Visit the Art Of Living website:<br /><a rel="nofollow" target="blank" href="https://www.artofliving.org">https://www.artofliving.org</a><br /><br /><br />KS3WTKB <br />Item License Code:               8N74TD9JPU<br />TNEPUL4<br />Item License Code:               96KUYVZPHG<br />XQ2USW5<br />Item License Code:               Y7K6GW8EQB<br />7YSA43J<br />Item License Code:               J8WQEG9ZLH{% endraw %}
