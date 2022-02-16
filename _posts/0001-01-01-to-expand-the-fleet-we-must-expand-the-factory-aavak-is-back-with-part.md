@@ -1,0 +1,15 @@
+---
+title: "To Expand the Fleet, We Must Expand the Factory!"
+image: "https:\/\/i.ytimg.com\/vi\/9dreqfWq3-M\/hqdefault.jpg"
+vid_id: "9dreqfWq3-M"
+categories: "Gaming"
+tags: ["Aavak","Dapper","Let's Play"]
+date: "2022-02-17T02:34:43+03:00"
+vid_date: "2022-02-15T19:56:14Z"
+duration: "PT1H7M44S"
+viewcount: "6534"
+likeCount: "483"
+dislikeCount: ""
+channel: "Aavak"
+---
+{% raw %}Aavak is back with part 5 of a new series, checking out the Beta update of Captain of Industry, leading his people once again as they navigate a global crisis. Thanks to MaFi Games for the game key!<br /><br />********************<br /><br />Help Support Aavak’s adventures on Patreon - <a rel="nofollow" target="blank" href="https://www.patreon.com/aavak">https://www.patreon.com/aavak</a><br />Join Aavak and the Dapperlings on Discord - <a rel="nofollow" target="blank" href="https://discord.gg/aavak">https://discord.gg/aavak</a><br /><br />Aavak on YouTube - <a rel="nofollow" target="blank" href="https://www.youtube.com/aavak">https://www.youtube.com/aavak</a><br />... and - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCk7U8vOfzutkuZ-coGdpXrw">https://www.youtube.com/channel/UCk7U8vOfzutkuZ-coGdpXrw</a><br /><br />Aavak on Twitch - <a rel="nofollow" target="blank" href="https://www.twitch.tv/aavak">https://www.twitch.tv/aavak</a><br />Aavak on Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/Aavak_">https://twitter.com/Aavak_</a><br />Aavak on Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/aavak_official/">https://www.instagram.com/aavak_official/</a><br /><br />********************<br /><br />#LetsPlay #Indie #CaptainOfIndustry<br /><br />Captain of Industry playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLGe_S5n7MjT1UUTP6BCUy5kf3JOMcSmiD">https://www.youtube.com/playlist?list=PLGe_S5n7MjT1UUTP6BCUy5kf3JOMcSmiD</a><br />Captain of Industry on Steam: <a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1594320/Captain_of_Industry/">https://store.steampowered.com/app/1594320/Captain_of_Industry/</a><br />Captain of Industry on the Web: <a rel="nofollow" target="blank" href="https://www.captain-of-industry.com/">https://www.captain-of-industry.com/</a><br /><br />********************<br /><br />3rd party music attribution: <br />Music from <a rel="nofollow" target="blank" href="https://filmmusic.io">https://filmmusic.io</a><br />By Kevin Macleod (<a rel="nofollow" target="blank" href="https://incompetech.com)">https://incompetech.com)</a><br />License: CC BY (<a rel="nofollow" target="blank" href="http://creativecommons.org/licenses/by/4.0/)">http://creativecommons.org/licenses/by/4.0/)</a><br />End screen background music - &quot;Frost Waltz&quot;<br />Background Music Tracks provided by - Pretzel Rocks<br /><br />End screen &amp; character art:<br />Jackie Musto - <a rel="nofollow" target="blank" href="http://www.kayandp.com/">http://www.kayandp.com/</a>{% endraw %}
