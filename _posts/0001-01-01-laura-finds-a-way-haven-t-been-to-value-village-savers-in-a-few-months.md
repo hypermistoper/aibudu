@@ -1,0 +1,15 @@
+---
+title: "Laura finds a way..."
+image: "https:\/\/i.ytimg.com\/vi\/fvlbSWuFnF4\/hqdefault.jpg"
+vid_id: "fvlbSWuFnF4"
+categories: "Entertainment"
+tags: ["value village","savers","savers vlog"]
+date: "2022-02-17T14:32:04+03:00"
+vid_date: "2022-02-15T04:48:14Z"
+duration: "PT18M13S"
+viewcount: "16877"
+likeCount: "1475"
+dislikeCount: ""
+channel: "Laura Legends"
+---
+{% raw %}Haven't been to Value Village/ Savers in a few months! I know their prices stink but my usual thrift stores weren't open today :( ----- at least I found some cool stuff! <br /><br />Thank you to this week's Patrons!: <br /><br />Julian Ortiz, Marcel K, Timothy, Vincent Baker, Ed Keaton, JC Hesh, Gudlaigur Omar, Henry Flit, Ronaldo Renestivo, Jonathan Perez, Nicolas Javet, Gabriel Nowlin, Jim Thompson, James Phelan, Richie, Matthew Henderson, Bill Talaga, Michael Gresser (Modern Toyfare), David Cordero, Michael Davis, Shane Drake, Anthony D Grate, Vincent Baker, Element Shimmer, Bradley Heisler, DM Huber, Kongmong Kue<br /><br />Support Me On Patreon! : <a rel="nofollow" target="blank" href="https://www.patreon.com/lauralegends">https://www.patreon.com/lauralegends</a><br />Merch Store: <a rel="nofollow" target="blank" href="https://www.teespring.com/stores/lauralegends">https://www.teespring.com/stores/lauralegends</a> <br />Business Inquiries: Lauralegends@hotmail.com<br />____________________________________<br />AFFILIATE LINKS: <br /><br />IRON STUDIOS<br /><a rel="nofollow" target="blank" href="https://ironstudios.com/?rfsn=3720567.1421d7">https://ironstudios.com/?rfsn=3720567.1421d7</a><br /><br />BIG BAD TOY STORE<br /><a rel="nofollow" target="blank" href="https://www.bigbadtoystore.com/?utm_source=YouTube&amp;utm_medium=Link&amp;utm_campaign=LauraLegends">https://www.bigbadtoystore.com/?utm_source=YouTube&amp;utm_medium=Link&amp;utm_campaign=LauraLegends</a><br /><br />*If you click an affiliate link and make a purchase I'll earn a small commission which will go towards helping the channel grow!<br />____________________________________<br />Follow Me on INSTAGRAM:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/lauralegends/?hl=en">https://www.instagram.com/lauralegends/?hl=en</a><br /><br />Follow Me on FACEBOOK: <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/pages/category/Video-Creator/Laura-Legends-168970543747829/">https://www.facebook.com/pages/category/Video-Creator/Laura-Legends-168970543747829/</a><br />____________________________________<br />PO BOX 37011<br />Nanaimo, B.C.<br />V9T 6N4<br />Canada <br />____________________________________<br />#savers #thrifting #lauralegends<br />DISCLAIMER: This video is intended for an adult audience only<br /><br />Music Used:<br />Intro - Operatic 3-Vibe Mountain<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=pXdrz1pB35Q">https://www.youtube.com/watch?v=pXdrz1pB35Q</a><br /><br /> Jazz Piano - Bensound<br />www.bensound.com{% endraw %}
