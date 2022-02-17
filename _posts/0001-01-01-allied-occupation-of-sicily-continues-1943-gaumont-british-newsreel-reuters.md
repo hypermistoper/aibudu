@@ -1,0 +1,15 @@
+---
+title: "Allied occupation of Sicily continues (1943)"
+image: "https:\/\/i.ytimg.com\/vi\/AazL3GLei-w\/hqdefault.jpg"
+vid_id: "AazL3GLei-w"
+categories: "News-Politics"
+tags: ["British","Pathe","Reuters"]
+date: "2022-02-17T22:20:02+03:00"
+vid_date: "2020-11-10T19:30:20Z"
+duration: "PT4M27S"
+viewcount: "216"
+likeCount: "2"
+dislikeCount: ""
+channel: "British Pathé"
+---
+{% raw %}GAUMONT BRITISH NEWSREEL (REUTERS)<br /><br />To license this film, visit <a rel="nofollow" target="blank" href="https://www.britishpathe.com/video/VLVA62QG22729CAL9P5HBOJ9YF2ZC-ALLIED-OCCUPATION-OF-SICILY-CONTINUES">https://www.britishpathe.com/video/VLVA62QG22729CAL9P5HBOJ9YF2ZC-ALLIED-OCCUPATION-OF-SICILY-CONTINUES</a><br /><br />Allied armies advance to Francofonte, prisoners are rounded up, Italian citizens gather for rations, action takes place against German paratroopers, pipers march and play, citizens cheer for and welcome invading soldiers, General Montgomery passes through, a company of infantry sets up camp on a Sicilian farm and plays with children, prisoners of war are deposited in Africa and England <br /><br />Full Description:<br /><br />Gaumont British Ident<br /><br />SLATE INFORMATION: Occupation of Sicily Continues<br /><br />ITALY: Sicily: Various:<br />EXT<br /><br />GERMAN MILITARY Germans from H.Goering Regt. in Britain(prisoners)<br /><br /><br />ITALY MILITARY It: prisoners in SICILY disembarking in Africa &amp; on London Rly. Station w. Germans<br /><br /><br />MILITARY BRITISH. Piper &amp; Scotties in SICILY..Br: enter FRANCOFONTE.. Monty in Car..SOLDIER W. CHILD.<br /><br /><br />MONTGOMERY LT.GENERAL In car in SICILY..N.V.G.<br /><br /><br />PRISONERS OF WAR Italians in Sicily..A.C.L. disembarks its P.O.W. in Africa..&amp; Germans from H.Goering Regt.in Britain<br /><br /><br />SICILY Monty in car..tommy w. child.. scenes at SYRACUSE.<br /><br /><br />Military - Active; Personalities - Armed Forces; Prisoners of War<br /><br />Palazzalo Acreide, surrender, Siracusa, billet, WWII, Axis, Allies, food, civilians, World War II, World War Two, Second World War, war, Field Marshal Bernard Law Montgomery, 1st Viscount Montgomery of Alamein<br />Background: Allied armies advance to Francofonte, prisoners are rounded up, Italian citizens gather for rations, action takes place against German paratroopers, pipers march and play, citizens cheer for and welcome invading soldiers, General Montgomery passes through, a company of infantry sets up camp on a Sicilian farm and plays with children, prisoners of war are deposited in Africa and England<br /><br />FILM ID: VLVA62QG22729CAL9P5HBOJ9YF2ZC<br />To license this film, visit <a rel="nofollow" target="blank" href="https://www.britishpathe.com/video/VLVA62QG22729CAL9P5HBOJ9YF2ZC-ALLIED-OCCUPATION-OF-SICILY-CONTINUES">https://www.britishpathe.com/video/VLVA62QG22729CAL9P5HBOJ9YF2ZC-ALLIED-OCCUPATION-OF-SICILY-CONTINUES</a><br /><br />Archive: Reuters<br />Archive managed by: British Pathé{% endraw %}
