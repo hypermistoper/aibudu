@@ -1,0 +1,15 @@
+---
+title: "THE ULTIMATE AMERICAN SUPERBOWL CRAVINGS PLATTER!"
+image: "https:\/\/i.ytimg.com\/vi\/x0SGJlCx_IU\/hqdefault.jpg"
+vid_id: "x0SGJlCx_IU"
+categories: "Entertainment"
+tags: ["erik the electric","erik the electric super bowl challenge","erik the electric food challenge"]
+date: "2022-02-18T00:58:23+03:00"
+vid_date: "2022-02-13T20:00:10Z"
+duration: "PT10M40S"
+viewcount: "349861"
+likeCount: "26093"
+dislikeCount: ""
+channel: "ErikTheElectric"
+---
+{% raw %}THE ULTIMATE AMERICAN SUPERBOWL CRAVINGS PLATTER!<br />Subscribe HERE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ErikTheElectric?sub_confirmation=1">https://www.youtube.com/c/ErikTheElectric?sub_confirmation=1</a> <br />ErikTheElectric Merch: <a rel="nofollow" target="blank" href="https://eriktheelectric.shop/">https://eriktheelectric.shop/</a><br /><br />#ErikTheElectric #Superbowl #CravingsPlatter <br />In this food challenge, I attempted to take down an ultimate superbowl cravings platter! I added a ton  of delicious foods on this platter including: wings, nachos, pizza and more! Be sure to stick around until the end to see if I was able to take this challenge down! <br /><br /><br />Second Channel: <a rel="nofollow" target="blank" href="https://YouTube.com/ElectricTalks">https://YouTube.com/ElectricTalks</a> <br />Follow “The Electrics” ► <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCXox6wBzzmTB61UHsQUVoMA">https://www.youtube.com/channel/UCXox6wBzzmTB61UHsQUVoMA</a><br />Instagram: <a rel="nofollow" target="blank" href="https://Instagram.com/ErikTheElectric">https://Instagram.com/ErikTheElectric</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://Facebook.com/ErikTheElectric">https://Facebook.com/ErikTheElectric</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://Twitter.com/ErikTheElectric">https://Twitter.com/ErikTheElectric</a> <br />Twitch: <a rel="nofollow" target="blank" href="https://Twitch.tv/ErikTheElectric">https://Twitch.tv/ErikTheElectric</a> <br />Follow Me on Strava! <a rel="nofollow" target="blank" href="https://www.strava.com/athletes/702924">https://www.strava.com/athletes/702924</a><br /><br /><br /><br />Watch More Erik TheElectric:<br />Cheat Days: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLEutRp8s1YDjTOlEXWa-tCw9B2YphwzjO">https://youtube.com/playlist?list=PLEutRp8s1YDjTOlEXWa-tCw9B2YphwzjO</a><br />Restaurant Challenges: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLEutRp8s1YDg88pWYAlnX_tnpL9yvIhC5">https://youtube.com/playlist?list=PLEutRp8s1YDg88pWYAlnX_tnpL9yvIhC5</a><br />Popular Videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLEutRp8s1YDjcT2LlO0NA-_AjJ4ZLpUS2">https://www.youtube.com/playlist?list=PLEutRp8s1YDjcT2LlO0NA-_AjJ4ZLpUS2</a><br />Latest Uploads: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLEutRp8s1YDjjOfhb-poGHsykhkZyrEKw">https://www.youtube.com/playlist?list=PLEutRp8s1YDjjOfhb-poGHsykhkZyrEKw</a>{% endraw %}
