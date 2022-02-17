@@ -1,0 +1,15 @@
+---
+title: "Michelle Martinko: Mystery at the Mall (Part 1)"
+image: "https:\/\/i.ytimg.com\/vi\/X_khx3Xojwg\/hqdefault.jpg"
+vid_id: "X_khx3Xojwg"
+categories: "Entertainment"
+tags: ["Crime Weekly","Stephanie Harlowe","Derrick Levasseur"]
+date: "2022-02-17T14:15:51+03:00"
+vid_date: "2022-02-16T18:00:15Z"
+duration: "PT1H28M6S"
+viewcount: "45043"
+likeCount: "3705"
+dislikeCount: ""
+channel: "Crime Weekly"
+---
+{% raw %}Go to <a rel="nofollow" target="blank" href="https://Surfshark.deals/crimeweekly">https://Surfshark.deals/crimeweekly</a> and use code CRIMEWEEKLY to get 83% off a 2 year plan plus 3 extra months for free!<br /><br />It was around 7pm on the evening of December 19th, 1979, as Kennedy High School senior Michelle Martinko made her way from her parked car to the newly opened Westdale Mall located on the west side of Cedar Rapids, Iowa. It was a bitterly cold night, and Michelle was not dressed for the weather, so she shivered and clutched her rabbit fur coat around her body until she reached the warmth and safety of the mall entrance. Michelle was only eighteen, but she was a beautiful girl. Her friends said she was the kind of girl that turned heads, even though she seemed blissfully unaware of the effect she had on people. During her time in the mall that evening, Michelle chatted with many of her friends, all of whom would later say she was her normal, happy, sparkling self. But within nine hours, Michelle would be found dead in that same mall parking lot, stabbed and slashed over twenty times, and left to bleed out in her car. Detectives were sure that the crime had been personal, it was just too angry and violent to have been a random attack, but the decades long investigation would reveal that things are not always as they seem. <br /><br />Support the channel here -- <a rel="nofollow" target="blank" href="https://www.patreon.com/CrimeWeekly">https://www.patreon.com/CrimeWeekly</a><br /><br />Shop for your Crime Weekly gear here -- <a rel="nofollow" target="blank" href="https://crimeweeklypodcast.com/shop">https://crimeweeklypodcast.com/shop</a><br /><br />Website: CrimeWeeklyPodcast.com<br />Instagram: @CrimeWeeklyPod<br />Twitter: @CrimeWeeklyPod<br />Facebook: @CrimeWeeklyPod<br /><br />Stephanie's Social Media<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/stephanieharlowe/">https://www.instagram.com/stephanieharlowe/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/steph_harlowe">https://twitter.com/steph_harlowe</a><br /><br />Derrick's Social Media:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/derricklevasseur/">https://www.instagram.com/derricklevasseur/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/derrickl">https://twitter.com/derrickl</a><br /><br />John's (Editor) Social Media:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/johnnynezz/">https://www.instagram.com/johnnynezz/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/johnnynezz">https://twitter.com/johnnynezz</a>{% endraw %}
