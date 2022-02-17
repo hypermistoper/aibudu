@@ -1,0 +1,15 @@
+---
+title: "I Grew Ronaldo from 0 to 99 Overall..."
+image: "https:\/\/i.ytimg.com\/vi\/J0iGWEqwTmI\/hqdefault.jpg"
+vid_id: "J0iGWEqwTmI"
+categories: "Gaming"
+tags: ["bfordlancer48","fifa","career mode"]
+date: "2022-02-17T10:33:37+03:00"
+vid_date: "2022-02-05T16:07:47Z"
+duration: "PT12M48S"
+viewcount: "337806"
+likeCount: "16940"
+dislikeCount: ""
+channel: "BFordLancer"
+---
+{% raw %}Download Lootboy with this link: <a rel="nofollow" target="blank" href="https://lootboy.page.link/lancer">https://lootboy.page.link/lancer</a><br />Make sure to use code: jake-02 on the lootboy app for gems!<br />►In this FIFA 22 Career Mode video I attempt to grow Cristiano Ronaldo from 0 Overall to 99 Overall. Will I be able to save CR7? Subscribe for more FIFA 22 Volta, FIFA 22 Career Mode Create A Club, and FIFA 22 Ultimate Team content! #FIFA22 #CareerMode #Ronaldo<br /><br />►SECOND CHANNEL:<a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC7CJlMYjJkMq_kJA3B1mGcQ">https://www.youtube.com/channel/UC7CJlMYjJkMq_kJA3B1mGcQ</a><br />►OFFICIAL MERCH:<br /><a rel="nofollow" target="blank" href="http://shopbford.com/">http://shopbford.com/</a><br /><br />BOOK ME ON CAMEO:<br /><a rel="nofollow" target="blank" href="https://www.cameo.com/bfordlancer48">https://www.cameo.com/bfordlancer48</a><br /><br />►SUBSCRIBE TODAY: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCNWgHP_0lBoB8QqECjZTgoQ">https://www.youtube.com/channel/UCNWgHP_0lBoB8QqECjZTgoQ</a><br /><br />SOCIAL MEDIA LINKS:<br />►Instagram: <a rel="nofollow" target="blank" href="http://www.Instagram.com/bfordlancer48">http://www.Instagram.com/bfordlancer48</a><br />►Livestreams: <a rel="nofollow" target="blank" href="https://fb.gg/bfordlancer48">https://fb.gg/bfordlancer48</a><br />►Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/bfordlancer48">http://www.twitter.com/bfordlancer48</a><br />►Twitch: <a rel="nofollow" target="blank" href="http://www.twitch.tv/bfordlancer48">http://www.twitch.tv/bfordlancer48</a><br />►My Snapchat: BFordLancer48<br />►TikTok: <a rel="nofollow" target="blank" href="https://tiktok.com/@BFORDLANCER">https://tiktok.com/@BFORDLANCER</a><br /><br />OTHER SERIES PLAYLISTS:<br />►FIFA 22 Create A Club: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLePw8yiKljXorYZjRnQSX7y1Qs11O-aNA">https://www.youtube.com/playlist?list=PLePw8yiKljXorYZjRnQSX7y1Qs11O-aNA</a><br />►FIFA 22 My Player: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLePw8yiKljXrIwyqcaEKt2Ff5hZ0kB-xP">https://www.youtube.com/playlist?list=PLePw8yiKljXrIwyqcaEKt2Ff5hZ0kB-xP</a><br />►FIFA 22 Player Rewind: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLePw8yiKljXqOC6GCcAy-29L1o3QZPM9O">https://www.youtube.com/playlist?list=PLePw8yiKljXqOC6GCcAy-29L1o3QZPM9O</a><br />►FIFA 22 Ultimate Team Series: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLePw8yiKljXqEZr8xuC2F6kwUVFp-oyE6">https://www.youtube.com/playlist?list=PLePw8yiKljXqEZr8xuC2F6kwUVFp-oyE6</a>{% endraw %}
