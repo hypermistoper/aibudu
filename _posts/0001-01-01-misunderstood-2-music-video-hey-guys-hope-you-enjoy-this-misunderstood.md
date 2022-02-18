@@ -1,0 +1,15 @@
+---
+title: "Misunderstood 2 (Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/F5fn-JXzlzQ\/hqdefault.jpg"
+vid_id: "F5fn-JXzlzQ"
+categories: "Music"
+tags: ["Misunderstood","mattybvlogs","cover"]
+date: "2022-02-18T08:46:09+03:00"
+vid_date: "2021-11-11T15:10:11Z"
+duration: "PT2M46S"
+viewcount: "3714953"
+likeCount: "9081"
+dislikeCount: ""
+channel: "MattyBVlogs"
+---
+{% raw %}Hey guys!  Hope you enjoy this #Misunderstood music video!<br /><br />Haven't seen the original?  Watch HERE:  <a rel="nofollow" target="blank" href="https://youtu.be/1O9Q78GiAxY">https://youtu.be/1O9Q78GiAxY</a><br /><br />SUBSCRIBE to #MBV​​ for more music and vlogs!<br /><br />Follow MattyB:<br /><a rel="nofollow" target="blank" href="http://www.MattyBRaps.com​​">http://www.MattyBRaps.com​​</a><br /><a rel="nofollow" target="blank" href="http://www.YouTube.com/MattyBVlogs​​">http://www.YouTube.com/MattyBVlogs​​</a><br /><a rel="nofollow" target="blank" href="http://www.Twitter.com/MattyBRaps​​">http://www.Twitter.com/MattyBRaps​​</a><br /><a rel="nofollow" target="blank" href="http://www.Instagram.com/MattyBRaps​​">http://www.Instagram.com/MattyBRaps​​</a><br /><a rel="nofollow" target="blank" href="http://www.Facebook.com/MattyBRaps​​">http://www.Facebook.com/MattyBRaps​​</a><br />Snapchat:  realmattybraps<br /><br />Official MattyB Gear:<br /><a rel="nofollow" target="blank" href="http://mattyb.spreadshirt.com">http://mattyb.spreadshirt.com</a><br /><br />&quot;Misunderstood&quot; <br />LYRICS<br /><br />[Verse One]<br />I can’t believe what I just heard<br />Thought that we were best friends<br />Now she kicked me to the curb<br />Is it something that I did?<br />Cause I would say sorry if I knew what it is<br />I’ve never seen her act this way<br />Or say these kinda things, guess something has changed<br />I gotta think of something real quick<br />To make it go back to before, gotta fix this!<br /><br />[Pre Chorus]<br />Walking on eggshells<br />What did I do?<br />What did I do?<br /><br />[Chorus]<br />Hey!<br />Don’t know the right thing to say - to say<br />All I know is I would change it if I could<br />Maybe I misunderstood<br />Hey!<br />I’m just tryna have a good day - good day<br />All I know is I would change it if I could<br />Maybe I misunderstood<br /><br />[Verse Two]<br />Something really weird is going on today<br />With my baby sister, she’s acting strange<br />Every time I turn around she’s hiding out<br />And when I try to walk up, she runs away!<br />Plus it’s been the worst day<br />Nothing’s going my way<br />Didn’t know what I did<br />To deserve this, strange<br />Oh well I can’t worry<br />‘Bout that now! No I can’t be<br /><br />[Pre Chorus]<br />Walking on eggshells<br />What did I do?<br />What did I do?<br /><br />[Chorus]<br />Hey!<br />Don’t know the right thing to say - to say<br />All I know is I would change it if I could<br />Maybe I misunderstood<br />Hey!<br />I’m just tryna have a good day - good day<br />All I know is I would change it if I could<br />Maybe I misunderstood{% endraw %}
