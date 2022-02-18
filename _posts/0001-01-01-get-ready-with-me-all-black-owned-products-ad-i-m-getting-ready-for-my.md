@@ -1,0 +1,15 @@
+---
+title: "Get Ready With Me | All Black Owned Products!"
+image: "https:\/\/i.ytimg.com\/vi\/2pV2TGpSbeY\/hqdefault.jpg"
+vid_id: "2pV2TGpSbeY"
+categories: "Howto-Style"
+tags: ["raven elyse","family vlogger","black owned beauty products"]
+date: "2022-02-18T03:10:30+03:00"
+vid_date: "2022-02-16T18:00:03Z"
+duration: "PT26M13S"
+viewcount: "45907"
+likeCount: "3738"
+dislikeCount: ""
+channel: "RAVEN ELYSE"
+---
+{% raw %}#ad I'm getting ready for my day with all Black owned products from Target. Thanks to @Target for sponsoring this video. #Target #IChooseToCelebrate<br />Shop Target’s Capsule Collection: <a rel="nofollow" target="blank" href="https://tgt.biz/Raven_BHM_22_YT">https://tgt.biz/Raven_BHM_22_YT</a><br /><br />---GET THE LOOK!---<br />Shop my home: <a rel="nofollow" target="blank" href="https://bit.ly/3kTUcqd">https://bit.ly/3kTUcqd</a><br />Shop my closet: <a rel="nofollow" target="blank" href="https://bit.ly/3kW0aXA">https://bit.ly/3kW0aXA</a><br />Shop Ziya’s closet: <a rel="nofollow" target="blank" href="https://bit.ly/32a3Duc">https://bit.ly/32a3Duc</a><br />Shop my favorite beauty products: <a rel="nofollow" target="blank" href="https://bit.ly/3enqPtE">https://bit.ly/3enqPtE</a><br /> <br />---FOLLOW US EVERYWHERE!---<br />• INSTAGRAM → <a rel="nofollow" target="blank" href="https://www.instagram.com/ravenelyse">https://www.instagram.com/ravenelyse</a><br />• TIKTOK → <a rel="nofollow" target="blank" href="https://www.tiktok.com/@ravenelysetv">https://www.tiktok.com/@ravenelysetv</a><br />• ZIYA'S INSTAGRAM → <a rel="nofollow" target="blank" href="https://www.instagram.com/ziya.papaya">https://www.instagram.com/ziya.papaya</a><br />• MY DREAM HOME INSTAGRAM →  <a rel="nofollow" target="blank" href="https://www.instagram.com/ravensdreamhome/">https://www.instagram.com/ravensdreamhome/</a><br />• TWITTER → <a rel="nofollow" target="blank" href="https://www.twitter.com/RavenElyseTV">https://www.twitter.com/RavenElyseTV</a><br />• FACEBOOK → <a rel="nofollow" target="blank" href="https://www.facebook.com/ravenelysetv">https://www.facebook.com/ravenelysetv</a><br />• PINTEREST → <a rel="nofollow" target="blank" href="https://www.pinterest.com/RavenElyseTV">https://www.pinterest.com/RavenElyseTV</a><br /> <br />——POPULAR VIDEOS----<br />MOMMY ROUTINES → <a rel="nofollow" target="blank" href="https://bit.ly/2GmHhsn">https://bit.ly/2GmHhsn</a><br />MOM VLOGS → <a rel="nofollow" target="blank" href="https://bit.ly/2t8lxuQ">https://bit.ly/2t8lxuQ</a><br />DREAM HOME SERIES → <a rel="nofollow" target="blank" href="https://bit.ly/2tcLyt9">https://bit.ly/2tcLyt9</a><br /> <br />---BUSINESS INQUIRIES---<br />Raven@NYLAInfluencers.com<br /> <br />----FREQUENTLY ASKED QUESTIONS----<br />LOCATION: Texas<br />BIRTHDAY: September 1993<br />ETHNICITY: African American<br />HEIGHT: 5'11<br />DAUGHTER: Named Ziya, born April 2016 <br /><br />SUBSCRIBE LINK:  <a rel="nofollow" target="blank" href="https://www.youtube.com/user/RavenElyseTV?sub_confirmation=1">https://www.youtube.com/user/RavenElyseTV?sub_confirmation=1</a>{% endraw %}
