@@ -1,0 +1,15 @@
+---
+title: "How To Make The Most Of Unlimited PTO"
+image: "https:\/\/i.ytimg.com\/vi\/NfpoqfL9ezk\/hqdefault.jpg"
+vid_id: "NfpoqfL9ezk"
+categories: "Education"
+tags: ["cody engel","forrestknight","forrest knight"]
+date: "2022-02-18T08:14:48+03:00"
+vid_date: "2019-08-05T11:00:28Z"
+duration: "PT10M52S"
+viewcount: "5189"
+likeCount: "185"
+dislikeCount: ""
+channel: "Cody Engel"
+---
+{% raw %}How can you make the most of your unlimited PTO without upsetting your co-workers? In this video I discuss how you can determine how much vacation time you should actually take with your companies unlimited vacation policy. So if you are feeling stressed, anxious, or just curious stay tuned! Also, in researching this I saw the term discretionary time off mentioned which is one I haven't seen mentioned in the past, does your company use this term when talking about their unlimited vacation policy?<br /><br />---- Resources ----<br /><a rel="nofollow" target="blank" href="https://www.glassdoor.com/blog/25-highest-rated-companies-for-vacation-paid-time-off/">https://www.glassdoor.com/blog/25-highest-rated-companies-for-vacation-paid-time-off/</a><br /><br /><a rel="nofollow" target="blank" href="https://en.wikipedia.org/wiki/List_of_minimum_annual_leave_by_country">https://en.wikipedia.org/wiki/List_of_minimum_annual_leave_by_country</a><br /><br />---- Follow Me ----<br />Discord - <a rel="nofollow" target="blank" href="https://discord.gg/N3yC28sx66">https://discord.gg/N3yC28sx66</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/CodyEngelTweets">https://twitter.com/CodyEngelTweets</a><br />Medium - <a rel="nofollow" target="blank" href="https://medium.com/@CodyEngel">https://medium.com/@CodyEngel</a><br /><br />---- Camera Gear ----<br />Camera - <a rel="nofollow" target="blank" href="https://amzn.to/2LM9Zt3">https://amzn.to/2LM9Zt3</a><br />Microphone - <a rel="nofollow" target="blank" href="https://amzn.to/2LLv0Eb">https://amzn.to/2LLv0Eb</a><br />Lens - <a rel="nofollow" target="blank" href="https://amzn.to/317tGPT">https://amzn.to/317tGPT</a><br />Main Lights - <a rel="nofollow" target="blank" href="https://amzn.to/2K2yHDH">https://amzn.to/2K2yHDH</a><br />Back Lights - <a rel="nofollow" target="blank" href="https://amzn.to/2Yw4HUI">https://amzn.to/2Yw4HUI</a><br />External Monitor - <a rel="nofollow" target="blank" href="https://amzn.to/2YoM2Kl">https://amzn.to/2YoM2Kl</a><br />* Note: the above links are affiliate links.<br /><br />---- Desk Gear ----<br />Monitor - <a rel="nofollow" target="blank" href="https://amzn.to/2yjZPqR">https://amzn.to/2yjZPqR</a><br />Headphones - <a rel="nofollow" target="blank" href="https://amzn.to/2YBuo68">https://amzn.to/2YBuo68</a><br />Google Nest Hub - <a rel="nofollow" target="blank" href="https://amzn.to/30Zuki7">https://amzn.to/30Zuki7</a><br />MacBook Pro 2019 - <a rel="nofollow" target="blank" href="https://amzn.to/30YyuXy">https://amzn.to/30YyuXy</a><br />* Note: the above links are affiliate links.{% endraw %}
