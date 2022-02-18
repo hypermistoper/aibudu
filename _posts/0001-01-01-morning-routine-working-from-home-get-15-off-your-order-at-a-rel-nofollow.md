@@ -1,0 +1,15 @@
+---
+title: "MORNING ROUTINE | working from home"
+image: "https:\/\/i.ytimg.com\/vi\/I-HoDPsQFMo\/hqdefault.jpg"
+vid_id: "I-HoDPsQFMo"
+categories: "Howto-Style"
+tags: ["meghan livingstone","morning routine","healthy morning routine"]
+date: "2022-02-18T06:30:50+03:00"
+vid_date: "2019-06-22T12:30:19Z"
+duration: "PT6M19S"
+viewcount: "179674"
+likeCount: "3979"
+dislikeCount: ""
+channel: "Meghan Livingstone"
+---
+{% raw %}→ Get 15% off your order at <a rel="nofollow" target="blank" href="https://www.foursigmatic.com/meghan">https://www.foursigmatic.com/meghan</a><br /><br />Hey everyone! It's been a while since I last filmed a morning routine. Here's a look into a typical morning for me :)<br /><br />LEARN MORE<br />→ Grain-free Pumpkin Pancakes: <a rel="nofollow" target="blank" href="https://bit.ly/2wEJuMw">https://bit.ly/2wEJuMw</a><br />→ Essential oil diffuser: <a rel="nofollow" target="blank" href="https://amzn.to/2WSmuo4">https://amzn.to/2WSmuo4</a><br />→ Brita Filter: <a rel="nofollow" target="blank" href="https://amzn.to/2J3SAs0">https://amzn.to/2J3SAs0</a><br />→ Pacifica Mascara: <a rel="nofollow" target="blank" href="https://amzn.to/2YbyYc4">https://amzn.to/2YbyYc4</a><br />→ Shop my favourite healthy items: <a rel="nofollow" target="blank" href="http://bit.ly/2nx8NMm">http://bit.ly/2nx8NMm</a><br /><br />WATCH MORE<br />→ Curly Hair Routine: <a rel="nofollow" target="blank" href="https://bit.ly/2xaz0F6">https://bit.ly/2xaz0F6</a><br />→ 5 Easy Breakfast Recipes: <a rel="nofollow" target="blank" href="https://bit.ly/2RxtFB1">https://bit.ly/2RxtFB1</a><br />→ Beginner''s Guide to Healthy Eating: <a rel="nofollow" target="blank" href="https://bit.ly/2W6GQuh">https://bit.ly/2W6GQuh</a><br />→ Kitchen Hacks: <a rel="nofollow" target="blank" href="https://bit.ly/2Iz2inq">https://bit.ly/2Iz2inq</a><br /><br />FIND ME HERE<br />→ Website: <a rel="nofollow" target="blank" href="https://www.meghanlivingstone.com">https://www.meghanlivingstone.com</a><br />→ Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/meghanlivingstone">http://www.instagram.com/meghanlivingstone</a><br />→ Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/mlivingstone11">http://www.facebook.com/mlivingstone11</a><br />→ Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/mlivingstone1">http://www.twitter.com/mlivingstone1</a><br /><br />EQUIPMENT USED<br />→ Camera: <a rel="nofollow" target="blank" href="https://amzn.to/2Fp4dd5">https://amzn.to/2Fp4dd5</a><br />→ Lens: <a rel="nofollow" target="blank" href="http://amzn.to/2k5Gmow">http://amzn.to/2k5Gmow</a><br /><br />MUSIC<br />→ Courtesy of Soundstripe<br /><br />Disclaimer: Thank you so much to Four Sigmatic for partnering with me again on today's video! This video is for informational purposes only and does not substitute or replace medical advice. All opinions expressed are my own. This description contains affiliate links, which means that if purchases are made when clicked, I’ll receive a small commission. Thank you!<br /><br />Meghan Livingstone, CNP<br />Certified Holistic Nutritionist{% endraw %}
