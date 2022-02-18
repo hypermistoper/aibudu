@@ -1,0 +1,15 @@
+---
+title: "A Genuine FastTrack to Happiness - How To… with Robert Holden"
+image: "https:\/\/i.ytimg.com\/vi\/v3EBXCIYgX8\/hqdefault.jpg"
+vid_id: "v3EBXCIYgX8"
+categories: "Education"
+tags: ["inspirational","motivational","cutting edge science"]
+date: "2022-02-18T15:00:51+03:00"
+vid_date: "2022-02-15T23:30:10Z"
+duration: "PT18M46S"
+viewcount: "11605"
+likeCount: "768"
+dislikeCount: ""
+channel: "Gregg Braden Official"
+---
+{% raw %}Join host Lisa Garr - <a rel="nofollow" target="blank" href="https://bit.ly/Inspirations_Gaia_Original_Series">https://bit.ly/Inspirations_Gaia_Original_Series</a> for fascinating interviews featuring leading-edge visionaries, spiritual teachers and inspiring innovators in personal development and mind-body wellness. You’ll explore spirituality, gain personal insights and learn the tools to help make real-life changes.<br />Life, liberty and the pursuit of happiness: they’re our inalienable rights as members of the human race. But how many of us pursue happiness and actually find it? Robert Holden, Ph.D., may have found us a shortcut. In this interview taped live at the I Can Do It event in Denver, Colorado, Holden shares his method for happiness by blending scientific research with real-life tools.<br />Robert Holden, Ph.D., author of Happiness NOW!, Shift Happens!, Authentic Success (formerly titled Success Intelligence) and Be Happy, is the Director of The Happiness Project and Success Intelligence. He coaches leaders in business, education, politics and healthcare and hosts a weekly show on Hay House Radio called Shift Happens!<br /><br />With Special Thanks to our partner Gaia WHAT IS GAIA? - <a rel="nofollow" target="blank" href="https://www.gaia.com/gaia-gregg">https://www.gaia.com/gaia-gregg</a> - world’s largest online resource of consciousness-expanding content - over 8,000 informative and enlightening films, original shows, yoga, and meditation classes, and more that you won’t find anywhere else. <br />WHAT OTHER TV SHOWS DOES GAIA HAVE? – follow this link to learn more <a rel="nofollow" target="blank" href="https://www.gaia.com/gaiatv-gregg">https://www.gaia.com/gaiatv-gregg</a> <br />ARE THERE MOVIES ON GAIA? - YES!! – follow this link <a rel="nofollow" target="blank" href="https://www.gaia.com/gaiafilms-gregg">https://www.gaia.com/gaiafilms-gregg</a> to learn more, and start your complimentary Free Trial<br /><br /><br />Stay Connected<br /><br />Official website: <a rel="nofollow" target="blank" href="https://greggbraden.com/about-gregg-braden/">https://greggbraden.com/about-gregg-braden/</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/GreggBraden">https://www.facebook.com/GreggBraden</a> <br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/GreggBraden">https://twitter.com/GreggBraden</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/Gregg.Braden/">https://www.instagram.com/Gregg.Braden/</a>{% endraw %}
