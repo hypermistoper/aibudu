@@ -1,0 +1,15 @@
+---
+title: "BOOK HAUL AND RECOMMENDATIONS 2022 (PHILIPPINES)"
+image: "https:\/\/i.ytimg.com\/vi\/adWymNSY8E8\/hqdefault.jpg"
+vid_id: "adWymNSY8E8"
+categories: "People-Blogs"
+tags: ["ayn bernos","philippines","book haul"]
+date: "2022-02-18T19:32:23+03:00"
+vid_date: "2022-02-18T09:54:23Z"
+duration: "PT15M15S"
+viewcount: "690"
+likeCount: "97"
+dislikeCount: ""
+channel: "Ayn Bernos"
+---
+{% raw %}Let’s talk about books! 🤓 I did some retail therapy ~books edition~ and I thought it would be fun to share what I got with you guys! I usually don’t buy this much that often but I’m so excited to share with you what I got and maybe share a little story on why I chose them. If you’ve been a follower for quite a while now, you would know that I love reading. So here’s a little treat to our friends who were asking some book recos! Were you able to read any of these titles already? How was it? Let me know in the comments! 🤎<br /><br />Books Mentioned:<br />📕 Big Magic<br />📕 Beach Read - <a rel="nofollow" target="blank" href="https://bit.ly/3gWYaxH">https://bit.ly/3gWYaxH</a><br />📕 The Infographic Guide To Grammar - <a rel="nofollow" target="blank" href="https://bit.ly/3sNPf7s">https://bit.ly/3sNPf7s</a><br />📕 The Courage To Be Disliked - <a rel="nofollow" target="blank" href="https://bit.ly/36cwoLw">https://bit.ly/36cwoLw</a><br />📕 People We Meet On Vacation - <a rel="nofollow" target="blank" href="https://bit.ly/3s7EmhP">https://bit.ly/3s7EmhP</a><br />📕 Maybe In Another Life - <a rel="nofollow" target="blank" href="https://bit.ly/3v4q9nH">https://bit.ly/3v4q9nH</a><br />📕 Parachutes - <a rel="nofollow" target="blank" href="https://bit.ly/3LIdzjS">https://bit.ly/3LIdzjS</a><br />📕 Once Upon A Sunset<br />📕 Malibu Rising - <a rel="nofollow" target="blank" href="https://bit.ly/3pjz7tB">https://bit.ly/3pjz7tB</a><br /><br />↠ Connect with me! ↞<br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/aynbernos">http://www.instagram.com/aynbernos</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/aynbernosdotnet">http://www.facebook.com/aynbernosdotnet</a><br />TikTok: <a rel="nofollow" target="blank" href="http://www.tiktok.com/@aynbernos">http://www.tiktok.com/@aynbernos</a><br /><a rel="nofollow" target="blank" href="http://www.tiktok.com/@aynperotagalog">http://www.tiktok.com/@aynperotagalog</a><br /><br />↠ Shop Morena the Label ↞<br />PH: <a rel="nofollow" target="blank" href="http://ideologie.studio/morenathelabel">http://ideologie.studio/morenathelabel</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/morenathelabel/">http://instagram.com/morenathelabel/</a><br /><br /> ↠ Camp Confidence the Podcast ↞<br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/4KCQ2T4OyU">https://open.spotify.com/show/4KCQ2T4OyU</a><br />FB Group: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/campconfidence">https://www.facebook.com/groups/campconfidence</a><br /><br />↠ Work with me ↞<br />yish.martin@gmail.com{% endraw %}
