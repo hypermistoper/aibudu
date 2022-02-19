@@ -1,0 +1,15 @@
+---
+title: "Dangerous Thief's Dump FOUND while Searching for River Treasure!"
+image: "https:\/\/i.ytimg.com\/vi\/d45IZcVtVLk\/hqdefault.jpg"
+vid_id: "d45IZcVtVLk"
+categories: "Entertainment"
+tags: ["Dangerous","Thief's","FOUND"]
+date: "2022-02-19T23:38:43+03:00"
+vid_date: "2022-02-18T14:00:15Z"
+duration: "PT11M15S"
+viewcount: "9364"
+likeCount: "1002"
+dislikeCount: ""
+channel: "Adventure Archaeology"
+---
+{% raw %}Dangerous Thief's Dump FOUND while Searching for River Treasure! (Mudlarking)<br /><br />You never know what you will find while mudlarking! This week we find some history and we also find some possible criminal evidence!<br /><br />******* HOW TO VIDEOS ********<br /><br />CLEAN BOTTLES: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=WBFfVMtS3oY&amp;t=125s">https://www.youtube.com/watch?v=WBFfVMtS3oY&amp;t=125s</a><br /><br />FIND BOTTLE DUMPS: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=DEkF2MT5JlI">https://www.youtube.com/watch?v=DEkF2MT5JlI</a><br /><br /><br />******BECOME A MEMBER****** <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHYTOnxvMhgQLU483YWte2w/join">https://www.youtube.com/channel/UCHYTOnxvMhgQLU483YWte2w/join</a><br /><br />***** BLU3 NEMO HOOKAH SETUP: <a rel="nofollow" target="blank" href="https://lddy.no/gusv">https://lddy.no/gusv</a> *****<br /><br />**** VINTAGE SOFT DRINK SHIRTS <a rel="nofollow" target="blank" href="https://vintagemark.net/">https://vintagemark.net/</a> ****<br /><br />Magnet Fishing Magnets: <a rel="nofollow" target="blank" href="http://shrsl.com/2bptd">http://shrsl.com/2bptd</a><br /><br />****************SUPPORT THE CHANNEL BY USING THESE LINKS TO BUY/DONATE***************<br /><br />SUPPORT AND DONATIONS: <a rel="nofollow" target="blank" href="https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=MZE85XBB24E4W&amp;source=url">https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=MZE85XBB24E4W&amp;source=url</a><br /><br />T-SHIRT LINK: <a rel="nofollow" target="blank" href="https://teespring.com/stores/adventure-archaeology">https://teespring.com/stores/adventure-archaeology</a><br /><br /><br />EBAY STORE: <a rel="nofollow" target="blank" href="https://www.ebay.com/usr/adventurearchaeology">https://www.ebay.com/usr/adventurearchaeology</a><br /><br /><br />TREASURE HUNTING SUPPLIES: <a rel="nofollow" target="blank" href="http://shrsl.com/1cuto-1ueu-s8em">http://shrsl.com/1cuto-1ueu-s8em</a><br /><br /><br />    ************OTHER SOCIAL MEDIA ACCOUNTS*************<br /><br /><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/adventurearchaeology">https://www.facebook.com/adventurearchaeology</a><br /><br /><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/adventure_archaeology/">https://www.instagram.com/adventure_archaeology/</a><br /><br /><br /><br />#mudlarking<br />#rivertreasure<br />#evidence{% endraw %}
