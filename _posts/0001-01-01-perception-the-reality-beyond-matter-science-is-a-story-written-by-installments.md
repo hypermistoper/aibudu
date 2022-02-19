@@ -1,0 +1,15 @@
+---
+title: "Perception - The reality beyond matter"
+image: "https:\/\/i.ytimg.com\/vi\/AqnEGu8VF8Y\/hqdefault.jpg"
+vid_id: "AqnEGu8VF8Y"
+categories: "Science-Technology"
+tags: ["Perception","Mind","Reality"]
+date: "2022-02-19T22:36:21+03:00"
+vid_date: "2007-02-21T16:51:24Z"
+duration: "PT20M28S"
+viewcount: "827745"
+likeCount: "2339"
+dislikeCount: ""
+channel: "Integr8"
+---
+{% raw %}Science is a story written by installments over time, and since so much information gets updated these days.  I one day found myself wondering... What is &quot;reality&quot;? <br /><br />Watch Brian Greene explain some further intriguing info at: <br /><br />The GOD Particle<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=d4RSbSLt24I">https://www.youtube.com/watch?v=d4RSbSLt24I</a><br /><br />The Elegant universe:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=UV_X2B5OK1I">https://www.youtube.com/watch?v=UV_X2B5OK1I</a><br /><br /><br />Is matter all that is 'real'? ... and what are Dreams and memories? - why do they feel so real at times?  One thing is for sure - change.<br /><br />&quot;What is reality&quot; might seem like a silly question given how we use our senses to interact with 'reality' everyday, but I have since arrived at ideas which I am comfortable with regarding these questions (although Im still curious). <br /><br /><br />** So heres some questions to play with - play nicely :-) **<br /><br />• If I had to point to where my idea or concept of reality is maintained, I'd be pointing to my head - how about you?<br /><br />• Is all this environmental information just vibrational energies which are presented to our body and then decoded to form a perception in the brain according to our programs and patterns? ie: Do we subconsciously 'read' or filter this data then build an experience that seems real? <br /><br />• Can I get outside of my experience to prove anything is fact or real, or is reality bound to ones experience like the fabric to the shirt? <br /><br />• What of the realities I have when I dream, - my body still responds as if they are real, so what is reality?<br /><br />• If I am not the cause (creator) of my experience; the director of my focus of attention on some level whether awake or asleep, am I controlled by something else? <br /><br />• If existence is the single defining quality of all-that-is; part of which includes me, then am I not contributing to the expansion of existence through my personal experience?<br /><br />• ....or is my experience controlled by something outside of existence: Non-existence for example? (which is more probably already full of everything that will never be !) <br /><br />• And if I am completely controlled by something other than me, what then is the purpose of my life?<br /><br /><br /><br />I wish you all - many, many pleasant realities. <br />Choose them wisely, for our experience may be everything that matters.<br /><br />Pete.{% endraw %}
