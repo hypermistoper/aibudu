@@ -1,0 +1,15 @@
+---
+title: "Why understanding chronic illness improves community health | Lauran Hardin | TEDxMidAtlantic"
+image: "https:\/\/i.ytimg.com\/vi\/y4YJTazkLn4\/hqdefault.jpg"
+vid_id: "y4YJTazkLn4"
+categories: "Nonprofits-Activism"
+tags: ["TEDxTalks","English","Health"]
+date: "2022-02-19T12:49:23+03:00"
+vid_date: "2021-01-12T22:00:11Z"
+duration: "PT12M17S"
+viewcount: "33471"
+likeCount: "894"
+dislikeCount: ""
+channel: "TEDx Talks"
+---
+{% raw %}Just 5% of patients account for 50% of the costs of healthcare in the United States. Lauran Hardin explains why deeply understanding the causes of chronic illness and the needs of complex-care patients can radically transform outcomes for not only those most at-risk, but for communities as a whole — delivering major reductions in public safety, healthcare, and other costs. Hardin believes that understanding chronic care leads to new opportunities to redesign healthcare for everyone. Lauran Hardin is the Senior Advisor for the Camden Coalition’s National Center for Complex Health and Social Needs. In this role, she builds upon her extensive experience providing consulting, co-design and coaching in care re-design and complex care transformation. Current projects include co-designing a complex care ecosystem for uninsured patients in Memphis, TN, scaling a community based cross-sector care coordination model for vulnerable populations throughout the Adventist Health system and development of a complex care clinic model within the Sutter Health system.<br /><br />Hardin was previously the Director of a Complex Care Center serving hospitals, multiple providers and more than 1,500 high frequency/complex patients in the Mercy Health System. The Center’s model of complex care has resulted in better patient navigation and outcomes, including decreased emergency room visits, hospitalizations, and costs for vulnerable populations. Aspects of the care model were implemented in more than twenty Trinity Health ministries across six states, including rural and urban locations.<br />Hardin was awarded the National CNL Vanguard award from the AACN in January 2015. Her innovative model of care earned her “Edge Runner” recognition from the American Academy of Nursing in June of 2015. She was named AARP Culture of Health Scholar at the National Center for Complex Health and Social Needs in January of 2017 and inducted as a Distinguished Fellow of the National Academies of Practice in Nursing in 2018. Hardin earned her Master’s degree in Nursing from the University of Detroit Mercy, with certifications as a CNL, Pain Management and Hospice. She trained as a Facilitator with the Elisabeth Kubler-Ross Center, spent several years working in hospice, and co-developed the first Pain and Palliative Care service in the West Michigan region. This talk was given at a TEDx event using the TED conference format but independently organized by a local community. Learn more at <a rel="nofollow" target="blank" href="https://www.ted.com/tedx">https://www.ted.com/tedx</a>{% endraw %}
