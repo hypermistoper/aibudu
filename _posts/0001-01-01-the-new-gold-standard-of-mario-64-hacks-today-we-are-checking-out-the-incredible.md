@@ -1,0 +1,15 @@
+---
+title: "The New GOLD STANDARD Of Mario 64 Hacks!!!"
+image: "https:\/\/i.ytimg.com\/vi\/JWINlpFr1KE\/hqdefault.jpg"
+vid_id: "JWINlpFr1KE"
+categories: "Gaming"
+tags: ["super mario maker 2","mario maker 2","mario maker 2 troll"]
+date: "2022-02-20T19:12:39+03:00"
+vid_date: "2022-02-20T15:00:17Z"
+duration: "PT20M4S"
+viewcount: "3915"
+likeCount: "376"
+dislikeCount: ""
+channel: "DGR"
+---
+{% raw %}Today we are checking out the INCREDIBLE new Mario 64 Rom Hack &quot;Peach's Fury&quot; made by @Kaze Emanuar !! This truly is my new favorite Mario 64 hack I've played and is the new standard for which I will look at hacks...it's THAT good!<br /><br />Find out more about 'Peach's Fury' by Kaze here: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=-e5yqy4eNaQ">https://www.youtube.com/watch?v=-e5yqy4eNaQ</a><br /><br />Big thanks to Chris for editing this video: twitch.tv/low_on_life<br /><br />Check out the DGRchives channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCWjM_dd2bl2UDV4KmfQf6LA">https://www.youtube.com/channel/UCWjM_dd2bl2UDV4KmfQf6LA</a><br />________________________________________________<br />Complete 'TROLLED' video series: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLETJULoBqRr8t5CgM-T6dTJ5GL08MkuDb">https://www.youtube.com/playlist?list=PLETJULoBqRr8t5CgM-T6dTJ5GL08MkuDb</a><br />Complete UNCLEARED LEVEL Series: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLETJULoBqRr9T5WtdUrK-bxaCvNWMmIAD">https://www.youtube.com/playlist?list=PLETJULoBqRr9T5WtdUrK-bxaCvNWMmIAD</a><br />Complete UNO MAS Series: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLETJULoBqRr-201cCj6Vq9RjTihKnH2vG">https://www.youtube.com/playlist?list=PLETJULoBqRr-201cCj6Vq9RjTihKnH2vG</a><br />Complete 'Mario Maker' video series: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLETJULoBqRr9jfYq_C802_RYORMxXe91p">https://www.youtube.com/playlist?list=PLETJULoBqRr9jfYq_C802_RYORMxXe91p</a><br />Complete 'Ridiculous and Hilarious' series of videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLETJULoBqRr-8xFsUrXlZmi0mnbvy9x7Z">https://www.youtube.com/playlist?list=PLETJULoBqRr-8xFsUrXlZmi0mnbvy9x7Z</a><br />______________________________________________<br /><br />TWITTER 🔹 <a rel="nofollow" target="blank" href="https://twitter.com/DGR_Dave">https://twitter.com/DGR_Dave</a><br />TWITCH 🔸<a rel="nofollow" target="blank" href="https://www.twitch.tv/dgr_dave">https://www.twitch.tv/dgr_dave</a><br />DISCORD 🔹<a rel="nofollow" target="blank" href="https://discordapp.com/invite/dgr">https://discordapp.com/invite/dgr</a><br />FACEBOOK 🔸<a rel="nofollow" target="blank" href="https://www.facebook.com/dangoodrepairs/">https://www.facebook.com/dangoodrepairs/</a><br />MERCH 🔹<a rel="nofollow" target="blank" href="https://teespring.com/stores/dgrs-choke-city-warehouse">https://teespring.com/stores/dgrs-choke-city-warehouse</a>{% endraw %}
