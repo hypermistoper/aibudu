@@ -1,0 +1,15 @@
+---
+title: "How do you evict a month to month tenant?"
+image: "https:\/\/i.ytimg.com\/vi\/Jl28cMyq5TE\/hqdefault.jpg"
+vid_id: "Jl28cMyq5TE"
+categories: "Education"
+tags: ["evict a month to month tenant","15 day notice to tenant","Lawyer"]
+date: "2022-02-20T07:55:34+03:00"
+vid_date: "2017-03-27T14:32:37Z"
+duration: "PT1M53S"
+viewcount: "6603"
+likeCount: "67"
+dislikeCount: ""
+channel: "LawTube"
+---
+{% raw %}Evicting a month to month tenant always starts by giving the tenant a 15 day notice to move.  If the tenant does not move, then you can begin a legal eviction action based on the 15 day notice.<br /><br />Transcript:<br /><br />Attorney Rob Solomon: A month-to-month tenant is a tenant in every sense of the word. Month-to-month means that their commitment and your commitment as a landlord is short term, it runs from month to month, so that if you give 15 days notice before the end of a rental period -- So if the rental period runs from the first to the 30th, and you give a notice that they need to return possession to you, you can do that before the 15th of that month, and they would be required to leave pursuant to that notice at the end of the month. That's the notice that you would give.<br />In all other respects, it looks like an eviction because a notice isn't an eviction, a notice given, you hope, will lead to the results that the notice will be followed and the person will depart, but if they do not depart, you have to go through a standard eviction. In this case, the eviction isn't based on a failure to pay rent, it's based on the fact that they received, and you can show they received a proper 15-day notice, and that they didn't vacate the property in return possession to you at the end of end of the month as was required by the notice.<br />So you see that notices are not evictions, three-day notices and other kinds of notices that we may talk about, but they are the necessary prerequisite to doing an eviction if the notice doesn't succeed in getting the result that's demanded by the notice. So, that's what a month-to-month tenancy eviction begins to look like, and it starts with a 15-day notice to vacate and return possession before the end of the month.<br /><br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/lawtubechannel">https://www.youtube.com/user/lawtubechannel</a> to subscribe to our newest legal videos.<br /><a rel="nofollow" target="blank" href="http://www.lawtube.com">http://www.lawtube.com</a> to check out our Video Law Library.<br />Attorney Tom Olsen is host of the Olsen on Law Radio Show on FM 96.5 WDBO in Orlando. You can reach Tom at 407-423-5561 or tom@lawtube.com.  Tom has been answering legal questions on his radio show for over 30 years and has been practicing law in Orlando, Florida for over 30 years. Also, TEXT or call Chrissy Merrill at 407-808-8398 with your legal questions.<br /><br />The Olsen on Law Radio Show is the longest running legal radio show in the world.<br /><br />Produced by Professional Media Ideas. Call or text Chrissy Merrill at 407-808-8398 or by email at chris@lawtube.com{% endraw %}
