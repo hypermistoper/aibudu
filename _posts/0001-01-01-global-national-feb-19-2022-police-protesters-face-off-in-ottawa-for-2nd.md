@@ -1,0 +1,15 @@
+---
+title: "Global National: Feb. 19, 2022 | Police, protesters face off in Ottawa for 2nd day"
+image: "https:\/\/i.ytimg.com\/vi\/r6YXyg9ScF4\/hqdefault.jpg"
+vid_id: "r6YXyg9ScF4"
+categories: "News-Politics"
+tags: ["global news","coronavirus","COVID-19"]
+date: "2022-02-20T20:36:15+03:00"
+vid_date: "2022-02-20T02:30:12Z"
+duration: "PT21M35S"
+viewcount: "130714"
+likeCount: "1332"
+dislikeCount: ""
+channel: "Global News"
+---
+{% raw %}Police and protesters faced off for a second straight day in the nation’s capital and at times those tensions erupted into violence, but tonight it appears the Ottawa occupation is into its final hours.<br /><br />Police and protesters are accusing each other of abusive behaviour after a day that saw officers reclaim the street in front of Parliament Hill. At least 170 people have been arrested as part of the convoy crackdown and Ottawa’s police chief warned their investigation into others involved will continue for many months. David Akin has more from Parliament Hill.<br /><br />The streets in Ottawa are starting to look more bare and normal. Sean O’Shea has more from the midst of that police operation.<br /><br />From protesters to police, officers appeared to be shifting strategy today as they work to clear the remaining protesters from the area. The slow methodical approach that we saw from police yesterday seemed to be replaced with a much tougher line today. Mercedes Stephenson has more on the police tactics used today.<br /><br />To the escalating tensions in Ukraine and a new show of force from Vladimir Putin. The Russian president oversaw large-scale nuclear drills today. And as Reggie Cecchini reports, it comes as Ukraine’s president issues a desperate plea to western allies. <br /><br />George Floyd’s murder in the summer of 2020 sparked a global outcry over systemic racial inequality including Black employees in corporate Canada. A new survey sheds light on how their situation is changing. Anne Gaviola reports.<br /> <br />Northern British Columbia is a world away from Syria, but it’s a place one Syrian refugee is proud to call home. To express his gratitude he’s giving back to his community. Jay Durant has his story.<br /><br />For more info, please go to <a rel="nofollow" target="blank" href="https://globalnews.ca/news/8632832/ottawa-police-freedom-convoy-blockade/">https://globalnews.ca/news/8632832/ottawa-police-freedom-convoy-blockade/</a><br /><br />Subscribe to Global News Channel HERE: <a rel="nofollow" target="blank" href="http://bit.ly/20fcXDc">http://bit.ly/20fcXDc</a><br />Like Global News on Facebook HERE: <a rel="nofollow" target="blank" href="http://bit.ly/255GMJQ">http://bit.ly/255GMJQ</a><br />Follow Global News on Twitter HERE: <a rel="nofollow" target="blank" href="http://bit.ly/1Toz8mt">http://bit.ly/1Toz8mt</a><br />Follow Global News on Instagram HERE: <a rel="nofollow" target="blank" href="https://bit.ly/2QZaZIB">https://bit.ly/2QZaZIB</a><br />#GlobalNews #TruckerProtests #FreedomConvoy{% endraw %}
