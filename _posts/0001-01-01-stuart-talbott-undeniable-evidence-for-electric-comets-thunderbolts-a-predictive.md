@@ -1,0 +1,15 @@
+---
+title: "Stuart Talbott: Undeniable Evidence for Electric Comets | Thunderbolts"
+image: "https:\/\/i.ytimg.com\/vi\/_0GRQGJQSYg\/hqdefault.jpg"
+vid_id: "_0GRQGJQSYg"
+categories: "Education"
+tags: ["electric universe","Sofia Bergman","Wal Thornhill"]
+date: "2022-02-21T02:36:20+03:00"
+vid_date: "2022-02-20T00:00:20Z"
+duration: "PT8M29S"
+viewcount: "9774"
+likeCount: "1238"
+dislikeCount: ""
+channel: "ThunderboltsProject"
+---
+{% raw %}A predictive milestone for the electric comet model. In her November 2021 doctoral thesis, Sofia Bergman, PhD student at the Swedish Institute of Space Physics, used SPIS (Spacecraft Plasma Interaction Software) to measure low-energy ions around Comet 67P/Churyumov-Gerasimenko. A large amount of positive ions were measured flowing inward towards the comet's nucleus—instead of outward as expected—evidence of a negatively charged object.<br /><br />Independent researcher, Stuart Talbott, details the electrical relationship between a comet and the solar environment—a negatively charged body suddenly entering into a more positively charged domain will discharge electrically—and provides new evidence that comets are yet another realization of our Electric Universe.<br /><br />--<br />If you see a CC with this video, it means that subtitles are available. To find out which ones, click on the Gear Icon in the lower right area of the video box and click on “subtitles” in the drop-down box.  Then click on the subtitle that you would like.  <br /><br />The Thunderbolts Project — a Voice for the Electric Universe<br /><a rel="nofollow" target="blank" href="http://thunderbolts.info">http://thunderbolts.info</a><br /><br />Become a Producer through the PATREON Rewards program...<br /><a rel="nofollow" target="blank" href="https://patreon.com/tboltsproject">https://patreon.com/tboltsproject</a><br /><br />Subscribe to Thunderbolts eNewsletter  <a rel="nofollow" target="blank" href="http://eepurl.com/ETy41">http://eepurl.com/ETy41</a><br />Guides to the Electric Universe  <a rel="nofollow" target="blank" href="https://www.thunderbolts.info/wp/eu-guides/">https://www.thunderbolts.info/wp/eu-guides/</a><br />Electric Universe Books &amp; Merch  <a rel="nofollow" target="blank" href="http://StickmanOnStone.com/">http://StickmanOnStone.com/</a><br />Electric Universe by Wal Thornhill  <a rel="nofollow" target="blank" href="http://HoloScience.com/wp/">http://HoloScience.com/wp/</a><br />Instagram  <a rel="nofollow" target="blank" href="https://www.instagram.com/thethunderboltsproject/">https://www.instagram.com/thethunderboltsproject/</a><br />Facebook  <a rel="nofollow" target="blank" href="http://facebook.com/thunderboltsproject">http://facebook.com/thunderboltsproject</a><br />Twitter  @tboltsproject<br /><br />Ideas and/or concepts presented on this channel do not necessarily express or represent the Electric Universe Model of Cosmology, The Thunderbolts Project, or T-Bolts Group Inc.<br /><br />The Thunderbolts Project™<br />Trademark of T-Bolts Group Inc. a non-profit 501(c)(3) organization.<br />Copyright © 2022 T-Bolts Group Inc. All rights reserved.{% endraw %}
