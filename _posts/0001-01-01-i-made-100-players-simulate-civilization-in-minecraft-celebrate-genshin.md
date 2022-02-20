@@ -1,0 +1,15 @@
+---
+title: "I Made 100 Players Simulate Civilization in Minecraft..."
+image: "https:\/\/i.ytimg.com\/vi\/fGQyDuErueE\/hqdefault.jpg"
+vid_id: "fGQyDuErueE"
+categories: "Gaming"
+tags: ["minecraft","mine craft","civilization"]
+date: "2022-02-20T04:47:00+03:00"
+vid_date: "2022-02-16T21:15:01Z"
+duration: "PT40M53S"
+viewcount: "1152731"
+likeCount: "52458"
+dislikeCount: ""
+channel: "Silver"
+---
+{% raw %}Celebrate Genshin Impact v2.5 with me: <a rel="nofollow" target="blank" href="https://hoyo.link/0b0vROA6">https://hoyo.link/0b0vROA6</a><br />Thanks to Genshin Impact for sponsoring this video.<br />Use code “ZSPDKSC3V8V5” to redeem for 60 primogems and 5x Adventurer’s Experience. Travelers need to reach Adventure Rank 10 to claim this reward.<br /><br />100 Players Simulate Civilization in Minecraft for a Month... <br /><br />This video was inspired by @MagicGum and @Ish, check out their civilization videos below if you haven't already!<br />• MagicGum: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=FxZXCxixEOI">https://www.youtube.com/watch?v=FxZXCxixEOI</a><br />• Ish: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=X8LGvsq4uwU">https://www.youtube.com/watch?v=X8LGvsq4uwU</a><br /><br />Join Future Civilization Events:<br />• twitter: <a rel="nofollow" target="blank" href="https://twitter.com/speedsilverr">https://twitter.com/speedsilverr</a><br />• civilization discord: <a rel="nofollow" target="blank" href="https://discord.gg/E9NgczE9p3">https://discord.gg/E9NgczE9p3</a><br /><br />Other Socials:<br />• twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/speedsilver​​">https://www.twitch.tv/speedsilver​​</a><br />• discord: <a rel="nofollow" target="blank" href="https://discord.gg/B2NrCrmetH">https://discord.gg/B2NrCrmetH</a><br />• tiktok: @SpeedSilver<br /><br />Check out the other players content!!!:<br />• Squid: <a rel="nofollow" target="blank" href="https://www.twitch.tv/im_a_squid_kid">https://www.twitch.tv/im_a_squid_kid</a><br />• Ize: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/PrivateFearless">https://www.youtube.com/c/PrivateFearless</a><br />• Suep: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/suepie">https://www.youtube.com/c/suepie</a><br />• Invictable: <a rel="nofollow" target="blank" href="https://www.youtube.com/invictah">https://www.youtube.com/invictah</a><br /><br />This is a Minecraft Social Experiment where 100 Players Simulate Civilization and are divided into three kingdoms. They will have to face different challenges like the blood moon, hunger, and eventually go to war.<br /><br />Huge thanks to everyone else who participated, this video wouldn't be possible without them!<br />Intro Animators: Alumio &amp; JackTBC<br />Edited By: Silver &amp; Semit <br /><br />00:00 - 100 Players Simulate Civilization in Minecraft<br />02:55 - Genshin Impact (Sponsor)<br />03:57 - 100 Players Simulate Civilization in Minecraft<br /><br />#Minecraft #Civilization #100Players{% endraw %}
