@@ -1,0 +1,15 @@
+---
+title: "You Ain't Figuring Out Anything Today Buddy!!! Open Carry North Miami"
+image: "https:\/\/i.ytimg.com\/vi\/6Iu1wCC6CHs\/hqdefault.jpg"
+vid_id: "6Iu1wCC6CHs"
+categories: "Education"
+tags: ["Ain't","Figuring","Anything"]
+date: "2022-02-20T22:37:08+03:00"
+vid_date: "2022-02-19T18:00:11Z"
+duration: "PT14M19S"
+viewcount: "34766"
+likeCount: "3047"
+dislikeCount: ""
+channel: "The Armed Fisherman"
+---
+{% raw %}Gary Pixley<br /><a rel="nofollow" target="blank" href="https://youtube.com/user/Gary6330">https://youtube.com/user/Gary6330</a><br /><br />Sababa Grill<br /><a rel="nofollow" target="blank" href="https://g.co/kgs/Y4k7S4">https://g.co/kgs/Y4k7S4</a><br /><br />Open Government Investigation<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/OpenGovernmentInvestigations">https://youtube.com/c/OpenGovernmentInvestigations</a><br /><br />Mass Accountability<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/MassAccountability">https://youtube.com/c/MassAccountability</a><br /><br />Ragomonkey<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/ragomonkey">https://youtube.com/c/ragomonkey</a><br /><br />North Miami Police Department<br />305-891-0294<br />700 NE 124th St, North Miami, FL 33161<br /><br />To help keep me traveling you can support me here<br /><a rel="nofollow" target="blank" href="https://paypal.me/soloyaker">https://paypal.me/soloyaker</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/EWs6v_214qE">https://youtu.be/EWs6v_214qE</a><br /><br />For Merchandise or Stickers email me at soloyakerdesigns@gmail.com<br /><br />If you want to help support the channel email me at thearmedfisherman@gmail.com or through paypal at <a rel="nofollow" target="blank" href="https://paypal.me/soloyaker">https://paypal.me/soloyaker</a> Thank you for your support.<br /><br />If are interested in getting any custom vinyl stickers please contact me @soloyakerdesigns@gmail.com<br /><br />FloFlops Instagram <br /><br /><a rel="nofollow" target="blank" href="https://instagram.com/floflopsfl?igshid=278hqu21tqn9">https://instagram.com/floflopsfl?igshid=278hqu21tqn9</a><br /><br />Bear Creek 7.5&quot; Upper 5.56<br /><a rel="nofollow" target="blank" href="https://www.bearcreekarsenal.com/bca-ar-15-complete-side-charging-pistol-upper-assembly-7-5-4150-parkerized-m4-contour-barrel-5-56-nato-pistol-length-gas-system-1-7-twist-w-7-mlok-rail">https://www.bearcreekarsenal.com/bca-ar-15-complete-side-charging-pistol-upper-assembly-7-5-4150-parkerized-m4-contour-barrel-5-56-nato-pistol-length-gas-system-1-7-twist-w-7-mlok-rail</a><br /><br />Bear Creek 16” Upper 300 Blackout<br /> <a rel="nofollow" target="blank" href="https://www.bearcreekarsenal.com/bca-ar-15-complete-upper-16-4150-parkerized-heavy-barrel-300-blackout-pistol-length-gas-system-1-8-twitst-w-15-mlok-rail-gen-3">https://www.bearcreekarsenal.com/bca-ar-15-complete-upper-16-4150-parkerized-heavy-barrel-300-blackout-pistol-length-gas-system-1-8-twitst-w-15-mlok-rail-gen-3</a><br /><br /> Solo_Yaker Discount Code{% endraw %}
