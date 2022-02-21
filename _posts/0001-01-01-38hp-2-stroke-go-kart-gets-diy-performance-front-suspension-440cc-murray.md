@@ -1,0 +1,15 @@
+---
+title: "38HP 2 Stroke Go Kart Gets DIY Performance Front Suspension! | 440cc Murray Kilowatt Build"
+image: "https:\/\/i.ytimg.com\/vi\/sX7RNAU6WMg\/hqdefault.jpg"
+vid_id: "sX7RNAU6WMg"
+categories: "Autos-Vehicles"
+tags: ["carsandcameras","go kart","mini bike"]
+date: "2022-02-22T00:49:21+03:00"
+vid_date: "2022-02-21T19:40:05Z"
+duration: "PT18M21S"
+viewcount: "15091"
+likeCount: "2087"
+dislikeCount: ""
+channel: "CarsandCameras"
+---
+{% raw %}Find out how Upstart can lower your monthly payments at <a rel="nofollow" target="blank" href="http://upstart.com/carsandcameras">http://upstart.com/carsandcameras</a> !<br /><br />Our Murray Kilowatt go kart is turning into the Megawatt! We build diy custom single control arm suspension and build a custom front brake setup using mini bike brake calipers, meaning that this Kawasaki 440cc 2 stroke snowmobile powered go kart will be ready to accelerate fast and stop fast too! We still need to work out an issue with the engine not running right, but other than that we have better suspension, a lower center of gravity, and a wider track width! <br /><br />Thanks for Watching! <br /><br />Facebook: <a rel="nofollow" target="blank" href="https://goo.gl/VR6mh2">https://goo.gl/VR6mh2</a><br />Instagram: <a rel="nofollow" target="blank" href="https://goo.gl/PqOIo3">https://goo.gl/PqOIo3</a><br /><br />Go Power Sports: <a rel="nofollow" target="blank" href="https://goo.gl/c2Tz6o">https://goo.gl/c2Tz6o</a><br /><br />Get $100 off any Langmuir Systems Crossfire CNC plasma table using this link, or use code CARSANDCAMERAS at checkout: <a rel="nofollow" target="blank" href="http://store.langmuirsystems.com/discount/CARSANDCAMERAS">http://store.langmuirsystems.com/discount/CARSANDCAMERAS</a><br /><br />Join the CarsandCameras Pit Crew: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCU3gQGhk0lYK-fKOR0sopgg/join">https://www.youtube.com/channel/UCU3gQGhk0lYK-fKOR0sopgg/join</a><br />Subscribe to our PODCAST channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCpMj4EkYHrIxk1WH-bI4m4w">https://www.youtube.com/channel/UCpMj4EkYHrIxk1WH-bI4m4w</a><br />NEW MERCH: <a rel="nofollow" target="blank" href="http://www.cars-cameras.com/">http://www.cars-cameras.com/</a><br />Equipment we use: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/carsandcameras">https://www.amazon.com/shop/carsandcameras</a><br /><br />The following video features activities performed in controlled environments by knowledgeable persons.  DO NOT attempt to duplicate, re-create, or perform the same or similar activities at home, as personal injury or property damage may result.  CARS AND CAMERAS, the persons shown in this video and ANY CONTRIBUTOR, ARE NOT LIABLE FOR ANY such injury or damage. ALL CARSANDCAMERAS CONTENT IS FOR ENTERTAINMENT PURPOSES ONLY.<br /> <br />Cars and Cameras makes no representation about the sufficiency of any safety precautions and equipment used in this video.{% endraw %}
