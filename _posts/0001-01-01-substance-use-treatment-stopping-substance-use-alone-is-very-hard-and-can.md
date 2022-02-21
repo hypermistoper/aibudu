@@ -1,0 +1,15 @@
+---
+title: "Substance Use Treatment"
+image: "https:\/\/i.ytimg.com\/vi\/aTS5OW85Og4\/hqdefault.jpg"
+vid_id: "aTS5OW85Og4"
+categories: "Education"
+tags: ["substance abuse treatment","drug and alcohol treatment","drug & alcohol treatment"]
+date: "2022-02-21T22:57:40+03:00"
+vid_date: "2019-05-23T18:41:15Z"
+duration: "PT3M48S"
+viewcount: "14285"
+likeCount: "127"
+dislikeCount: ""
+channel: "Psych Hub"
+---
+{% raw %}Stopping substance use alone is very hard, and can even be dangerous. Understand the types of assistance available.<br /><br />#SubstanceUse #MentalHealth #SubstanceUseTreatment<br /><br />-<br /><br />Follow and subscribe to Psych Hub:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/PsychHubEd/">https://www.facebook.com/PsychHubEd/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/psychhub">https://twitter.com/psychhub</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/psychhubeducation/ ">https://www.instagram.com/psychhubeducation/ </a><br /><a rel="nofollow" target="blank" href="https://www.linkedin.com/company/psychhubeducation/ ">https://www.linkedin.com/company/psychhubeducation/ </a><br /><br />Learning about mental health is crucial for us all to imagine a better future for everyone. Psych Hub's Mental Health Ally Certification learning hubs will help you become an important steward of your wellbeing and that of your loved ones. Start learning here: www.psychhub.com<br /><br />-<br /><br />Psych Hub is an educational service, and the information in this video is not a substitute for professional advice, diagnosis, or treatment. If you or someone you know are experiencing what you believe are mental health symptoms, please consult with a trained medical professional or a licensed mental health provider. We recommend consulting with a licensed behavioral health provider before trying any of the strategies mentioned in our materials. <br /><br />If you or someone you know is in immediate danger, please call 911. For information on how to find support and treatment, and hotlines for specific issues and audiences, visit PsychHub.com/Hotline.<br /><br />If you or someone you know are having thoughts of suicide or self-harm or are experiencing a mental health crisis, please call a national 24/7 hotline. For United States residents, those are:<br /><br />National Suicide Prevention Lifeline<br />For anyone experiencing a mental health crisis.<br />AVAILABILITY: 24/7/365<br />PHONE NUMBERS: <br />Primary line: 1-800-273-8255<br />Ayuda en Español: 1-888-628-9454<br />Video relay service: 800-273-8255<br />TTY: 800-799-4889<br />Voice/Caption Phone: 800-273-8255<br />ONLINE CHAT: suicidepreventionlifeline.org/chat/ <br />WEBSITE: suicidepreventionlifeline.org/<br /><br />Crisis Text Line<br />For anyone experiencing a mental health crisis.<br />AVAILABILITY: 24/7/365<br />TEXT NUMBER: <br />US &amp; Canada: Text HOME to 741741<br />UK: Text 85258<br />Ireland: Text 086 1800 280<br />WEBSITE: crisistextline.org<br /><br />© 2021 Psych Hub, LLC. All Rights Reserved.{% endraw %}
