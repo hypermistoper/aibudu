@@ -1,0 +1,15 @@
+---
+title: "10 Worst Bathroom Interior Design Mistakes And How To Fix Them"
+image: "https:\/\/i.ytimg.com\/vi\/8xMDM3QBu6g\/hqdefault.jpg"
+vid_id: "8xMDM3QBu6g"
+categories: "Howto-Style"
+tags: ["bathroom mistakes","bathroom mistakes and how to fix them","cheap bathroom"]
+date: "2022-02-21T03:35:13+03:00"
+vid_date: "2022-02-17T18:00:03Z"
+duration: "PT17M22S"
+viewcount: "16654"
+likeCount: "1499"
+dislikeCount: ""
+channel: "GarrettLeChic"
+---
+{% raw %}Bathroom mistakes are easy to make and difficult to fix! In this video I am sharing my top 10 bathroom mistakes and how to fix them to make your space luxurious and elevated! <br /><br />#bathroommistakes #garrettlechic #interiordesign<br /><br />Comment, Like and Subscribe!<br /> <br />Follow Me on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/garrettlechic/">https://www.instagram.com/garrettlechic/</a><br /><br />Videos To Watch:<br />Lighting mistakes: <a rel="nofollow" target="blank" href="https://youtu.be/8fzFvJnJYNg">https://youtu.be/8fzFvJnJYNg</a><br />How To Decorate Your Bathroom: <a rel="nofollow" target="blank" href="https://youtu.be/qV6Ju6yIEaM">https://youtu.be/qV6Ju6yIEaM</a><br />Best And Worst Bathroom Trends: <a rel="nofollow" target="blank" href="https://youtu.be/yi1kiSFyAU0">https://youtu.be/yi1kiSFyAU0</a><br />Small Bathroom Mistakes: <a rel="nofollow" target="blank" href="https://youtu.be/PuVmVzLAm48">https://youtu.be/PuVmVzLAm48</a><br />Interior Design Basics You Need To Know: <a rel="nofollow" target="blank" href="https://youtu.be/lXQDSCu159Q">https://youtu.be/lXQDSCu159Q</a><br />Design Styles I Don't Like And How To Fix Them: <a rel="nofollow" target="blank" href="https://youtu.be/nj-FbAfdnUM">https://youtu.be/nj-FbAfdnUM</a><br />My Unpopular Design Opinions:<a rel="nofollow" target="blank" href="https://youtu.be/0Obfwv2Qud8">https://youtu.be/0Obfwv2Qud8</a><br /><br />Shop My Amazon Store: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/garrettlechic">https://www.amazon.com/shop/garrettlechic</a><br /><br />*My Drapes: <a rel="nofollow" target="blank" href="https://rstyle.me/+fCWWkxN6sirHyVPECrWk6g">https://rstyle.me/+fCWWkxN6sirHyVPECrWk6g</a><br />My sofa: <a rel="nofollow" target="blank" href="https://www.kardiel.com/swagger-83-fabric-sofa-blanc-boucle/">https://www.kardiel.com/swagger-83-fabric-sofa-blanc-boucle/</a><br />          Use Code LECHIC For 5% off Any Item : Expires 02/28/2022<br />Artwork by Itzchak Tarkay<br />Wall Color: Valspar &quot;Asiago&quot; 6005-1A<br /><br />* Indicates an affiliate link<br /><br />Welcome to the channel, I'm Garrett! I am formally educated with a degree in interior design. My husband and I are also real estate investors. Our videos cover many styles (not just my own), and everything from ultra luxury to the budget friendly design. We want you to have a good time watching our videos while learning a great deal of useful, and practical information.<br /><br />This Video Is Not Sponsored{% endraw %}
