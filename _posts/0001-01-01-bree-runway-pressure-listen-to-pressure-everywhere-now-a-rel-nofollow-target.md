@@ -1,0 +1,15 @@
+---
+title: "Bree Runway - Pressure"
+image: "https:\/\/i.ytimg.com\/vi\/ldVUsIAIIvU\/hqdefault.jpg"
+vid_id: "ldVUsIAIIvU"
+categories: "Music"
+tags: ["Bree Runway","Bree Runway Pressure"]
+date: "2022-02-21T09:55:33+03:00"
+vid_date: "2022-02-07T18:10:32Z"
+duration: "PT2M46S"
+viewcount: "477416"
+likeCount: "30146"
+dislikeCount: ""
+channel: "Bree Runway"
+---
+{% raw %}Listen to Pressure everywhere now: <a rel="nofollow" target="blank" href="https://breerunway.lnk.to/PressureSo">https://breerunway.lnk.to/PressureSo</a> <br /><br />I’m finna give they hoes what they want<br />Shine like VV, bad like RiRi<br />Turn it on like TV, drip on fiji<br />Pop it in like a CD, got my name on repeat, the girls wanna be me, but these hoes can’t see me, nah these hoes can’t see me, wrist on icy, and your boyfriend like me, that’s why the girls wanna fight me<br /> <br />No matter what you do, you gone pay ya respect when a bitch comes through<br />I don’t make the rules, I just make em all gag when I step in the room<br /> <br />Who loves me, you do, NFL how I keep all these niggas running back<br />Let them know, let them know<br />Let them know I want smoke, ah yeah<br /> <br />Apply the pressure, pressure, pressure<br />Make me come through with the pressure, pressure, pressure<br /> <br />Keep you in line like yes sir, yes sir, yes sir<br />Make you come through with the pressure, pressure, pressure<br /> <br />Up and down like a yo-yo, I can do it in slow mo<br />Wait wait wait wait<br /> <br />You wanna take a photo, oh baby that’s a no no, and I’m dressed in coco<br />can’t tell me nothing when I look like this, I’m such a problem when I pop my shit<br /> <br />No matter what you do, you gone pay ya respect when a bitch comes through<br />I don’t make the rules, I just make em all gag when I step in the room<br /> <br />Who loves me, you do, NFL how I keep all these n****s running back<br />Let them know, let them know<br />Let them know I want smoke, ah yeah<br /> <br />Apply the pressure, pressure, pressure<br />Make me come through with the pressure, pressure, pressure<br /> <br />Keep you in line like yes sir, yes sir, yes sir, yes sir<br />Make you come through with the pressure, pressure, pressure<br /> <br />Anywhere I walk is a runway, fuck around, fly out in a one way<br />Gotta use both hands when I bounce bae, bounce bae, bounce bae<br /> <br />Anywhere I walk is a runway, fuck around, fly out in a one way<br />Gotta use both hands when I bounce bae, bounce bae, bounce bae<br /> <br />Apply the pressure, pressure, pressure<br />Make me come through with the pressure, pressure, pressure<br /> <br />Keep you in line like yes sir, yes sir, yes sir<br />Make you come through with the pressure, pressure, pressure<br /><br />Director: Nadira Amrani<br />DOP: Olan Collardy <br />Production Company: Smuggler <br />Executive Producer: Elizabeth Doonan <br />Producer: Luca Chapman<br /><br />#BreeRunway #BreeRunwayPressure #Pressure{% endraw %}
