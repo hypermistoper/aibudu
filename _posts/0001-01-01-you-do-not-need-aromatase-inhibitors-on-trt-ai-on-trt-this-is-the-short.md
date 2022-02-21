@@ -1,0 +1,15 @@
+---
+title: "You DO NOT Need Aromatase Inhibitors on TRT - AI on TRT"
+image: "https:\/\/i.ytimg.com\/vi\/O2QhFedZCuU\/hqdefault.jpg"
+vid_id: "O2QhFedZCuU"
+categories: "Education"
+tags: ["ai on trt","on trt but no libido","aromatase inhibitors on trt"]
+date: "2022-02-21T18:27:06+03:00"
+vid_date: "2020-03-22T12:57:51Z"
+duration: "PT15M8S"
+viewcount: "43693"
+likeCount: "1042"
+dislikeCount: ""
+channel: "TRT and Hormone Optimization"
+---
+{% raw %}This is THE (short) &quot;You DO NOT Need Aromatase Inhibitors On TRT&quot; Video with Dr Jordan Grant, Gil T and Danny Bossa TRT.<br />Short: No AI on TRT!<br />TRT and Hormone Optimization channel at it's best!<br /><br />==➤➤Links to studies:<br />➤Link to folder with all the studies mentioned:<br /><a rel="nofollow" target="blank" href="https://drive.google.com/drive/folders/1Ml3jnxdxpBTc3kKIIpW3KT5CqrwIdjuG?usp=sharing">https://drive.google.com/drive/folders/1Ml3jnxdxpBTc3kKIIpW3KT5CqrwIdjuG?usp=sharing</a><br /><br />➤Aromatization of androgens in women:<br /><a rel="nofollow" target="blank" href="https://www.sciencedirect.com/science/article/pii/S0015028202029849">https://www.sciencedirect.com/science/article/pii/S0015028202029849</a><br /><br />➤The role of aromatization in testosterone supplementation<br />Effects on cognition in older men:<br /><a rel="nofollow" target="blank" href="https://n.neurology.org/content/64/2/290.short">https://n.neurology.org/content/64/2/290.short</a><br /><br />➤Link to Gil T: <a rel="nofollow" target="blank" href="https://nextleveldietetics.com">https://nextleveldietetics.com</a><br /><br />➜➜Get our MERCHANDISE here:<br /><a rel="nofollow" target="blank" href="https://teespring.com/nl/stores/trt-merchandise">https://teespring.com/nl/stores/trt-merchandise</a><br /><br />#trtandhormoneoptimization #trt #hormoneoptimization <br /><br />**********************************************************<br /><br />➤Subscribe for more free information on TRT and Hormone Optimization: <a rel="nofollow" target="blank" href="https://goo.gl/ZyfZyN">https://goo.gl/ZyfZyN</a><br /><br />**********************************************************<br /><br />➤Connect with us:<br /><br />⇨ The Lifting Dermatologist Youtube Channel:<br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheLiftingDermatologistNederlandskanaal">https://www.youtube.com/c/TheLiftingDermatologistNederlandskanaal</a><br /><br />⇨ Our Facebook Group &quot;TRT and Hormone Optimization&quot;: <br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/groups/hormoneoptimization/">https://www.facebook.com/groups/hormoneoptimization/</a><br /><br />⇨ Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/the.lifting.dermatologist/">https://www.instagram.com/the.lifting.dermatologist/</a><br /><br />⇨ Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/foxpowerbase">https://twitter.com/foxpowerbase</a><br /><br />**********************************************************{% endraw %}
