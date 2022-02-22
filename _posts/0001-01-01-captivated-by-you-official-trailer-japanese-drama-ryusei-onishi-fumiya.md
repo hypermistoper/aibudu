@@ -1,0 +1,15 @@
+---
+title: "Captivated, by You - OFFICIAL TRAILER | Japanese Drama | Ryusei Onishi, Fumiya Takahashi"
+image: "https:\/\/i.ytimg.com\/vi\/DbmlU2Jer6k\/hqdefault.jpg"
+vid_id: "DbmlU2Jer6k"
+categories: "Entertainment"
+tags: ["viki","rakuten viki","viki drama"]
+date: "2022-02-22T13:42:16+03:00"
+vid_date: "2021-09-13T08:22:20Z"
+duration: "PT41S"
+viewcount: "11048"
+likeCount: "185"
+dislikeCount: ""
+channel: "Viki Global TV"
+---
+{% raw %}➡ Watch full episodes of Captivated, by You (夢中さ、きみに): <a rel="nofollow" target="blank" href="https://www.viki.com/tv/37919c-captivated-by-you">https://www.viki.com/tv/37919c-captivated-by-you</a><br /><br />#YumisCells #RyuseiOnishi #FumiyaTakahashi<br /><br />About Captivated, by You (夢中さ、きみに):<br />Not exactly your normal, everyday, run-of-the-mill high school student, Hayashi Miyoshi (Ryusei Onishi) marches to his own beat. Frank, guileless, and full of quirks, Hayashi has a knack for quietly drawing the attention of classmates and strangers alike. Full of mysterious charm, Hayashi embraces life on his own terms, staying unapologetically true to himself, despite what others might think. <br /><br />While Hayashi embraces the lighter side of life and draws others toward that light, Nikaidou Akira (Fumiya Takahashi) does exactly the opposite. Exuding nothing but doom and gloom, Nikaidou has worked hard to build up his dark façade, knowing full well that it’s the best method for keeping others away. While nearly everyone around Nikaidou believes him to be a bad omen, there’s one person who isn’t so sure. Having once caught a glimpse of the boy behind the mask, this person is determined to find that boy once more and bring him into the light.<br /><br />Living two entirely different lives, Hayashi and Nikaidou may not seem to have much in common, but deep down, could they be more alike than they realize?<br /><br />Adapted from the manga of the same name by Wayama Yama, “Captivated, by You” is a 2021 high school comedy drama directed by Ayuko Tsukahara.<br /><br /><br />Follow us on:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/Viki">https://www.facebook.com/Viki</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/Viki">https://twitter.com/Viki</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/Viki">https://www.instagram.com/Viki</a><br /><a rel="nofollow" target="blank" href="https://www.snapchat.com/add/vikiglobaltv">https://www.snapchat.com/add/vikiglobaltv</a><br /><a rel="nofollow" target="blank" href="https://www.pinterest.com/Viki">https://www.pinterest.com/Viki</a><br /><a rel="nofollow" target="blank" href="https://plus.google.com/+vikiofficial">https://plus.google.com/+vikiofficial</a><br /><br />About Viki:<br />Watch free Global TV: Korean, Chinese, and Taiwanese dramas –– all subtitled in your language by fans just like you! #VikiTV is the one-stop destination for all your Asian content fix!<br /><br />Viki Global TV<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/VikiKdrama">https://www.youtube.com/VikiKdrama</a>{% endraw %}
