@@ -1,0 +1,15 @@
+---
+title: "LAST TO SAY NO WINS!!"
+image: "https:\/\/i.ytimg.com\/vi\/1-NBV8_LPQY\/hqdefault.jpg"
+vid_id: "1-NBV8_LPQY"
+categories: "Entertainment"
+tags: ["Carter Sharer","Team RAR","carter"]
+date: "2022-02-22T04:14:42+03:00"
+vid_date: "2020-07-01T19:45:09Z"
+duration: "PT25M48S"
+viewcount: "5146029"
+likeCount: "97731"
+dislikeCount: ""
+channel: "Carter Sharer"
+---
+{% raw %}🔥SHOP NOW!!🔥━► <a rel="nofollow" target="blank" href="https://www.teamrar.com/">https://www.teamrar.com/</a> <br /><br />Last to say no wins challenge with Preston and Brianna. Carter Teamed up with Preston and Liz teamed up with Brianna. They did a boys vs girls last to say no challenge #LastToSayNo<br /><br />Preston: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/PrestonPlayz">https://www.youtube.com/user/PrestonPlayz</a><br />Bri: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCXg4rJUbDP1IP3TmZ9KDpJg">https://www.youtube.com/channel/UCXg4rJUbDP1IP3TmZ9KDpJg</a><br /><br />❇️ MORE EPIC VLOGS ❇️<br />I Put 10,000 Rubber Chickens in My Pool <a rel="nofollow" target="blank" href="https://youtu.be/I9zqCCH6sJc">https://youtu.be/I9zqCCH6sJc</a><br />LAST TO LEAVE GIANT LEGO HOUSE WINS $10,000 <a rel="nofollow" target="blank" href="https://youtu.be/4VF8q95LLxs">https://youtu.be/4VF8q95LLxs</a><br />LAST TO GET ARRESTED WINS $10,000 (REAL COPS) <a rel="nofollow" target="blank" href="https://youtu.be/iOfICMwXJ-Q">https://youtu.be/iOfICMwXJ-Q</a><br />-----------------------------------------------------------------------------------------------------------<br />📷INSTAGRAM → @CarterSharer <a rel="nofollow" target="blank" href="https://www.instagram.com/cartersharer/">https://www.instagram.com/cartersharer/</a><br />📷INSTAGRAM → @OfficalTeamRAR <a rel="nofollow" target="blank" href="https://www.instagram.com/officialteamrar/">https://www.instagram.com/officialteamrar/</a><br />📷INSTAGRAM → @LizzyCapri <a rel="nofollow" target="blank" href="https://www.instagram.com/lizzycapri/">https://www.instagram.com/lizzycapri/</a><br />📘FACEBOOK → CARTER SHARER OFFICIAL <a rel="nofollow" target="blank" href="https://goo.gl/WM7mBu">https://goo.gl/WM7mBu</a><br /><br />Subscribe to my channel! <a rel="nofollow" target="blank" href="https://goo.gl/XjjCA8">https://goo.gl/XjjCA8</a><br />-----------------------------------------------------------------------------------------------------------<br />Business Inquiries: carter@nightmedia.co<br /><br />WARNING: <br />This video is only for entertainment purposes. Do not attempt to recreate any of the acts in this video, as they may be dangerous if not done correctly, and could result in serious injury. If you rely on the information portrayed in this video, you assume the responsibility for the results. Have fun, but always think ahead, and remember that every project you try is at YOUR OWN RISK.<br /><br />This footage is property of Team RAR inc. and is not allowed to be repurposed without written consent from Team RAR inc. For any requests from media contact us at carter@nightmedia.co{% endraw %}
