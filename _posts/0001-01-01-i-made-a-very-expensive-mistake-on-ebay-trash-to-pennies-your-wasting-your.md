@@ -1,0 +1,15 @@
+---
+title: "I MADE A VERY EXPENSIVE MISTAKE ON EBAY!"
+image: "https:\/\/i.ytimg.com\/vi\/JPTOaO4PrtQ\/hqdefault.jpg"
+vid_id: "JPTOaO4PrtQ"
+categories: "Howto-Style"
+tags: ["garage sales","yard sale","yard sales"]
+date: "2022-02-22T07:51:34+03:00"
+vid_date: "2022-02-21T16:00:06Z"
+duration: "PT13M35S"
+viewcount: "3323"
+likeCount: "366"
+dislikeCount: ""
+channel: "NC Flipper"
+---
+{% raw %}TRASH TO PENNIES - YOUR WASTING YOUR TIME RESELLING!<br />THIS MISTAKE COST ME BIG TIME! SIDE HUSTLE 2022<br /><br />TRASH TO CASH PODCAST:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCGd3r1GO6RlgsP83IyqWyGg/playlists?view=1">https://www.youtube.com/channel/UCGd3r1GO6RlgsP83IyqWyGg/playlists?view=1</a><br /><br /><br />SAVE $10 ON YOUR FIRST WHATNOT PURCHASE BY USING MY LINK BELOW <br /><br /><a rel="nofollow" target="blank" href="https://www.whatnot.com/invite/NCPicker">https://www.whatnot.com/invite/NCPicker</a><br /><br /><br />MERCARI <br />Get an extra $20 after selling your first $100 on Mercari:  <a rel="nofollow" target="blank" href="https://merc.li/8KHg4Gkhb">https://merc.li/8KHg4Gkhb</a><br /><br /><br />FASTEST WAY TO GET BUBBLE WRAP <br /><a rel="nofollow" target="blank" href="https://www.americanbubbleboy.com/?sca_ref=983651.yK1E3S6CYp">https://www.americanbubbleboy.com/?sca_ref=983651.yK1E3S6CYp</a><br /><br /><br />Link to light photo box - <a rel="nofollow" target="blank" href="https://amzn.to/2WauWEZ">https://amzn.to/2WauWEZ</a><br /><br />My Ebay Store: <a rel="nofollow" target="blank" href="http://ebay.us/zGc66Z">http://ebay.us/zGc66Z</a><br /><br />Link to the Scale I use: <a rel="nofollow" target="blank" href="https://amzn.to/2NMe7vl">https://amzn.to/2NMe7vl</a><br /><br />Record Shipping Boxes: <a rel="nofollow" target="blank" href="https://ebay.us/aCTNm6">https://ebay.us/aCTNm6</a><br />Empty CD Cases - <a rel="nofollow" target="blank" href="https://amzn.to/3pPjdo5">https://amzn.to/3pPjdo5</a><br /><br /><br />You can support me here if you want:<br /><a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/ncpickerg">https://www.buymeacoffee.com/ncpickerg</a> Boxes: <a rel="nofollow" target="blank" href="https://ebay.us/aCTNm6">https://ebay.us/aCTNm6</a><br />Empty CD Cases - <a rel="nofollow" target="blank" href="https://amzn.to/3pPjdo5">https://amzn.to/3pPjdo5</a><br /><br /><br />You can support me here if you want:<br /><a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/ncpicker">https://www.buymeacoffee.com/ncpicker</a><br /><br /><br /><br />garage sales,yard sale,yard sales,garage sale finds,haul video,garage sale tips,yard sale flipping,garage sale pick ups,garage sale ebay,garage sale hunting,vintage toys,cincinnati picker,yard sale finds,estate sale finds,yard sale haul,garage sale gopro,yard sale 2021,garage sale 2021,garage sale,ebay haul,garage sale video,estate sales,yard sale ride along,mercari,mercari selling tips,what sold on ebay this week,flip life,garyvee{% endraw %}
