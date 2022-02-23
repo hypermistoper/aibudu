@@ -1,0 +1,15 @@
+---
+title: "Splatterface III: Round 2"
+image: "https:\/\/i.ytimg.com\/vi\/MrdmtUJwpeg\/hqdefault.jpg"
+vid_id: "MrdmtUJwpeg"
+categories: "Gaming"
+tags: ["dwarf","fortress","gameplay"]
+date: "2022-02-23T18:48:17+03:00"
+vid_date: "2022-02-23T01:00:11Z"
+duration: "PT45M34S"
+viewcount: "8836"
+likeCount: "1277"
+dislikeCount: ""
+channel: "Kruggsmash"
+---
+{% raw %}My friends, I hope you're ready for an explosion of violent glory unlike anything ever experienced, as we step forward into the ring once more. Prepare yourselves...<br /><br /> Intro music by Jeroen Tel<br /><br />Additional music by:<br /> Achillesa: <a rel="nofollow" target="blank" href="https://www.fiverr.com/achillesa">https://www.fiverr.com/achillesa</a><br /> Isaac William: <a rel="nofollow" target="blank" href="https://www.fiverr.com/isaacwilliam852">https://www.fiverr.com/isaacwilliam852</a><br /> Anton Kiptily: <a rel="nofollow" target="blank" href="https://www.fiverr.com/antonkiptily">https://www.fiverr.com/antonkiptily</a><br /> Tunebytes: <a rel="nofollow" target="blank" href="https://www.fiverr.com/tunebytes">https://www.fiverr.com/tunebytes</a><br />Nicola Fabro: <a rel="nofollow" target="blank" href="https://www.fiverr.com/nicola_fabro">https://www.fiverr.com/nicola_fabro</a><br /><br />Thanks to the BEST colorizer around: Mrs. Kruggsmash!<br /><br />A HUGE thanks to all of my patrons, without whom I would not be doing these videos right now!<br /><br />And of course, special thanks to the creators of this beautiful, complex madness: Tarn &amp; Zach Adams: <a rel="nofollow" target="blank" href="http://bay12games.com/dwarves/">http://bay12games.com/dwarves/</a><br /><br />And last but certainly not least, thank *you* for watching, m'bastard. I couldn't do it without you.<br /><br />Merch: <a rel="nofollow" target="blank" href="https://teespring.com/stores/kruggsmashs-bazaar-2">https://teespring.com/stores/kruggsmashs-bazaar-2</a><br /><br />My Patreon page: <a rel="nofollow" target="blank" href="https://www.patreon.com/Kruggsmash">https://www.patreon.com/Kruggsmash</a><br /><br />Master of the Feast by Kevin MacLeod is licensed under a Creative Commons Attribution 4.0 license. <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br /><br />Source: <a rel="nofollow" target="blank" href="http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1400019">http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1400019</a><br /><br />Artist: <a rel="nofollow" target="blank" href="http://incompetech.com/">http://incompetech.com/</a><br /><br />Haunting Dreams by Twin Musicom is licensed under a Creative Commons Attribution 4.0 license. <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br /><br />Source: <a rel="nofollow" target="blank" href="http://www.twinmusicom.org/song/249/haunting-dreams">http://www.twinmusicom.org/song/249/haunting-dreams</a><br /><br />Artist: <a rel="nofollow" target="blank" href="http://www.twinmusicom.org">http://www.twinmusicom.org</a>{% endraw %}
