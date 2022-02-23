@@ -1,0 +1,15 @@
+---
+title: "If You See This Bug in Your Home, Call Help Immediately"
+image: "https:\/\/i.ytimg.com\/vi\/gJ-hdrme65E\/hqdefault.jpg"
+vid_id: "gJ-hdrme65E"
+categories: "Entertainment"
+tags: ["bright side","brightside","life hacks"]
+date: "2022-02-23T22:42:04+03:00"
+vid_date: "2022-02-23T16:00:17Z"
+duration: "PT9M14S"
+viewcount: "21842"
+likeCount: "1035"
+dislikeCount: ""
+channel: "BRIGHT SIDE"
+---
+{% raw %}Your home is your fortress... but sometimes it might get invaded by unwanted pesky guests - insects! Some of them gnaw through the wood to make room for their nest. Eventually they might munch on your entire house! Others look threatening and occupy bushes in your garden. There're also insects that you might notice only after they give you a painful bite.<br /><br /><br /><br />One thing most people will agree on is that insects don't belong in the home. How do you protect your home from these bugs? And is there a way to get rid of them once and for all? Here're 11 pesky bugs that can cause a lot of trouble. <br /><br /><br /><br />#brightside<br /><br />TIMESTAMPS<br />Something strange 00:00<br />Debris 00:25<br />Carpenter ants 00:42<br />Bullet ant 02:20<br />Fire ants 03:23<br />Termites 04:50<br />Tarantula 06:00<br />Yellow jacket 06:30<br />Asian giant hornets 07:40<br />Texas red-headed centipede 08:30<br /><br />Animation is created by Bright Side.<br />----------------------------------------------------------------------------------------<br />Music by Epidemic Sound <a rel="nofollow" target="blank" href="https://www.epidemicsound.com">https://www.epidemicsound.com</a> <br /><br />Check our Bright Side podcast on Spotify and leave a positive review! <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV">https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV</a> <br /><br />Subscribe to Bright Side: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a> <br />----------------------------------------------------------------------------------------<br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/brightside">https://www.facebook.com/brightside</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brightside.official">https://www.instagram.com/brightside.official</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brightside.official?lang=en">https://www.tiktok.com/@brightside.official?lang=en</a> <br /><br />Stock materials (photos, footages and other):<br /><a rel="nofollow" target="blank" href="https://www.depositphotos.com">https://www.depositphotos.com</a><br /><a rel="nofollow" target="blank" href="https://www.shutterstock.com">https://www.shutterstock.com</a><br /><a rel="nofollow" target="blank" href="https://www.eastnews.ru">https://www.eastnews.ru</a><br />----------------------------------------------------------------------------------------<br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="http://www.brightside.me">http://www.brightside.me</a>{% endraw %}
