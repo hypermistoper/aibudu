@@ -1,0 +1,15 @@
+---
+title: "Gusttavo Lima - Se (Buteco in Boston)"
+image: "https:\/\/i.ytimg.com\/vi\/nzy9rR0SsFY\/hqdefault.jpg"
+vid_id: "nzy9rR0SsFY"
+categories: "Music"
+tags: ["gusttavo lima 2021","gusttavo lima as melhores","gusttavo lima musica nova"]
+date: "2022-02-24T15:33:35+03:00"
+vid_date: "2021-10-22T14:00:09Z"
+duration: "PT3M4S"
+viewcount: "15978967"
+likeCount: "123457"
+dislikeCount: ""
+channel: "Gusttavo Lima Oficial"
+---
+{% raw %}Vídeo Oficial de &quot;Se&quot; do Gusttavo Lima.<br /><br />Essa música faz parte do novo álbum do Gusttavo Lima, Buteco In Boston, gravado em Boston - Massachusetts.<br /><br />Escute agora: <a rel="nofollow" target="blank" href="https://smb.lnk.to/ButecoInBostonVol1">https://smb.lnk.to/ButecoInBostonVol1</a><br /><br />Produção Musical: Gusttavo Lima e Newton Fonseca<br />Mixagem e Masterização: Rafael Vargas<br />Direção de vídeo: Anselmo Troncoso<br />Gravadora: Sony Music<br /><br /> SE<br />(Amanda Borges / Zé André / Rodolfo Alessi / Mateus Felix / Denner Ferrari)<br /><br />Hoje eu paro e olho<br />Penso e volto<br />Que a gente não teve nenhuma foto<br />E nenhuma história pra contar<br /><br />Com você eu não passei de fase<br />Nós dois não foi além do quase<br />Era melhor eu me arrepender<br />Do que não arriscar<br />Mas eu nunca vou saber<br />Por que não quis tentar<br /><br />O que me mata é esse se<br />Se você ainda estivesse aqui<br />Se nós dois ainda existisse<br /><br />O que me mata é o se<br />Se você ainda estivesse aqui<br />Se nós dois ainda existisse<br />Se tudo fosse diferente<br />Nada tava igual<br />Mas o se não altera o final<br /><br />Com você eu não passei de fase<br />Nós dois não foi além do quase<br />Era melhor eu me arrepender<br />Do que não arriscar<br /><br />Mas eu nunca vou saber<br />Por que não quis tentar<br /><br />O que me mata é esse se<br />Se você ainda estivesse aqui<br />Se nós dois ainda existisse<br /><br />O que me mata é o se<br />Se você ainda estivesse aqui<br />Se nós dois ainda existisse<br /><br />O que me mata é o se<br />Se você ainda estivesse aqui<br />Se nós dois ainda existisse<br /><br />O que me mata é o se<br />Se você ainda estivesse aqui<br />Se nós dois ainda existisse<br />Se tudo fosse diferente<br />Nada 'tava igual<br />Mas o se não altera o final<br /><br />Siga Gusttavo Lima nas redes sociais!<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/gusttavolimaoficial/">https://www.facebook.com/gusttavolimaoficial/</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/gusttavolimaoficial">https://www.youtube.com/gusttavolimaoficial</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/gusttavolima/">https://www.instagram.com/gusttavolima/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/gusttavo_lima">https://twitter.com/gusttavo_lima</a><br />Site: <a rel="nofollow" target="blank" href="http://gusttavolima.com.br/">http://gusttavolima.com.br/</a><br /><br />#GusttavoLima #ButecoInBoston #Se{% endraw %}
