@@ -1,0 +1,15 @@
+---
+title: "How One Town Keeps A 5,000-Year-Old Ajrak Tradition Alive In Pakistan | Still Standing"
+image: "https:\/\/i.ytimg.com\/vi\/Alpzrs4tTaA\/hqdefault.jpg"
+vid_id: "Alpzrs4tTaA"
+categories: "People-Blogs"
+tags: ["Business Insider","Business News","Sindh"]
+date: "2022-02-24T17:17:56+03:00"
+vid_date: "2022-01-28T21:00:03Z"
+duration: "PT9M51S"
+viewcount: "1487549"
+likeCount: "18685"
+dislikeCount: ""
+channel: "Business Insider"
+---
+{% raw %}Craftsmen spend hours meticulously producing Ajrak by mapping out the pattern on thick, starched cotton fabric that holds its rigid shape. Despite cheap, machine-made copies flooding the market, Imran Soomro and his family are determined to keep the craft alive in Bhit Shah, Pakistan.<br /><br />For more information, visit: <a rel="nofollow" target="blank" href="https://www.facebook.com/Ustad-Hajan-Soomro-Ajrak-and-Natural-dye-Centre-Bhit-Shah-228336530875452/">https://www.facebook.com/Ustad-Hajan-Soomro-Ajrak-and-Natural-dye-Centre-Bhit-Shah-228336530875452/</a><br /><br />MORE STILL STANDING VIDEOS:<br />How One Man In Egypt Is Keeping This 200-Year-Old Tile Tradition Alive | Still Standing<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=n5x7GLl-mMo">https://www.youtube.com/watch?v=n5x7GLl-mMo</a><br />How One Family Kept A Palestinian Pottery Tradition Alive in Gaza | Still Standing<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=vB-BMsti4qo">https://www.youtube.com/watch?v=vB-BMsti4qo</a><br />How One Town Keeps India's 500-year-old Papermaking Industry Alive | Still Standing<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=1o9aZuuGdWI">https://www.youtube.com/watch?v=1o9aZuuGdWI</a><br /><br />------------------------------------------------------<br /><br />Business Insider tells you all you need to know about business, finance, tech, retail, and more.<br /><br />Visit us at: <a rel="nofollow" target="blank" href="https://www.businessinsider.com">https://www.businessinsider.com</a><br />Subscribe: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/businessinsider">https://www.youtube.com/user/businessinsider</a><br />BI on Facebook: <a rel="nofollow" target="blank" href="https://read.bi/2xOcEcj">https://read.bi/2xOcEcj</a><br />BI on Instagram: <a rel="nofollow" target="blank" href="https://read.bi/2Q2D29T">https://read.bi/2Q2D29T</a><br />BI on Twitter: <a rel="nofollow" target="blank" href="https://read.bi/2xCnzGF">https://read.bi/2xCnzGF</a><br />BI on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Business_Insider/5319643143">https://www.snapchat.com/discover/Business_Insider/5319643143</a><br />Boot Camp on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Boot_Camp/3383377771">https://www.snapchat.com/discover/Boot_Camp/3383377771</a><br /><br />How Artisans In Sindh Are Keeping 5,000-Year-Old Block Printing Alive | Still Standing{% endraw %}
