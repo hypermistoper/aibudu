@@ -1,0 +1,15 @@
+---
+title: "STUDY VLOG: productive & realistic days as a college student"
+image: "https:\/\/i.ytimg.com\/vi\/_0A_oOftNNA\/hqdefault.jpg"
+vid_id: "_0A_oOftNNA"
+categories: "Howto-Style"
+tags: ["STUDY","VLOG:","productive"]
+date: "2022-02-26T00:58:08+03:00"
+vid_date: "2022-02-25T17:00:33Z"
+duration: "PT18M46S"
+viewcount: "7031"
+likeCount: "895"
+dislikeCount: ""
+channel: "Zhirelle"
+---
+{% raw %}🚗Download Traffic Puzzle for free (iOS/Android): <a rel="nofollow" target="blank" href="https://mtchm.de/nc33d">https://mtchm.de/nc33d</a><br /><br />hi guys!!<br />today’s video is a study vlog! i worked on homework, made coffee, vlogged my school day, got boba, made dinner and worked out! tuesday-thursday are my school days and honestly my busiest days of the week, so i decided to make a productive/ study vlog video! i really hope you guys enjoy and i hope it motivates u through school too!<br /><br />follow me:<br />@zhirelle<br />- instagram<br />- tik tok<br />- twitter<br />- pinterest<br />- spotify<br /> 🌞<br /><br />PO BOX ADDRESS:💌<br />Zhirelle Cushman<br />PO Box 574<br />Camarillo, CA 93011<br /><br />About me!💓<br />- I live in Southern California<br />- I am a college student<br />- I have 4 younger siblings<br />- I love to travel<br />- My favorite videos to film are weekly vlogs<br />- I love making art!<br />- I am 20<br />- I take pictures of everything!<br />🍄<br /><br />subscribe &amp; become one of my best friends!:)<br /><br />sub count: 431K!<br /><br />Music by MOZART - Living Like Queens - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=D390BEB0">https://thmatc.co/?l=D390BEB0</a><br />Music by MOZART - Sunbeam - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=F94C45A4">https://thmatc.co/?l=F94C45A4</a><br />Music by MOZART - Prime - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=121FE29C">https://thmatc.co/?l=121FE29C</a><br />Music by Mr. Jello - Passion Fruit  - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=C3C88508">https://thmatc.co/?l=C3C88508</a><br />Music by Mr. Jello - Island Lifestyle - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=0EDA4FF5">https://thmatc.co/?l=0EDA4FF5</a><br />Music by Brooks - Chlorine '83 - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=CFF7CBBF">https://thmatc.co/?l=CFF7CBBF</a><br />Music by frumhere, kevatta - warm feeling - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=EF7656FF">https://thmatc.co/?l=EF7656FF</a><br />Music by Public Library Commute  - Across The Room - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=B4651488">https://thmatc.co/?l=B4651488</a><br /><br /><br /><br /><br />i love you guys!<br /><br />tags (ignore):study vlog, motivational, study with me, productive days in my life, productive school days, college day in my life, back to school, in person school, get ready with me, first day of school, college, high school, day in my life, student, school vlog, in person school day{% endraw %}
