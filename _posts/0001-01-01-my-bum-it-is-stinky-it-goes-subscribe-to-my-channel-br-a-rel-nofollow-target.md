@@ -1,0 +1,15 @@
+---
+title: "My Bum it is Stinky (It Goes)"
+image: "https:\/\/i.ytimg.com\/vi\/IoR4dg1RJJQ\/hqdefault.jpg"
+vid_id: "IoR4dg1RJJQ"
+categories: "Film-Animation"
+tags: ["koit","koit studios","funny"]
+date: "2022-02-25T16:39:35+03:00"
+vid_date: "2017-07-29T10:00:02Z"
+duration: "PT1M59S"
+viewcount: "3978841"
+likeCount: "15799"
+dislikeCount: ""
+channel: "koit"
+---
+{% raw %}Subscribe to my channel : <br /><a rel="nofollow" target="blank" href="https://goo.gl/X60tPb">https://goo.gl/X60tPb</a><br /><br />Get the Album<br />iTunes : <a rel="nofollow" target="blank" href="https://goo.gl/4tXQaI">https://goo.gl/4tXQaI</a><br />Amazon : <a rel="nofollow" target="blank" href="http://amzn.to/2knybEp">http://amzn.to/2knybEp</a><br />Google Play : <a rel="nofollow" target="blank" href="https://goo.gl/CTmw19">https://goo.gl/CTmw19</a><br /><br />Buy T-Shirts and other merchandise in the Koit Store.<br /><a rel="nofollow" target="blank" href="https://shop.spreadshirt.co.uk/469932">https://shop.spreadshirt.co.uk/469932</a><br /><br /><br />My YouTube Setup (affiliate links)<br /><br />SOFTWARE USED :-<br />Adobe Flash (Creative Cloud) : <a rel="nofollow" target="blank" href="http://amzn.to/1Qev4Cu">http://amzn.to/1Qev4Cu</a><br />Cubase : <a rel="nofollow" target="blank" href="http://amzn.to/1qPZoi5">http://amzn.to/1qPZoi5</a><br />Acid Pro : <a rel="nofollow" target="blank" href="http://amzn.to/1qPZtlU">http://amzn.to/1qPZtlU</a><br />SoundForge : <a rel="nofollow" target="blank" href="http://amzn.to/1qPZypZ">http://amzn.to/1qPZypZ</a><br /><br />HARDWARE USED :-<br />Logitech 920 Webcam : <a rel="nofollow" target="blank" href="http://amzn.to/23F2bfJ">http://amzn.to/23F2bfJ</a><br />Bowers and Wilkins MM1 Speakers : <a rel="nofollow" target="blank" href="http://amzn.to/23FiitK">http://amzn.to/23FiitK</a><br />Wacom Bamboo tablet : <a rel="nofollow" target="blank" href="http://amzn.to/1QevngG">http://amzn.to/1QevngG</a><br />Rode NT1-A Microphone : <a rel="nofollow" target="blank" href="http://amzn.to/1QevrwR">http://amzn.to/1QevrwR</a><br />DBX Pre-amp : <a rel="nofollow" target="blank" href="http://amzn.to/23FiMjx">http://amzn.to/23FiMjx</a><br />Microphone Stand : <a rel="nofollow" target="blank" href="http://amzn.to/23Fj21Z">http://amzn.to/23Fj21Z</a><br />Acoustic foam for vocal booth : <a rel="nofollow" target="blank" href="http://amzn.to/23Fjcq9">http://amzn.to/23Fjcq9</a><br />Music sheet holder : <a rel="nofollow" target="blank" href="http://amzn.to/1QevTeF">http://amzn.to/1QevTeF</a><br />Korg i3 Synthesizer<br />High end desktop PC<br /><br /><br />Lyrics for all of my songs : <a rel="nofollow" target="blank" href="http://www.highasakoit.co.uk/lyrics.php">http://www.highasakoit.co.uk/lyrics.php</a><br /><br />Join me on Facebook : <a rel="nofollow" target="blank" href="http://goo.gl/N6niwJ">http://goo.gl/N6niwJ</a><br />Join me on Twitter : <a rel="nofollow" target="blank" href="https://twitter.com/highasakoit">https://twitter.com/highasakoit</a><br /><br />Visit me, Koit, at : <a rel="nofollow" target="blank" href="http://www.highasakoit.co.uk">http://www.highasakoit.co.uk</a>{% endraw %}
