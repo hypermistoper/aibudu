@@ -1,0 +1,15 @@
+---
+title: "HITMAN 3 | The Broker #2 | Elusive Target | 3 Easy Silent Assassin Methods | Walkthrough"
+image: "https:\/\/i.ytimg.com\/vi\/gCmSagQoCxU\/hqdefault.jpg"
+vid_id: "gCmSagQoCxU"
+categories: "Gaming"
+tags: ["Hitman 3","hitman 3 elusive target","hitman 3 mrfreeze2244"]
+date: "2022-02-25T17:21:20+03:00"
+vid_date: "2022-02-25T12:45:05Z"
+duration: "PT18M25S"
+viewcount: "1288"
+likeCount: "140"
+dislikeCount: ""
+channel: "MrFreeze2244"
+---
+{% raw %}In this HITMAN 3 walkthrough we'll be covering the latest Elusive Target The Broker #2 and showing you how to complete it Silent Assassin with 3 seperate methods that includes a default loadout method for new players.<br /><br />0:00 Intro &amp; Briefing<br />0:46 Default Loadout/Mastery Level 1 Method<br />8:38 Micro Taser Electrocution Method<br />12:39 Emetic Gas Device Method<br /><br />All my social links consolidated here:<br /><a rel="nofollow" target="blank" href="https://wlo.link/@MrFreeze2244">https://wlo.link/@MrFreeze2244</a><br /><br />HITMAN 3 - Silent Assassin Suit Only Full Playlist:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLdeeW1xZ0DlPrWarLcwaH4T6oAzFM3TBy">https://youtube.com/playlist?list=PLdeeW1xZ0DlPrWarLcwaH4T6oAzFM3TBy</a><br /><br />Use affiliate code: FREEZE2244 at the checkout on the Epic Games Store when you preorder or purchase any game to support me for free!<br /><br />Link to HITMAN 3 Order Page:<br /><a rel="nofollow" target="blank" href="https://www.epicgames.com/store/en-US/product/hitman-3/home">https://www.epicgames.com/store/en-US/product/hitman-3/home</a><br /><br />Thanks very much for watching an be sure to let me know in the comments your thoughts below.<br /><br />If you would like to support the channel, consider joining the channel membership: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC5S1IXqjZUf_PM2XhCM-4vg/join">https://www.youtube.com/channel/UC5S1IXqjZUf_PM2XhCM-4vg/join</a> and get an exclusive gold hitman logo next to your name in comments on videos and livestreams. Just click the link or the JOIN button below to join the membership :)<br /><br />Alternatively you can support the channel by becoming a patron by clicking the link and for more info regarding donating to me and supporting the channel:<br /><a rel="nofollow" target="blank" href="http://www.patreon.com/MrFreeze2244">http://www.patreon.com/MrFreeze2244</a><br /><br />To buy my merch:<br /><a rel="nofollow" target="blank" href="https://teespring.com/stores/mrfreeze2244s-store-2">https://teespring.com/stores/mrfreeze2244s-store-2</a><br /><br />My Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/MrFreeze2244">https://twitter.com/MrFreeze2244</a><br /><br />Background Music by:<br />Lakey Inspired<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCOmy8wuTpC95lefU5d1dt2Q">https://www.youtube.com/channel/UCOmy8wuTpC95lefU5d1dt2Q</a><br /><br />Outro Music:<br />Urban Lullaby<br /><br />#Hitman3 #MrFreeze2244 #ElusiveTarget{% endraw %}
