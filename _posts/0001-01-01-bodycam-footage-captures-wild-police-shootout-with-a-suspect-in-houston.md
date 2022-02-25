@@ -1,0 +1,15 @@
+---
+title: "Bodycam Footage Captures Wild Police Shootout With a Suspect in Houston, Texas"
+image: "https:\/\/i.ytimg.com\/vi\/KzQO6PuRaM8\/hqdefault.jpg"
+vid_id: "KzQO6PuRaM8"
+categories: "Education"
+tags: ["Bodycam","Footage","Captures"]
+date: "2022-02-25T20:40:19+03:00"
+vid_date: "2022-02-24T17:17:55Z"
+duration: "PT5M29S"
+viewcount: "114512"
+likeCount: "8558"
+dislikeCount: ""
+channel: "PoliceActivity"
+---
+{% raw %}* (Disclaimer: This video content is intended for educational and informational purposes only) *<br />Houston, Texas — Charges have been filed against a suspect arrested in the shooting of three Houston police officers at 2500 Hutchins Street and 2100 McGowen Street about 2:45 p.m. on Thursday (Jan. 27). The suspect, Roland Caballero, 31, is charged with three counts of attempted capital murder of a police officer and one count of aggravated robbery in the 179th State District Court. A January 2021 booking photo of Caballero is attached to this news release. He remains hospitalized at this time. The three wounded officers – N. Gadson, 35, D. Hayden, 32, and A. Alvarez, 28 – were transported to Memorial Hermann – Texas Medical Center in stable condition. Officers Gadson and Hayden have been released from the hospital. Officer Alvarez remains hospitalized in stable condition. The officers are assigned to the Northeast Patrol Division. Officer Gadson was sworn in as an officer in May 2017, Officer Hayden in May 2018 and Officer Alvarez in March 2019. HPD Special Investigations Unit investigators reported: Officers responded to a threat-to-life call at 1513 Tralle Street and were provided information on the suspect’s name and vehicle he was driving. <br /><br />Officers spotted the vehicle and attempted a traffic stop. The suspect fled in the vehicle and crashed at 2500 Hutchins Street. Officers pulled up behind the suspect to conduct a felony traffic stop. The suspect immediately got out of his vehicle and fired several shots at the officers, who returned fire and possibly struck the suspect in the neck area. Three officers were struck by the suspect’s gunfire, while the suspect fled on foot. He then carjacked a female citizen nearby and fled in her vehicle. Other officers then went to the suspect’s residence and observed the stolen vehicle parked outside.  SWAT team officers made the scene and attempted to make contact with the suspect, but the suspect ignored them and barricaded himself inside the residence. As SWAT officers were on the scene, the suspect fired shots at them and officers returned fire. Hours later, the suspect surrendered to SWAT officers. He had sustained a gunshot wound and was transported to a hospital in stable condition.<br /><br />Donate to PoliceActivity: <a rel="nofollow" target="blank" href="https://www.patreon.com/PoliceActivity">https://www.patreon.com/PoliceActivity</a><br />Like us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/PoliceActivity">https://www.facebook.com/PoliceActivity</a><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Police_Activity">https://twitter.com/Police_Activity</a>{% endraw %}
