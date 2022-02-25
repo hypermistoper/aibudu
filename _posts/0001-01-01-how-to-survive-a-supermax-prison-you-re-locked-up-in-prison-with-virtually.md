@@ -1,0 +1,15 @@
+---
+title: "How to Survive a Supermax Prison"
+image: "https:\/\/i.ytimg.com\/vi\/ZSgK6jFvYU8\/hqdefault.jpg"
+vid_id: "ZSgK6jFvYU8"
+categories: "Education"
+tags: ["survive","how to survive","survival"]
+date: "2022-02-25T08:18:36+03:00"
+vid_date: "2022-02-24T16:40:42Z"
+duration: "PT5M16S"
+viewcount: "19555"
+likeCount: "831"
+dislikeCount: ""
+channel: "How to Survive"
+---
+{% raw %}You’re locked up in prison with virtually no chance of escape. <br /><br />This isn’t just any prison, this is a supermax. These maximum security prisons house some of the most notorious criminals in the world, with little chance of escape. <br /><br />Florence ADMAX,  or ADX, also known as &quot;the Alcatraz of the Rockies,&quot; is one of the most impenetrable prisons in the world. Located near the Rocky Mountains in Colorado, Florence ADMAX has housed dangerous criminals like Barry Mills, the leader of the Aryan Brotherhood, and notorious Mexican cartel leader “El Chapo.” <br /><br />Would you make it through the hallucinations, solitary confinement and dangerous neighbors to survive your supermax experience?<br /><br />01:30 Don’t let your brain shrink<br />01:59 Keep to yourself<br />02:38 Develop a routine <br />03:15 Keep daydreaming <br />03:53 Don’t eat sugar<br /><br />Questions or concerns? Contact us at <a rel="nofollow" target="blank" href="https://underknown.com/contact/">https://underknown.com/contact/</a><br /><br />Produced by the makers of What If. Check out our other channels:<br />What If - <a rel="nofollow" target="blank" href="https://bit.ly/youtube-What-If">https://bit.ly/youtube-What-If</a><br />Your Body on: <a rel="nofollow" target="blank" href="https://bit.ly/your-body-on-show">https://bit.ly/your-body-on-show</a><br />Crazy Creatures: <a rel="nofollow" target="blank" href="https://bit.ly/crazy-creatures-show">https://bit.ly/crazy-creatures-show</a><br /><br />Whether it’s an earthquake, mudslide or shark attack, survive whatever awaits you. How To Survive shows how to endure life-threatening moments with science and survivor stories.<br /><br />Note: This video is not intended to be a substitute for professional advice, diagnosis, or treatment. Always seek the advice of your physician or another qualified health provider with any questions you may have regarding a medical condition. Never disregard professional medical advice or delay in seeking it because of something you have seen on this channel. If you think you may have an emergency, call your doctor, the ambulance or the police immediately. Underknown does not recommend or endorse any specific tests, physicians, products, procedures, opinions, or other information that may be mentioned in this video. Reliance on any information provided by Underknown is solely at your own risk.<br /><br />An Underknown show: <a rel="nofollow" target="blank" href="https://underknown.com">https://underknown.com</a><br />Contact us at <a rel="nofollow" target="blank" href="https://underknown.com/contact/">https://underknown.com/contact/</a><br /><br />#HowToSurvive #MaximumSecurity #Supermax #ADXPrison #Crime{% endraw %}
