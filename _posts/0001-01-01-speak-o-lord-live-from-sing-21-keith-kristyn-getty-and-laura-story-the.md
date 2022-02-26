@@ -1,0 +1,15 @@
+---
+title: "Speak O Lord (Live from Sing! 21) - Keith & Kristyn Getty and Laura Story"
+image: "https:\/\/i.ytimg.com\/vi\/jKtJVv5ffdw\/hqdefault.jpg"
+vid_id: "jKtJVv5ffdw"
+categories: "Music"
+tags: ["Keith Getty","Kristyn Getty","Sing! Conference"]
+date: "2022-02-26T09:00:07+03:00"
+vid_date: "2022-02-25T13:00:18Z"
+duration: "PT3M35S"
+viewcount: "9463"
+likeCount: "449"
+dislikeCount: ""
+channel: "KeithandKristyn Getty"
+---
+{% raw %}The official music video for &quot;Speak O Lord&quot; by Keith &amp; Kristyn Getty and Laura Story performed live at the Sing! Conference 2021 – Now streaming everywhere: <a rel="nofollow" target="blank" href="https://va.lnk.to/speakolord">https://va.lnk.to/speakolord</a><br /><br />From the upcoming album Sing! In Christ Alone | Available 4.15.22 | <a rel="nofollow" target="blank" href="https://bit.ly/SingICA21">https://bit.ly/SingICA21</a><br /><br />Subscribe to Keith &amp; Kristyn Getty on YouTube:  <a rel="nofollow" target="blank" href="https://bit.ly/GettyYTSubscribe">https://bit.ly/GettyYTSubscribe</a><br /><br />Stay Connected:<br /><a rel="nofollow" target="blank" href="http://www.facebook.com/gettymusic">http://www.facebook.com/gettymusic</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/gettymusic">http://instagram.com/gettymusic</a><br /><a rel="nofollow" target="blank" href="http://www.gettymusic.com">http://www.gettymusic.com</a><br /><a rel="nofollow" target="blank" href="https://gettymusicworshipconference.com/">https://gettymusicworshipconference.com/</a><br /><br />Follow the Gettys on Spotify for more hymns to carry for life: <a rel="nofollow" target="blank" href="https://bit.ly/kkgprofile">https://bit.ly/kkgprofile</a><br /><br />LYRICS:<br />Speak, O Lord, as we come to You<br />To receive the food of Your Holy Word.<br />Take Your truth, plant it deep in us;<br />Shape and fashion us in Your likeness,<br />That the light of Christ might be seen today<br />In our acts of love and our deeds of faith.<br />Speak, O Lord, and fulfill in us<br />All Your purposes for Your glory.<br /><br />Teach us, Lord, full obedience,<br />Holy reverence, true humility;<br />Test our thoughts and our attitudes<br />In the radiance of Your purity.<br />Cause our faith to rise; cause our eyes to see<br />Your majestic love and authority.<br />Words of pow’r that can never fail—<br />Let their truth prevail over unbelief.<br /><br />Speak, O Lord, and renew our minds;<br />Help us grasp the heights of Your plans for us—<br />Truths unchanged from the dawn of time<br />That will echo down through eternity.<br />And by grace we’ll stand on Your promises,<br />And by faith we’ll walk as You walk with us.<br />Speak, O Lord, till Your church is built<br />And the earth is filled with Your glory.<br /><br />Words and music by Keith Getty &amp; Stuart Townend.<br /><br />©2005 Thankyou Music (PRS) ADM Worldwide at CapitolCMGPublishing.com excluding Europe which is ADM by IntegrityMusic.com.{% endraw %}
