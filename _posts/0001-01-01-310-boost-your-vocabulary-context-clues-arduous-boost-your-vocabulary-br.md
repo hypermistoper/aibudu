@@ -1,0 +1,15 @@
+---
+title: "310  Boost Your Vocabulary, Context Clues, arduous"
+image: "https:\/\/i.ytimg.com\/vi\/N4Dw611_X8E\/hqdefault.jpg"
+vid_id: "N4Dw611_X8E"
+categories: "Education"
+tags: ["Nasser Ranjbardust","Ranjbardust","Nasser"]
+date: "2022-02-26T11:16:54+03:00"
+vid_date: "2020-11-23T16:32:10Z"
+duration: "PT1M40S"
+viewcount: "0"
+likeCount: "0"
+dislikeCount: ""
+channel: "Nasser Ranjbardust"
+---
+{% raw %}BOOST YOUR VOCABULARY<br />Practice and Learn English Vocabulary Using Context Clues<br />When you are reading something in English and you see a word or words you do not know, what do you do?<br />The BEST solution: Use context clues!<br />Context Clues<br />What are context clues?<br />Context clues are hints that an author gives to help define a difficult or unusual word within a book. The clue may appear within the same sentence as the word to which it refers or it may follow in the next sentence. Because most of our vocabulary is gained through reading, it is important that we are able to recognize and take advantage of context clues.<br /><br />What does a context clue look like?<br />There are at least four kinds of context clues that are quite common:<br /><br />Synonym (or repeat context clue): An author will use more than one word that means the same thing. For example, there may be a complex word followed by a restatement using a simpler word in the same or following sentence: Felipe is a miser. He’s always been cheap.<br />Antonym (or contrast context clue): The text may include a word or words that have the opposite meaning, which can reveal the meaning of an unknown term: Stella has always dressed flamboyantly. I’ve never seen her wear a dull color.<br />Explanation (or a definition context clue): An unknown word is explained within the sentence or in the sentence immediately after: On Friday, we visited the arboretum, a garden dedicated to the exhibition of trees and plants.<br />Specific example (or an example context clue): The text provides one or more examples used to define the term: The children were able to observe several crustaceans, including crabs, lobsters, and shrimp.<br />There may also be word-part context clues in which a common prefix, suffix, or root will suggest at least part of the meaning of a word.<br /><br />A general sense context clue lets the reader puzzle out a word meaning from whatever information is available—and this is the most common kind of context clue. The relationships between words are not directly obvious and instead implied.<br /><br />Some describe context clues in three ways:<br /><br />semantic or meaning clues: When reading a story about cats, good readers develop the expectation that it will contain words associated with cats, such as tail, purr, scratch, and whiskers.<br />syntactic or word order clues: The order of the words in a sentence can indicate what part of speech a missing word must be (for example, a verb).<br />picture clues: From an early age, beginning readers are taught to look at illustrations to help with the identification of a word.<br />SOURCE: Dictionary.com{% endraw %}
