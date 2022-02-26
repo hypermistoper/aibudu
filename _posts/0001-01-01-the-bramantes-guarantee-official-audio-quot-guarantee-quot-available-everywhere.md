@@ -1,0 +1,15 @@
+---
+title: "The Bramantes - Guarantee (Official Audio)"
+image: "https:\/\/i.ytimg.com\/vi\/ZTAfNbUGm9M\/hqdefault.jpg"
+vid_id: "ZTAfNbUGm9M"
+categories: "Music"
+tags: ["The Bramantes"]
+date: "2022-02-26T04:52:20+03:00"
+vid_date: "2022-02-25T14:22:31Z"
+duration: "PT3M6S"
+viewcount: "6166"
+likeCount: "127"
+dislikeCount: ""
+channel: "The Bramantes"
+---
+{% raw %}&quot;Guarantee&quot; available everywhere now: <a rel="nofollow" target="blank" href="https://ffm.to/guarantee_thebramantes">https://ffm.to/guarantee_thebramantes</a> <br /><br />Connect with The Bramantes: <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/thebramantes/">https://www.instagram.com/thebramantes/</a> <br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheBramantes">https://www.youtube.com/c/TheBramantes</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/0TvSg...">https://open.spotify.com/artist/0TvSg...</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TheBramantes">https://twitter.com/TheBramantes</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheBramantes">https://www.facebook.com/TheBramantes</a><br />Website: <a rel="nofollow" target="blank" href="https://thebramantes.com">https://thebramantes.com</a>  <br /><br />Song credits: <br />Performed by Abigail Bramante<br />Written by Abigail Bramante <br />Produced by Eli Bramante <br />Mixed by Eli Bramante <br />Mastered by Marcus Gapic<br /><br />Video credits: <br />Directed by The Bramantes<br />Videography by The Bramantes<br />Edited by The Bramantes<br />Coloured by The Bramantes<br /><br />Lyrics: <br /><br />[Chorus]<br />I got to <br />Tell you something that I heard about you <br />Don’t know if it is fake or if its true <br />I guarantee you’ve never heard this before<br />I guarantee you’re gonna reach for the door <br />I guarantee you’re gonna wanna know more <br /><br />[Verse 1]<br />If you know me <br />Then you know I’ll listen <br />Very closely<br />Till there’re no details missing <br />I need to <br />Tell you ‘bout the he-say she-say words <br />About you <br />I know you had a feeling that the truth was blurred<br /> <br />[Chorus]<br />I got to <br />Tell you something that I heard about you<br />Don’t know if it is fake or if its true <br />I guarantee you’ve never heard this before <br />I guarantee you’re gonna reach for the door <br />I guarantee you’re gonna wanna know more <br /><br />[Verse 2]<br />Got a lot going through my mind (Through my mind) <br />Make me just wanna push it to the side (Push it to the side)<br />Make me wanna press rewind <br />Take a look at the scenes behind (Every scene behind) <br /><br />[Chorus]<br />I got to <br />Tell you something that I heard about you<br />Don’t know if it is fake or if its true<br />I guarantee you’ve never heard this before <br />I guarantee you’re gonna reach for the door <br />I guarantee you’re gonna wanna know more{% endraw %}
