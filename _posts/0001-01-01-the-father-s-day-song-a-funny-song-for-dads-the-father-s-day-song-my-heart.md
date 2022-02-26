@@ -1,0 +1,15 @@
+---
+title: "The Father's Day Song. A funny song for Dads."
+image: "https:\/\/i.ytimg.com\/vi\/HX9QEHv2HMc\/hqdefault.jpg"
+vid_id: "HX9QEHv2HMc"
+categories: "Music"
+tags: ["father's day","dad's song","funny song for dad"]
+date: "2022-02-26T05:08:03+03:00"
+vid_date: "2013-06-07T17:05:05Z"
+duration: "PT3M12S"
+viewcount: "2280351"
+likeCount: "13034"
+dislikeCount: ""
+channel: "songdrops"
+---
+{% raw %}The Father's Day Song (My Heart was in the Right Place Even Though I Did it Wrong).  When I posted the Mother's Day version of this song, some of you asked if I would do it for Father's Day too. So here's the same song, but for Father's Day :)   Song by Bryant Oden (Songdrops.com)<br /><br />Free song download link:<br /><a rel="nofollow" target="blank" href="http://www.payloadz.com/d1/?id=2899018">http://www.payloadz.com/d1/?id=2899018</a><br />Free karaoke instrumental version link:  <br /><a rel="nofollow" target="blank" href="http://www.payloadz.com/d1/freeproducts.asp?id=2122184">http://www.payloadz.com/d1/freeproducts.asp?id=2122184</a><br /><br /><br />Lyrics: <br />Verse 1<br />Every day you keep me safe and warm and loved and fed<br />But today's your special day, It was my turn instead<br />So I got up at 5 a.m. I've-been working hard since then                                                                  <br />Some things I didn't get quite right, next year I'll try again<br /><br />V2<br />Just for you  I did my best   to cut my own hair<br />Some places came out pretty good.  And some are kind of bare<br />I washed all your nicest clothes, but the washer wasn't free<br />So I used the dish washer  Pretty smart of me!<br /><br />CHORUS:<br />Remember no one's perfect    Every kid has faults<br />Remember it's the thought that counts, more than the results<br />My heart was in the right place even though I did it wrong<br />It was all to say on Father's day my love for you is strong<br /><br />V3<br />I vacuumed really quietly  I didn't use the power<br />I cleaned your dirty iPad screen, I held it in the shower <br />I painted all the ceilings    it was easy with the mop<br />Now the carpet's painted too with cool rainbow drops!<br /><br />V4<br />I answered all your work emails with &quot;Just leave me alone&quot;<br />And we gave a prince from Scamdinavia a loan<br />I watered all the house plants    with the garden hose <br />I forgot to turn it off sometimes that's how it goes<br /><br />CHORUS<br />V5<br />Your car's shiny inside and out with lots of olive oil<br />Who knew that oatmeal splatters up so high and far on boil<br />I tried to make you orange juice but I spilled it on the floor<br />I tried to fry you bacon we don't have a stove no more<br /><br />V6<br />Since you can't really cook this week  I called the pizza place<br />I emptied out the fridge and freezer so there's enough space<br />They should be here any time, two dozen pizza pies<br /> I paid with your credit card, I hope that you're surprised<br /><br />CHORUS{% endraw %}
