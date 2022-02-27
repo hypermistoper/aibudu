@@ -1,0 +1,15 @@
+---
+title: "Have to"
+image: "https:\/\/i.ytimg.com\/vi\/O3clCD2NUks\/hqdefault.jpg"
+vid_id: "O3clCD2NUks"
+categories: "Music"
+tags: ["Vkgoeswild","Piano Cover","Original Arrangement"]
+date: "2022-02-27T11:00:46+03:00"
+vid_date: "2022-02-26T17:47:55Z"
+duration: "PT1H41M41S"
+viewcount: "22503"
+likeCount: "2357"
+dislikeCount: ""
+channel: "vkgoeswild"
+---
+{% raw %}► Support me on Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/vkgoeswild">https://www.patreon.com/vkgoeswild</a>  <br /><br />► Music equipment I recommend to you:<br />Vkgoeswild shop <a rel="nofollow" target="blank" href="https://redir.love/thocf/1nlj9jaeim">https://redir.love/thocf/1nlj9jaeim</a> <br />Thomann <a rel="nofollow" target="blank" href="https://www.thomann.de/intl/index.html?offid=1&amp;affid=1203">https://www.thomann.de/intl/index.html?offid=1&amp;affid=1203</a> <br /><br />► Learn how to play my arrangements:<br />Flowkey <a rel="nofollow" target="blank" href="https://go.flowkey.com/vkgoeswild">https://go.flowkey.com/vkgoeswild</a> <br />Musicnotes <a rel="nofollow" target="blank" href="https://www.musicnotes.com/search/go?w=vkgoeswild">https://www.musicnotes.com/search/go?w=vkgoeswild</a><br /><br />► Subscribe for more videos:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCbKM5fcSsaEFZRP-bjH8Y9w">https://www.youtube.com/channel/UCbKM5fcSsaEFZRP-bjH8Y9w</a><br /><br />► Subscribe to Spotify, Deezer, iTunes &amp; Amazon music:<br /><a rel="nofollow" target="blank" href="https://iMusicianDigital.lnk.to/gvCdPedR">https://iMusicianDigital.lnk.to/gvCdPedR</a> <br /><br />► Buy my digital albums:<br /><a rel="nofollow" target="blank" href="https://vkgoeswild.bandcamp.com">https://vkgoeswild.bandcamp.com</a><br /><br />► Follow me online:<br />Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/vkgoeswild">https://www.facebook.com/vkgoeswild</a> <br />Insta Vika <a rel="nofollow" target="blank" href="https://www.instagram.com/vkgoeswild">https://www.instagram.com/vkgoeswild</a>  <br />Insta Vkgoeswild <a rel="nofollow" target="blank" href="https://www.instagram.com/vkgoeswildofficial">https://www.instagram.com/vkgoeswildofficial</a> <br />LinkTree <a rel="nofollow" target="blank" href="https://www.linktr.ee/vkgoeswild">https://www.linktr.ee/vkgoeswild</a> <br />Website <a rel="nofollow" target="blank" href="https://www.vkgoeswild.com">https://www.vkgoeswild.com</a><br /><br />► Join Vkgoeswild official community:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/groups/VikaYermolyevaPianoQueen">https://www.facebook.com/groups/VikaYermolyevaPianoQueen</a><br /><br />► Sheet request - contact@vkgoeswild.net <br /><br />► Contact &amp; booking - eva@groeli-music.com<br /><br />All Original piano arrangements written by me.<br />Vkgoeswild © Copyright Viktoriya Yermolyeva, all rights reserved.<br /><br />#Vkgoeswild #PianoCover #OriginalArrangement #VikaYermolyeva #Vika #Yermolyeva #Vk #MusicCover #Music #Cover #Piano #Patreon #Thomann #Musicnotes #Flowkey #YoutubeMusician #SheetMusic{% endraw %}
