@@ -1,0 +1,15 @@
+---
+title: "Why CRYPTO Won’t Replace SWIFT In Russia"
+image: "https:\/\/i.ytimg.com\/vi\/ATxzBaI7T9c\/hqdefault.jpg"
+vid_id: "ATxzBaI7T9c"
+categories: "Entertainment"
+tags: ["Cora Harrison","SWIFT","Russia Sanctions"]
+date: "2022-02-28T06:02:39+03:00"
+vid_date: "2022-02-28T02:25:01Z"
+duration: "PT13M26S"
+viewcount: "128"
+likeCount: "13"
+dislikeCount: ""
+channel: "Cora Harrison"
+---
+{% raw %}You've probably heard a lot about SWIFT over the past couple of days and how Crypto could potentially replace SWIFT for the people of Russia as a result of the imposing sanction. However, I don't believe this will ever be the case.<br /><br />🚀 Video Resources<br />Ukraine's Twitter Donation - <a rel="nofollow" target="blank" href="https://twitter.com/Ukraine/status/1497594592438497282">https://twitter.com/Ukraine/status/1497594592438497282</a><br /><br />Updates On Donation Efforts - <a rel="nofollow" target="blank" href="https://www.elliptic.co/blog/live-updates-millions-in-crypto-crowdfunded-for-the-ukrainian-military">https://www.elliptic.co/blog/live-updates-millions-in-crypto-crowdfunded-for-the-ukrainian-military</a><br /><br />⭐️ Wanna See What I'm Investing In?<br />Join My Patreon - <a rel="nofollow" target="blank" href="https://www.patreon.com/CoraHarrison15">https://www.patreon.com/CoraHarrison15</a><br /><br />👻 Socials<br />Twitter - <a rel="nofollow" target="blank" href="https://www.twitter.com/coraharrison15">https://www.twitter.com/coraharrison15</a><br />Instagram - <a rel="nofollow" target="blank" href="https://instagram.com/CoraHarrison15">https://instagram.com/CoraHarrison15</a><br />Website - <a rel="nofollow" target="blank" href="https://www.coraharrison.co.uk">https://www.coraharrison.co.uk</a><br /><br />🌐 Products I Recommend<br />Reselling items - <a rel="nofollow" target="blank" href="https://coraharrison.co.uk/reselling-resources/">https://coraharrison.co.uk/reselling-resources/</a><br />Matched betting items - <a rel="nofollow" target="blank" href="https://coraharrison.co.uk/matched-betting/">https://coraharrison.co.uk/matched-betting/</a><br />Financial items - <a rel="nofollow" target="blank" href="https://coraharrison.co.uk/finance/">https://coraharrison.co.uk/finance/</a><br /><br />🤚 Disclosure<br />I (Cora Harrison) am not a financial advisor and nothing I say in these videos should be taken as financial advice. If you are unsure about anything you should speak to a qualified professional for further assistance. I am not responsible for any actions you take off the back of watching this video if the process(es) change or if you get anything wrong (and/or loose money) based off what is said in this or any other videos on this channel. <br /><br />I also do not have a Whatsapp group or community. Those saying I do so are scammers in the comments pretending to be me. I do my best to remove them and block the words etc. however, please do not give your financial details to anyone from the comments of this video - again I am not responsible if you do so.{% endraw %}
