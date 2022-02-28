@@ -1,0 +1,15 @@
+---
+title: "GLOBAL FINANCIAL MELTDOWN - Stock Market This Week"
+image: "https:\/\/i.ytimg.com\/vi\/hyncJAsDrlg\/hqdefault.jpg"
+vid_id: "hyncJAsDrlg"
+categories: "People-Blogs"
+tags: ["stock market","stocks","investing"]
+date: "2022-02-28T12:34:06+03:00"
+vid_date: "2022-02-28T01:00:09Z"
+duration: "PT23M50S"
+viewcount: "9521"
+likeCount: "873"
+dislikeCount: ""
+channel: "Trading Fraternity"
+---
+{% raw %}LIVE TRADING CHANNEL: <a rel="nofollow" target="blank" href="https://www.youtube.com/TheStockMarket">https://www.youtube.com/TheStockMarket</a><br /><br />The stock market is shaping up for a historic week as bankers and investors across the globe discuss the prospects of a global financial meltdown as a result of more Russian escalation. This weekend was filled with many updates, namely targeted removal of Russian banks from SWIFT and even nuclear escalation by Putin. This led to runs on Russian banks and global currencies and commodities to already surge, depending on where futures are in the morning and how these markets open, it may very well trigger an immediate default on Russian bonds. The UN even called an emergency meeting, which they haven't done in decades, to figure out the situation. I go over the markets this week and what to expect, then I go over the possible situations and how this could relate to US equities. I go over my plays on Brent crude and AA stock and how I will look for arbitrage moves in the morning. Then I go over TLT stock and why US bonds will be key this week, along with travel stocks and the global impact. All in all, this will be a pivotal week and it may not be over quick. Last time we were this close to a stop of global payments and meltdown was 2020 or 2008, I HOPE YOU ARE READY! POST YOUR WATCHLIST BELOW AND SEE YOU IN THE MORNING! <br /><br />NONE OF THIS IS A RECOMMENDATION .  <br /> <br />Stream alerts, stock trading bootcamp, RE course: <a rel="nofollow" target="blank" href="http://bit.ly/2UQlZif">http://bit.ly/2UQlZif</a> <br />Merch: <a rel="nofollow" target="blank" href="http://www.collectcult.com">http://www.collectcult.com</a><br /><br />How to pick stocks for your long term portfolio: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=_VzDJ6CsDe0">https://www.youtube.com/watch?v=_VzDJ6CsDe0</a><br /><br />SUBSCRIBE &amp; LIKE for more videos COMMENT below if you have any questions and I will respond or make a video! <br /><br />#Stocks #Trading #Investing<br /><br />If you haven't done so follow me on social media! I am most active on Instagram <br /><br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/thetradingfraternity">http://www.instagram.com/thetradingfraternity</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/tradingfraternity">http://www.facebook.com/tradingfraternity</a><br /><br /><br /><br />DISCLAIMER: These videos are for educational purposes only. Nothing in this video should be construed as financial advice or a recommendation to buy or sell any sort of security or investment. Consult with a professional financial advisor before making any financial decisions.{% endraw %}
