@@ -1,0 +1,15 @@
+---
+title: "5 Giant Monsters Still Hiding in Our Seas"
+image: "https:\/\/i.ytimg.com\/vi\/B15xSegRVwg\/hqdefault.jpg"
+vid_id: "B15xSegRVwg"
+categories: "Education"
+tags: ["Giant","Monsters","Still"]
+date: "2022-03-01T01:59:15+03:00"
+vid_date: "2022-02-28T21:46:57Z"
+duration: "PT10M58S"
+viewcount: "5475"
+likeCount: "691"
+dislikeCount: ""
+channel: "Dark5"
+---
+{% raw %}The U-28 creature is perhaps the most credible account of a sea monster sighting in modern history. Still, the events that occurred on July 31, 1915, would be so disturbing to the crew that its commander would risk his career by writing an official report describing a never before seen creature of colossal proportions.<br /><br />U-28 was one of the most successful German ships during World War 1, sinking over 40 ships in the span of 4 years. The crew that worked on the vessel was exceptionally trained, very experienced, and honor-bound to military tradition. <br /><br />During that fateful day in 1915, the U-28 intercepted a British merchant ship off the coast of Ireland. The German submarine then torpedoed the merchant steamer, causing irreparable damage, and then surfaced to witness a potent blast coming from the sinking location. The sighting was attributed to the British boilers exploding.<br /><br />However, as the dramatic explosion occurred, the commanding officer aboard the U-boat, Captain Lieutenant Freiherr Georg-Günther von Forstner reported seeing something extremely unusual and frightening: <br /><br />(QUOTE) “The wreckage remained beneath the water for approximately twenty-five seconds, at a depth that remains clearly impossible to assess, when suddenly there was a violent explosion, which shot pieces of debris – among them a gigantic aquatic animal – out of the water to a height of approximately eighty feet.<br /><br />At that moment I had with me in the conning tower six of my officers of the watch, including the chief engineer, the navigator, and the helmsman. Simultaneously we all drew one another’s attention to this wonder of the seas, which was writhing and struggling among the debris.” <br /><br />The Captain went on to describe the creature as an aquatic crocodile measuring about 60 feet, with four limbs and a long tail. He claimed to be unable to take a photograph as the animal sank out of sight after 10 to 15 seconds.<br /><br />The groundbreaking sighting of the monstrous sea creature would be questioned by many people for decades. However, the captain and crew’s reputations have given some validity to the story, and many experts consider the possibility that this might have been a real encounter with a prehistoric creature. <br /><br />The similarities of the U-28 creature with an ancient Mosasaurus -a prehistoric sea-crocodile that roamed the oceans millions of years ago- cannot be disregarded. Some have even suggested that the U-28 crew stumbled upon a deep-sea creature exploring the surface and that massive monsters still dwell within the ocean’s depths, waiting to be discovered.{% endraw %}
