@@ -1,0 +1,15 @@
+---
+title: "Consumer Law Secrets University (CLSU) | Enroll Today and Learn How to get your remedy!! 🎓🔥🚀"
+image: "https:\/\/i.ytimg.com\/vi\/-DvlPqytDr8\/hqdefault.jpg"
+vid_id: "-DvlPqytDr8"
+categories: "Education"
+tags: ["Consumer","Secrets","University"]
+date: "2022-03-02T02:28:00+03:00"
+vid_date: "2022-02-26T13:49:46Z"
+duration: "PT2H46M17S"
+viewcount: "1551"
+likeCount: "114"
+dislikeCount: ""
+channel: "Daraine Delevante"
+---
+{% raw %}We are very proud to announce the opening of Consumer Law Secrets University ( CLSU)! The #1 Consumer Law Education  &amp; Training Program Hands Down.<br />We are now opening up enrollments! This will be the best investment you will ever Make.<br />📢 ENROLL HERE: <a rel="nofollow" target="blank" href="https://www.consumerlawsecretsuniversity.com/">https://www.consumerlawsecretsuniversity.com/</a><br />📢 Get Ebook Series Offer: <a rel="nofollow" target="blank" href="https://dfs.darainedelevante.com/dfs-ebook-series-2021">https://dfs.darainedelevante.com/dfs-ebook-series-2021</a><br />📢 Explore All Resources: www.darainedelevante.com <br />📢 NEW Dispute Letters: <a rel="nofollow" target="blank" href="https://darainedelevante.com/product-category/letters">https://darainedelevante.com/product-category/letters</a><br />🚀 Access my Quick-links:  <a rel="nofollow" target="blank" href="https://darainedelevante.com/quicklinks">https://darainedelevante.com/quicklinks</a><br />🚀 Follow Me on IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/the_credit_hero/">https://www.instagram.com/the_credit_hero/</a><br />---------------------------------<br />Things you will learn:<br />1) How to Delete Mortgages from your consumer reports.<br />2) How to get your home free and Clear<br />3)How to Delete an Auto Loan<br />4) How to Get your car free and clear<br />5) How to get your Earnest money back<br />6) How to get your down payment back <br />7)How to Delete Charge offs<br />8) How to Delete Bankruptcy <br />9) How to Delete Late Payments<br />10) How Delete Collections<br />11) How to Delete Student Loans plus Much more <br />---------------------------------<br />📢 ENROLL HERE: <a rel="nofollow" target="blank" href="https://www.consumerlawsecretsuniversity.com/">https://www.consumerlawsecretsuniversity.com/</a><br />📢 Get Ebook Series Offer: <a rel="nofollow" target="blank" href="https://dfs.darainedelevante.com/dfs-ebook-series-2021">https://dfs.darainedelevante.com/dfs-ebook-series-2021</a><br />📢 Explore All Resources: www.darainedelevante.com <br />📢 NEW Dispute Letters: <a rel="nofollow" target="blank" href="https://darainedelevante.com/product-category/letters">https://darainedelevante.com/product-category/letters</a><br />🚀 Access my Quick-links:  <a rel="nofollow" target="blank" href="https://darainedelevante.com/quicklinks">https://darainedelevante.com/quicklinks</a><br />🚀 Follow Me on IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/the_credit_hero/">https://www.instagram.com/the_credit_hero/</a>{% endraw %}
