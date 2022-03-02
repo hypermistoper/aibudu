@@ -1,0 +1,15 @@
+---
+title: "Only Certain People Should Have Long Hair. Gabriel Rutledge"
+image: "https:\/\/i.ytimg.com\/vi\/B_VTPAOgQeE\/hqdefault.jpg"
+vid_id: "B_VTPAOgQeE"
+categories: "Comedy"
+tags: ["Clean Comedy","Dry Bar Comedy","Stand Up Comedy"]
+date: "2022-03-03T01:07:47+03:00"
+vid_date: "2022-03-01T00:45:00Z"
+duration: "PT5M41S"
+viewcount: "57002"
+likeCount: "2816"
+dislikeCount: ""
+channel: "Dry Bar Comedy"
+---
+{% raw %}Only certain people should have long hair, and Gabriel Rutledge can tell you exactly who those people are. In this clip form his first ever Dry Bar Comedy special, Gabriel Rutledge talks about growing out his hair and how people have come to expect certain things from people with long hair. Whether you're someone who is considering growing your hair out, or you're someone who has had long hair for years, this clip form Gabriel Rutledge is sure to have you laughing from beginning to end.<br /><br />Watch Gabriel Rutledge's full special on the Dry Bar Comedy + App.   <br /><a rel="nofollow" target="blank" href="https://www.drybarcomedy.com/gabriel">https://www.drybarcomedy.com/gabriel</a><br /><br />Come See Dry Bar Comedy On Tour<br /><a rel="nofollow" target="blank" href="https://store.drybarcomedy.com/pages/live">https://store.drybarcomedy.com/pages/live</a><br /><br />If you enjoyed this clip from Gabriel Rutledge, be sure to check out the links below for even more Dry Bar Comedians you might enjoy!<br /><br />Brent Terhune<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=A-W44CZYBfk">https://www.youtube.com/watch?v=A-W44CZYBfk</a><br /><br />Andy Forrester<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=uDbhCO5sJHs">https://www.youtube.com/watch?v=uDbhCO5sJHs</a><br /><br />Christian Pieper<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=D0MaW2dNb2M">https://www.youtube.com/watch?v=D0MaW2dNb2M</a><br /><br />A little More Dry Bar<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC4VofsSdzu0voTu6SNthZ6Q">https://www.youtube.com/channel/UC4VofsSdzu0voTu6SNthZ6Q</a><br /><br />Subscribe to Dry Bar Comedy Shorts<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCv5IFs8NDX-zh2IANREoFLw">https://www.youtube.com/channel/UCv5IFs8NDX-zh2IANREoFLw</a><br /><br />Want More Dry Bar Comedy?<br /><br />Check us out on our other social media channels.<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DryBarComedy/">https://www.facebook.com/DryBarComedy/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/drybarcomedy/">https://www.instagram.com/drybarcomedy/</a><br />TikTok: <a rel="nofollow" target="blank" href="https://vm.tiktok.com/gfQo9S/">https://vm.tiktok.com/gfQo9S/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/drybarcomedy">https://twitter.com/drybarcomedy</a><br /><br />#drybar #comedy #standup{% endraw %}
