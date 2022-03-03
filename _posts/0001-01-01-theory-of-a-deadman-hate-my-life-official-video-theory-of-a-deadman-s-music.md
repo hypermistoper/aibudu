@@ -1,0 +1,15 @@
+---
+title: "Theory of a Deadman - Hate My Life [OFFICIAL VIDEO]"
+image: "https:\/\/i.ytimg.com\/vi\/UfnAOcBirAs\/hqdefault.jpg"
+vid_id: "UfnAOcBirAs"
+categories: "Music"
+tags: ["theory of a deadman","hate my life","scars & Souvenirs"]
+date: "2022-03-03T16:21:19+03:00"
+vid_date: "2009-12-07T16:25:23Z"
+duration: "PT3M19S"
+viewcount: "22837298"
+likeCount: "151035"
+dislikeCount: ""
+channel: "THEORY"
+---
+{% raw %}Theory of a Deadman's music video for 'Hate My Life' from the album, Scars &amp; Souvenirs - available now on Roadrunner Records. Download the album at <a rel="nofollow" target="blank" href="http://smarturl.it/toadm-scars">http://smarturl.it/toadm-scars</a><br /><br />iTunes: <a rel="nofollow" target="blank" href="http://smarturl.it/theory-itunes">http://smarturl.it/theory-itunes</a><br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/171a3Ya">http://bit.ly/171a3Ya</a><br />Site: <a rel="nofollow" target="blank" href="http://theoryofadeadman.com">http://theoryofadeadman.com</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/theoryofadeadman">http://facebook.com/theoryofadeadman</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/toadm">http://twitter.com/toadm</a><br />VK: <a rel="nofollow" target="blank" href="http://vk.com/toadmofficial">http://vk.com/toadmofficial</a><br /><br />LYRICS<br />So sick of the hobos always begging for change<br />I don't like how I gotta work and<br />They just sit around and get paid<br />I hate all of the people who can't drive their cars.<br />Bitch you better get outta the way<br />Before I start falling apart<br /><br />I hate how my wife is always up my ass<br />She always wants to buy brand new things<br />But I don't have the cash.<br /><br />I hate my job, all of my rich friends<br />I hate everyone to the bitter end.<br />Nothing turns out right There's no end in sight<br />I hate my life! <br /><br />How come I never get laid nice guys always lose.<br />How could she have another headache<br />There's always some kind of excuse<br />I still hate my job, my boss is a dick<br />&quot;I don't get paid nearly enough<br />To put up with all of your shit&quot;<br /><br />I hate my job, all of my rich friends<br />I hate everyone to the bitter end.<br />Nothing turns out right There's no end in sight<br />I hate my life! <br /><br />I hate that I can't tell when a girl's underage, <br />You know, I tell her she's a nice piece of ass, <br />Then her daddy punches me in the face<br /><br />So if you're pissed like me<br />Bitches, here's what you gotta do<br />Put your middle fingers up in the air<br />Go on and say &quot;Fuck you!&quot;<br /><br />I hate my job, all of my rich friends<br />I hate everyone to the bitter end.<br />Nothing turns out right There's no end in sight<br />I hate my life! <br /><br />So much at stake, can't catch a break<br />I hate my life<br />No, it's nothing new hear &quot;it sucks to be you&quot;<br />I fuckin hate my life{% endraw %}
