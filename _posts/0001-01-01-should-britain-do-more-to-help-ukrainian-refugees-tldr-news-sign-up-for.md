@@ -1,0 +1,15 @@
+---
+title: "Should Britain Do More to Help Ukrainian Refugees? - TLDR News"
+image: "https:\/\/i.ytimg.com\/vi\/4pR6moCksJE\/hqdefault.jpg"
+vid_id: "4pR6moCksJE"
+categories: "News-Politics"
+tags: ["Should","Britain","Ukrainian"]
+date: "2022-03-03T18:40:54+03:00"
+vid_date: "2022-03-03T09:45:00Z"
+duration: "PT9M10S"
+viewcount: "14652"
+likeCount: "943"
+dislikeCount: ""
+channel: "TLDR News"
+---
+{% raw %}Sign up for a CuriosityStream subscription and also get a FREE Nebula subscription (the streaming platform built by creators): <a rel="nofollow" target="blank" href="http://CuriosityStream.com/TLDRuk">http://CuriosityStream.com/TLDRuk</a><br /><br />As the conflict in Ukraine continues hundreds of thousands of people are fleeing their homes seeking refuge elsewhere. Britain has been widely supportive of the Ukrainian plight but when it comes to actually letting in refugees... well there has been some criticism. So in this video, we'll explain what the UK is doing about refugees from Ukraine, compare that to other nations, and what the government is being criticised for not doing.<br /><br />Follow TLDR on Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/tldrnewsuk">http://www.facebook.com/tldrnewsuk</a><br />Follow TLDR on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/tldrnewsuk">https://twitter.com/tldrnewsuk</a><br />Follow TLDR on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/tldrnewsuk">http://www.instagram.com/tldrnewsuk</a><br />Discord: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/discord/">https://tldrnews.co.uk/discord/</a><br /><br />SUBMIT YOUR VIDEO IDEAS: <a rel="nofollow" target="blank" href="https://forms.gle/pPY3HQ6ZtfsSbwTBA">https://forms.gle/pPY3HQ6ZtfsSbwTBA</a><br /><br />TLDR Store: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/store">https://tldrnews.co.uk/store</a><br />TLDR TeeSpring Store: <a rel="nofollow" target="blank" href="https://teespring.com/stores/tldr-summer-2020">https://teespring.com/stores/tldr-summer-2020</a><br />Support TLDR on Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/tldrnews">http://www.patreon.com/tldrnews</a><br />Donate by PayPal: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/funding">https://tldrnews.co.uk/funding</a><br /><br />TLDR is all about getting you up to date with the news of today, without bias and without filter. We want to give you the information you need, so you can make your own decision.<br /><br />TLDR is a super small company, run by a few people with the help of some amazing volunteers. We are primarily fan sourced with most of our funding coming from donations and ad revenue. No shady corporations, no one telling us what to say. We can't wait to grow further and help more people get informed. Help support us by subscribing, following and backing on Patreon. Thanks!: <a rel="nofollow" target="blank" href="http://www.instagram.com/tldrnewsuk">http://www.instagram.com/tldrnewsuk</a>{% endraw %}
