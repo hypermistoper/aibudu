@@ -1,0 +1,15 @@
+---
+title: "Special Delivery for Brown Farms!"
+image: "https:\/\/i.ytimg.com\/vi\/8CHIfzy5YEc\/hqdefault.jpg"
+vid_id: "8CHIfzy5YEc"
+categories: "People-Blogs"
+tags: ["Brown farms","Bulldozer","Duramax"]
+date: "2022-03-04T13:19:42+03:00"
+vid_date: "2022-03-03T22:53:18Z"
+duration: "PT15M"
+viewcount: "40981"
+likeCount: "6306"
+dislikeCount: ""
+channel: "Brian's Farming Videos"
+---
+{% raw %}In today’s video Brown Farms gets a special delivery in the form of ag lime. <br /><br />Need Chemical for your farm?<br />Check Out Our Sponsor Agricultural Chemical Solutions for the best prices around. <br /><br />If you are a new customer make sure you mention you came from Brian's Farming Videos and you will get 5% off your first order as well as free shipping on orders over $5000 and a $100 gift card to farmfocused.com for Brian's Farming Videos Merchandise!! They even have GLYPHOSATE   <br /> <a rel="nofollow" target="blank" href="http://www.agchemicalsolutions.com">http://www.agchemicalsolutions.com</a><br /><br />YouTube<br />Mailing Address <br />Brian's Farming Videos <br />P.O. Box 291 <br />Londonderry oh 45647<br /><br />Website <a rel="nofollow" target="blank" href="https://www.briansfarmingvideos.com">https://www.briansfarmingvideos.com</a><br /><br />Ag Chem Solutions <br /><br /><a rel="nofollow" target="blank" href="http://www.agchemicalsolutions.com/">http://www.agchemicalsolutions.com/</a><br /><br />Merchandise <br /><br /><a rel="nofollow" target="blank" href="https://www.farmfocused.com/product-category/merchandise/brand/brians-farming-videos/">https://www.farmfocused.com/product-category/merchandise/brand/brians-farming-videos/</a><br /><br />Ariat link <a rel="nofollow" target="blank" href="http://ariat.dkkdet.net/c/2776544/1063618/10644">http://ariat.dkkdet.net/c/2776544/1063618/10644</a><br /><br />Security camera link <a rel="nofollow" target="blank" href="https://reolink.com/product/reolink-go-pt-plus/?tid=FnY7EB619b545ce1fd5&amp;ct=60">https://reolink.com/product/reolink-go-pt-plus/?tid=FnY7EB619b545ce1fd5&amp;ct=60</a><br /><br />Facebook link <a rel="nofollow" target="blank" href="https://www.facebook.com/BrownFamilyFarms1929/">https://www.facebook.com/BrownFamilyFarms1929/</a><br /><br />For business inquiries contact us at briansfarmingvideos@gmail.com<br /><br />Agleader - <a rel="nofollow" target="blank" href="https://www.agleader.com/briansfarming/">https://www.agleader.com/briansfarming/</a><br /><br />Popular videos  <br />Muddy Last Day of Corn Harvest | Day 42 <br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/YE9Ps2dZT7g">https://youtu.be/YE9Ps2dZT7g</a><br /><br />620 HP TRACTOR STUCK! <br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/Xb9lVnzJBv0">https://youtu.be/Xb9lVnzJBv0</a><br /><br />My Service Truck Body by Hughes Equipment <br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/tEiTEJnhi1U">https://youtu.be/tEiTEJnhi1U</a><br /><br />#bulldozer <br />#fertilizer<br />#brownfarms{% endraw %}
