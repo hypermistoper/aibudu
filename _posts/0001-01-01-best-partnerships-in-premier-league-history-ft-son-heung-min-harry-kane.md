@@ -1,0 +1,15 @@
+---
+title: "BEST partnerships in Premier League history ft. Son Heung-min & Harry Kane"
+image: "https:\/\/i.ytimg.com\/vi\/IHOxLgLWl94\/hqdefault.jpg"
+vid_id: "IHOxLgLWl94"
+categories: "Sports"
+tags: ["Harry Kane","Son Heung-min","Kane"]
+date: "2022-03-04T13:41:02+03:00"
+vid_date: "2022-03-03T17:03:55Z"
+duration: "PT10M36S"
+viewcount: "27400"
+likeCount: "1101"
+dislikeCount: ""
+channel: "Premier League"
+---
+{% raw %}A compilation of the best partnerships in Premier League history (most goal combinations) featuring:<br /><br />Harry Kane &amp; Son Heung-min - Tottenham Hotspur - 37<br />Didier Drogba &amp; Frank Lampard - Chelsea - 36<br />Sergio Aguero &amp; David Silva - Manchester City - 29<br />Thierry Henry &amp; Robert Pires - Arsenal - 29<br />Darren Anderton &amp; Teddy Sheringham - Tottenham Hotspur - 27<br /><br />What’s your favourite Premier League partnership? Let us know in the comments.<br /><br />Subscribe to the official Premier League YouTube channel: <a rel="nofollow" target="blank" href="http://preml.ge/PremierLeagueYouTube">http://preml.ge/PremierLeagueYouTube</a> <br />Premier League website: <a rel="nofollow" target="blank" href="http://preml.ge/PremierLeagueWebsite">http://preml.ge/PremierLeagueWebsite</a><br />Follow the Premier League on Instagram: <a rel="nofollow" target="blank" href="http://preml.ge/PremierLeagueInstagram">http://preml.ge/PremierLeagueInstagram</a><br />Follow the Premier League on Twitter: <a rel="nofollow" target="blank" href="http://preml.ge/PremierLeagueTwitter">http://preml.ge/PremierLeagueTwitter</a><br />Like the Premier League on Facebook: <a rel="nofollow" target="blank" href="http://preml.ge/PremierLeagueFacebook">http://preml.ge/PremierLeagueFacebook</a><br />Play Fantasy Premier League: <a rel="nofollow" target="blank" href="http://preml.ge/FantasyPremierLeague">http://preml.ge/FantasyPremierLeague</a><br />To license Premier League match footage: <a rel="nofollow" target="blank" href="https://imgreplay.com/contact">https://imgreplay.com/contact</a><br /><br />#PremierLeague #DynamicDuos #Football #Soccer<br /><br />Your safety online<br /><br />Visit the Child Exploitation and Online Protection website for confidential support if something has happened online which has made you feel unsafe, if you are worried about someone else or to report online abuse. (<a rel="nofollow" target="blank" href="https://www.ceop.police.uk/safety-centre)">https://www.ceop.police.uk/safety-centre)</a><br /><br />You should contact the Police by calling 999 if you or anybody else is in any sort of danger.<br /><br />Visit CEOP’s Thinkuknow website for advice and guidance on safe surfing and staying safe online for example when using mobile phones, blogs, social media, chatting, online gaming and emailing. (<a rel="nofollow" target="blank" href="https://www.thinkuknow.co.uk)">https://www.thinkuknow.co.uk)</a><br /><br />You can also visit the Premier League safeguarding page for more information. (<a rel="nofollow" target="blank" href="https://www.premierleague.com/safeguarding)">https://www.premierleague.com/safeguarding)</a>{% endraw %}
