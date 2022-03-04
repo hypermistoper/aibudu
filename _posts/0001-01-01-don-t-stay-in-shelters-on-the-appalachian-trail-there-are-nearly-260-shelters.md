@@ -1,0 +1,15 @@
+---
+title: "Don’t Stay in SHELTERS on the Appalachian Trail"
+image: "https:\/\/i.ytimg.com\/vi\/jzVxhfTsFbE\/hqdefault.jpg"
+vid_id: "jzVxhfTsFbE"
+categories: "People-Blogs"
+tags: ["Appalachian Trail Shelter","Tara Treks","AT shelters"]
+date: "2022-03-04T22:20:05+03:00"
+vid_date: "2022-02-25T00:00:11Z"
+duration: "PT10M59S"
+viewcount: "47076"
+likeCount: "1057"
+dislikeCount: ""
+channel: "Tara Treks"
+---
+{% raw %}There are nearly 260 shelters on the Appalachian Trail. A simple building that protects it’s inhabitants from the elements. In this video I give my reasons why I won’t be staying in shelters anymore. But as I mention I believe every situation should be considered based on the the condition of the shelter and tenting spots around. Make sure to watch to the end!<br /><br />#AppalachianTrail #Thruhike #Shelter  <br />---<br />The following links are affiliates link to Amazon. 10% of every purchase made through these link will go back to me. If you are thinking of buying these products consider helping me out by buying it through my Amazon Affiliate link. THANK YOU<br /><br />FILM EQUIPMENT - Sony A7iii <a rel="nofollow" target="blank" href="https://amzn.to/3rPxbdU">https://amzn.to/3rPxbdU</a><br /><br />Tripod - Joby Gorilla Pod <a rel="nofollow" target="blank" href="https://amzn.to/3JA3dRd">https://amzn.to/3JA3dRd</a><br /><br />External Mic - MOVO <a rel="nofollow" target="blank" href="https://amzn.to/3oRltO5">https://amzn.to/3oRltO5</a><br /><br />Candy Mama here! yes this used to be a couples account with my husband named &quot;THE DOWER DUO&quot;. We have since rebranded it to feature my individual adventures. <br /><br />a little about me~ wife first, adventurer second! I have thru hiked the Appalachian Trail and Mountains-To-Sea Trail. I am the fastest person to ever hike the Mountains-To-Sea Trail spanning the length of North Carolina. 1175 miles in 29 days! I enjoy creating wanderlust content and trail running!<br />I hope you enjoy!<br /><br />If you'd like to support me and the work I do here on &quot;Tara Treks&quot; ...<br /><br />Venmo: @Taradower <br />Paypal: @taradower <br /><br />Please share, like, comment, SUBSCRIBE, turn on those BELL notifications! These are all valuable ways to support creators like me at no cost for you! Thank you. <br /><br />If you'd like to follow me on Instagram or Facebook<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/CandyMamaa">https://www.facebook.com/CandyMamaa</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/tara.dower/">https://www.instagram.com/tara.dower/</a><br /><br />AS ALWAYS thanks for the support.<br /><br />(This video is about: Tara dower, thru hiking, thru hike, Appalachian trail, how to backpack, backpacking, tips for backpacking, thru hike 2022, Appalachian trail 2022, hiker, shelter, trail life, hiker trash, into the wild, on the trail, hiking boots, trail runners, 2022 pacific crest trail, Appalachian trail shelter, hiking the Appalachian trail, restock, Tara treks, dower duo, the dower duo, women thru hiker, thru hiker women, hiking women){% endraw %}
