@@ -1,0 +1,15 @@
+---
+title: "A Stunning Disassembly"
+image: "https:\/\/i.ytimg.com\/vi\/NylVtFjsbgI\/hqdefault.jpg"
+vid_id: "NylVtFjsbgI"
+categories: "Entertainment"
+tags: ["leftyedc","pocket knife review","pocket knives"]
+date: "2022-03-05T10:19:30+03:00"
+vid_date: "2022-03-03T23:00:10Z"
+duration: "PT22M15S"
+viewcount: "574"
+likeCount: "33"
+dislikeCount: ""
+channel: "LeftyEDC"
+---
+{% raw %}Disassembly &amp; first impressions of the Bade Modern Designs Stunner made by Kubey Knives in M390 Steel. This is a loaner from @BAKPAKB <br /><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYNJtVPHwz85FmxOjm93zLw/join">https://www.youtube.com/channel/UCYNJtVPHwz85FmxOjm93zLw/join</a><br /><br />Join the Patreon here : <a rel="nofollow" target="blank" href="https://www.patreon.com/LeftyEDC">https://www.patreon.com/LeftyEDC</a> <br /><br />Check out my Teespring Store: <a rel="nofollow" target="blank" href="https://my-store-11205914.creator-spring.com/listing/detent-diva-collection">https://my-store-11205914.creator-spring.com/listing/detent-diva-collection</a><br /><br />Use code LeftyEDC for 5% off Skiff Bearings  at: <a rel="nofollow" target="blank" href="https://www.skiffmadeblades.com/collections/bearings">https://www.skiffmadeblades.com/collections/bearings</a><br /><br />Urban EDC Supply Affiliate Link: <a rel="nofollow" target="blank" href="https://urbanedcsupply.com/?rfsn=5833350.798f11&amp;utm_source=refersion&amp;utm_medium=affiliate&amp;utm_campaign=5833350.798f11">https://urbanedcsupply.com/?rfsn=5833350.798f11&amp;utm_source=refersion&amp;utm_medium=affiliate&amp;utm_campaign=5833350.798f11</a><br /><br />Use code Lefty10 at checkout for 10% off your order at Knife Pivot Lube : <a rel="nofollow" target="blank" href="https://knifepivotlube.com/?ref=i1si9t_r_fd7">https://knifepivotlube.com/?ref=i1si9t_r_fd7</a><br /><br />Use code LeftyEDC for 15% off at Andar, or follow the link: <a rel="nofollow" target="blank" href="https://andar.com/?mct=LEFTYEDC">https://andar.com/?mct=LEFTYEDC</a> <br /><br />Use code Lefty10 at checkout at White Mountain Knives for 10% Off your order and Free Shipping in the US : <a rel="nofollow" target="blank" href="https://whitemountainknives.com">https://whitemountainknives.com</a> <br /><br />Use code Lefty10 at checkout for 10% Off your order at Asher Knife Co. : <a rel="nofollow" target="blank" href="http://www.asherknives.com">http://www.asherknives.com</a> <br /> <br />Use code Lefty10 at checkout for 10% off at Axial Gear:<a rel="nofollow" target="blank" href="https://www.axialgear.com/?rfsn=6074131.ee91f3&amp;utm_source=refersion&amp;utm_medium=affiliate">https://www.axialgear.com/?rfsn=6074131.ee91f3&amp;utm_source=refersion&amp;utm_medium=affiliate</a> <br /><br />Use code Lefty10 for 10% off at: <a rel="nofollow" target="blank" href="https://www.lancelotleather.com">https://www.lancelotleather.com</a><br /><br />Use code Lefty10 for 10% off at: <a rel="nofollow" target="blank" href="https://www.etsy.com/shop/IssuingStitches?ref=shop_sugg">https://www.etsy.com/shop/IssuingStitches?ref=shop_sugg</a>{% endraw %}
