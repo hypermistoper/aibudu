@@ -1,0 +1,15 @@
+---
+title: "How Washable is Crayola off Everything? I Try ALL Markers, Crayons & Paint"
+image: "https:\/\/i.ytimg.com\/vi\/gkFJhmTytr0\/hqdefault.jpg"
+vid_id: "gkFJhmTytr0"
+categories: "Entertainment"
+tags: ["crafts","crayola","crayola markers"]
+date: "2022-03-05T16:35:49+03:00"
+vid_date: "2021-04-20T15:45:04Z"
+duration: "PT26M16S"
+viewcount: "429778"
+likeCount: "17105"
+dislikeCount: ""
+channel: "NerdECrafter"
+---
+{% raw %}Testing crayola washability from markers, paint, and crayons. Sponsor: Get the Sophie &amp; Toffee Stained Glass Box here: (<a rel="nofollow" target="blank" href="https://bit.ly/2QBWOyK">https://bit.ly/2QBWOyK</a> ) Use code NERDE3 for $3 off your first subscription box: (<a rel="nofollow" target="blank" href="https://bit.ly/2P2yvtc">https://bit.ly/2P2yvtc</a> ) Crayola claims its products are washable so we will test each Marker, Crayon, watercolor, yes even crayola silly scents and how effective are they from being removed from the wall, desk, clothing etc.<br /><br />💛💛Videos mentioned in today's episode:<br />💛Cash or Trash? Crayola Acrylic Pour Kit! Testing 4 Crayola Craft Kits from ToysRus: <a rel="nofollow" target="blank" href="https://youtu.be/M6sv-EpcF6k">https://youtu.be/M6sv-EpcF6k</a><br /><br />💛CASH or TRASH? Crayola LIES! Testing 3 Crayola Kits - Color Chemistry, Scribble Scrubbie:  <a rel="nofollow" target="blank" href="https://youtu.be/HZswCTJ2q-M">https://youtu.be/HZswCTJ2q-M</a><br /><br />💜💛 Want to support future projects on my channel? Feel free to check out my YouTube Memberships and Perks: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCgtBufRyeqqVCwbNLx-bPhQ/join">https://www.youtube.com/channel/UCgtBufRyeqqVCwbNLx-bPhQ/join</a> <br /><br />If you want to join the discord group, it's only on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/nerdecrafter">https://www.patreon.com/nerdecrafter</a><br /><br />--------------------------<br />MY VLOG CHANNEL: <a rel="nofollow" target="blank" href="https://goo.gl/uv2Zal">https://goo.gl/uv2Zal</a><br />-------------------------------<br />Hi fellow grains! My name is Jackie and I love crafting geeky diys. I mainly do polymer clay tutorials, but I also do resin crafting, felt diys, and custom diy soap on my channel, but I love experimenting and having fun! Let's go on this diy crafting journey together ^_^ Remember to hashtag Nerdecrafter on Instagram if you make anything geeky. Also, if you share my videos, you automatically get love and sparkles (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧<br /><br />-----------------------------<br /><br />MY INSTAGRAM:<br /><a rel="nofollow" target="blank" href="http://instagram.com/nerdecrafter">http://instagram.com/nerdecrafter</a><br /><br />MY FACEBOOK:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/NerdEcrafter">https://www.facebook.com/NerdEcrafter</a><br /><br />MY TWITTER:<br /><a rel="nofollow" target="blank" href="https://twitter.com/NerdECrafter">https://twitter.com/NerdECrafter</a>{% endraw %}
