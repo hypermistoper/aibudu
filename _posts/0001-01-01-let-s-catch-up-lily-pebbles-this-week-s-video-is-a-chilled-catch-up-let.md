@@ -1,0 +1,15 @@
+---
+title: "LET'S CATCH UP | Lily Pebbles"
+image: "https:\/\/i.ytimg.com\/vi\/Uminm9n6tpE\/hqdefault.jpg"
+vid_id: "Uminm9n6tpE"
+categories: "Howto-Style"
+tags: ["lily","lilypebbles","pebbles"]
+date: "2022-03-06T11:53:10+03:00"
+vid_date: "2022-03-06T07:00:06Z"
+duration: "PT21M51S"
+viewcount: "5243"
+likeCount: "348"
+dislikeCount: ""
+channel: "Lily Pebbles"
+---
+{% raw %}This week's video is a chilled catch up. Let's chat. Please check the bottom of the this description box for info on ads, affiliate links and gifted items.<br /><br />Click 'SHOW MORE' below<br /><br /><br /><br /><br /><br /><br /><br />-------------------------------------------------------<br /><br /><br /><br />Any links that are ‘rstyle.me' or ‘amzn.to’ or 'apparl' are ad-affiliate links.<br /><br />If you purchase something using one of these links, I make a small percentage from that sale. This doesn't affect my opinions. Thanks for your support. <br /><br /><br /><br />ad-PR Gifts that are mentioned within the video are marked with *<br /><br />ad-PR Discounted items are marked with **<br /><br />Often items are sent to me for free and the brands that send these know that I cannot guarantee them specific coverage. If I don't like an item I have been sent for free I very often just won't mention it, so please know you can still trust my opinion even on gifted items. <br /><br /><br /><br />Any paid for advertisements I do, I will mark the thumbnail with AD and write it in the top and bottom of this description box. An AD means I have been paid by a brand to talk specifically about a product or service. I only work with brands I genuinely like and would recommend - watch this video on how I work with brands <a rel="nofollow" target="blank" href="http://lpebbles.uk/PngWtj">http://lpebbles.uk/PngWtj</a> <br /><br /><br /><br /><br /><br /><br /><br />Check out my book The F Word here! <br /><br /><a rel="nofollow" target="blank" href="http://amzn.to/2i6a1z0">http://amzn.to/2i6a1z0</a><br /><br /><br /><br /><br /><br />FIND ME:<br /><br />Subscribe - <a rel="nofollow" target="blank" href="http://bit.ly/10dYuIf">http://bit.ly/10dYuIf</a><br /><br />Blog - <a rel="nofollow" target="blank" href="http://bit.ly/1kL8Qd6">http://bit.ly/1kL8Qd6</a><br /><br />Instagram - <a rel="nofollow" target="blank" href="http://instagram.com/lilypebbles">http://instagram.com/lilypebbles</a><br /><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/lilypebbles">https://twitter.com/lilypebbles</a><br /><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/lilypebbles">https://www.facebook.com/lilypebbles</a><br /><br /><br /><br />Music by Epidemic Sound (<a rel="nofollow" target="blank" href="http://www.epidemicsound.com)">http://www.epidemicsound.com)</a><br /><br /><br /><br />Disclaimer: <br /><br />This video is not an advertisement. <br /><br />--------------------------------------------------------------------------------­-----------------<br /><br />How to contact me:<br /><br />lily@lilypebbles.co.uk<br /><br />natalie.amos@gleamfutures.com{% endraw %}
