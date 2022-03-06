@@ -1,0 +1,15 @@
+---
+title: "I Don't Wanna Wait - Paula Cole | Gigi De Lana • Jon  • Jake • Romeo"
+image: "https:\/\/i.ytimg.com\/vi\/lBH9wOcxp8I\/hqdefault.jpg"
+vid_id: "lBH9wOcxp8I"
+categories: "Music"
+tags: ["paula cole","paula cole music videos","paula cole playlist"]
+date: "2022-03-06T05:00:56+03:00"
+vid_date: "2022-01-31T12:00:15Z"
+duration: "PT5M11S"
+viewcount: "560369"
+likeCount: ""
+dislikeCount: ""
+channel: "Gigi De Lana and The Gigi Vibes"
+---
+{% raw %}Join us on our vlogs and live streams! Subscribe! <br />Gigi De Lana and The Gigi Vibes | <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCs6KnZM_27Z5RZz3buwSfrA">https://www.youtube.com/channel/UCs6KnZM_27Z5RZz3buwSfrA</a><br />Gigi Vibes TV | <br /> <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCf8n-LnxiadFpLr0ZPWR8ow">https://www.youtube.com/channel/UCf8n-LnxiadFpLr0ZPWR8ow</a><br /><br />Video Editing by:  Paolo Manlutac<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/pao.man.948">https://www.facebook.com/pao.man.948</a><br /><br />Socials:<br />Gigi De Lana and The Gigi Vibes<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/gigidelanagi...">https://www.facebook.com/gigidelanagi...</a><br />Gigi Vibes TV:  <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCf8n...">https://www.youtube.com/channel/UCf8n...</a><br /><br />Gigi De Lana<br />Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/gigidelanaof...">https://www.facebook.com/gigidelanaof...</a><br />Instagram | <a rel="nofollow" target="blank" href="https://instagram.com/gigidelanaofficial">https://instagram.com/gigidelanaofficial</a><br />Kumu | <a rel="nofollow" target="blank" href="https://app.kumu.ph/gigidelana">https://app.kumu.ph/gigidelana</a><br />Twitter | <a rel="nofollow" target="blank" href="https://twitter.com/GigiDeLana">https://twitter.com/GigiDeLana</a><br />TikTok | <a rel="nofollow" target="blank" href="https://tiktok.com/@gigidelana">https://tiktok.com/@gigidelana</a><br />Youtube | <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCs6K...">https://www.youtube.com/channel/UCs6K...</a><br /><br />Gigi Vibes Band Jon Cruz | Musical Director, Keys Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/joncruz1920">https://facebook.com/joncruz1920</a><br /><br />Jake Manalo | Facebook Facebook logo Sign up for Facebook to connect with Bass <a rel="nofollow" target="blank" href="https://facebook.com/harvyjake.manalo">https://facebook.com/harvyjake.manalo</a>   <br /><br />Romeo Marquez | Drums Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/romeo.marquez.184">https://facebook.com/romeo.marquez.184</a>  <br /><br />Produced by Tritone Studios by Erwin Lacsa Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/tritonestudios55">https://facebook.com/tritonestudios55</a>  <br /><br />Online Donation: BPI - 3379 216 616 Mary Gidget O Dela Llana GCash - 0905 563 6489 Paypal - gidgetorfano@gmail.com<br /><br /> #GigiDeLana  <br />#GigiVibesBand{% endraw %}
