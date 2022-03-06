@@ -1,0 +1,15 @@
+---
+title: "Under the Sphinx - The Hieroglyphic Evidence for The Real Hall Of Records"
+image: "https:\/\/i.ytimg.com\/vi\/ORI7BtwJSuE\/hqdefault.jpg"
+vid_id: "ORI7BtwJSuE"
+categories: "Education"
+tags: ["Under","Sphinx","Hieroglyphic"]
+date: "2022-03-06T07:37:15+03:00"
+vid_date: "2022-03-04T20:49:03Z"
+duration: "PT1H36M3S"
+viewcount: "75088"
+likeCount: "2393"
+dislikeCount: ""
+channel: "Ancient Secret Discoveries"
+---
+{% raw %}Contact in the Desert 2021 Virtual Expo - Author Manu Seyfzadeh investigates the meaning and origin of a strange relic that does not fit into ancient Egypt. It leads him to an archive guarded by the Great Sphinx. But there is a problem: The relic is much older, and so is the statue. Under the Sphinx will take you on a journey into the unknown, a time before kings and queens, a time of history before history.<br /><br />About Manu Seyfzadeh<br />MANU SEYFZADEH IS OF GERMAN AND PERSIAN DESCENT. He grew up in Germany and Iran during his early years and emigrated to the United States at age 20 to study Medicine. After four years of premedical college education and eight years of medical and science training at the University of California, Irvine, he earned his M.D. and Ph.D. degrees and went to Houston Texas for his internship. From 1996 to 2001, he specialized in Dermatology and participated in the UCLA S.T.A.R. program to train as a medical scientist researching in the field molecular immunology and targeted anti-cancer drug design.<br /><br />Since 2002, he has worked as a clinical Dermatologist in private practice and at various clinics in California, Arizona, Texas, Idaho, and Wisconsin. He led the Medical Global Brigades on three charity missions to Nicaragua and Honduras and co-founded a charity called Esperanza 4 U to serve orphans and the poor in Tijuana, Mexico.<br />His entry into Egyptology and ancient civilizations came with reading a book, the Orion Mystery by Robert Bauval and Adrian Gilbert, and watching a documentary film, the Pyramid Code by Carmen Bolter. This exposure was instrumental in studying archeoastronomy, relearning geometry and architecture, and eventually self-teaching the Hieroglyphic language of the ancient Egyptians with the book Middle Egyptian by James Peter Allen.<br /><br />Since 2016, Manu has authored a book about the architecture of the Great Pyramid and published several papers with Robert Schoch and Robert Bauval about the Great Sphinx, pyramid architecture, the Inventory Stele, and the symbols on the T-shaped pillars at Göbekli Tepe. With Archive under the Sphinx, he is making his finding available to a wider audience with the goal to bring the public at large closer to the magic and meaning of numbers and words in ancient Egypt and help to advance the progress of knowledge about how they seeded the origin of ancient civilizations.<br /><br />Learn more about Manu's work here - <a rel="nofollow" target="blank" href="https://cheopspyramid.com/about-the-author/">https://cheopspyramid.com/about-the-author/</a><br /><br />This channel is under ZEG UK/USA/PM LTD &amp; AdRev Management.{% endraw %}
