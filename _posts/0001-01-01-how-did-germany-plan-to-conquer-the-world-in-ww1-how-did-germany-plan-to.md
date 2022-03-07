@@ -1,0 +1,15 @@
+---
+title: "How did Germany plan to \"conquer the World\" in WW1?"
+image: "https:\/\/i.ytimg.com\/vi\/Hq1W8C3kaOE\/hqdefault.jpg"
+vid_id: "Hq1W8C3kaOE"
+categories: "Education"
+tags: ["How did Germany plan to conquer the World in WW1?","German Empire","How did German Empire plan to conquer the World"]
+date: "2022-03-07T17:08:14+03:00"
+vid_date: "2021-04-04T14:47:33Z"
+duration: "PT10M16S"
+viewcount: "662635"
+likeCount: "21280"
+dislikeCount: ""
+channel: "Knowledgia"
+---
+{% raw %}How did Germany plan to &quot;conquer the World&quot; in World War 1?<br /><br />&quot;Imperial Germany was an ambitious empire. The Germans just united in the second half of the 19th Century and gained vast respect from the rest of the continent, and the world, as a scientific and industrial superpower; racking up 20 Nobel Prizes between 1901 through 1918 alone, spanning the categories of Medicine, Chemistry, Physics, and Literature. The year before the outbreak of World War One, Imperial Germany also boasted the largest economy in Continental Europe and placed only third behind the United States and the British Empire on the world scale. With a robust military and rapidly prospering home status, the German Empire was ready for even more success and power, and that is exactly what they would aim to take…&quot;<br /><br />♦Consider to Support the Channel of Patreon and gain cool stuff: <br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/Knowledgia">https://www.patreon.com/Knowledgia</a><br /><br /><br /><br /><br /><br />♦Please consider to SUBSCRIBE : <a rel="nofollow" target="blank" href="https://goo.gl/YJNqek">https://goo.gl/YJNqek</a><br /><br /><br /><br />♦Music, courtesy of EpidemicSound<br /><br /><br /><br />♦Sources :<br /><br />The First World War by Hutchinson - <a rel="nofollow" target="blank" href="https://amzn.to/3fHjmIK">https://amzn.to/3fHjmIK</a><br /><br />Schlieffen Plan: Critique of a Myth by Wolff, 1958 - <a rel="nofollow" target="blank" href="https://amzn.to/3wtFUT9">https://amzn.to/3wtFUT9</a><br /><br />The First World War: Volume I: To Arms First World War  by Oxford University Press - <a rel="nofollow" target="blank" href="https://amzn.to/3t20Oa9">https://amzn.to/3t20Oa9</a><br /><br />Alfred Von Schlieffen's Military Writings by Routledge-<a rel="nofollow" target="blank" href="https://amzn.to/3mkydde">https://amzn.to/3mkydde</a><br /><br />Europe's Last Summer: Who Started the Great War in 1914? by Vintage - <a rel="nofollow" target="blank" href="https://amzn.to/3sRQIIB">https://amzn.to/3sRQIIB</a><br /><br />A History of the World in the Twentieth Century, Enlarged Edition by Belknap Press -<a rel="nofollow" target="blank" href="https://amzn.to/3fETzRq">https://amzn.to/3fETzRq</a><br /><br />The Plan That Broke the World: The &quot;Schlieffen Plan&quot; and World War I What Were They Thinking? by CreateSpace Independent Publishing Platform -<a rel="nofollow" target="blank" href="https://amzn.to/2PW3as8">https://amzn.to/2PW3as8</a><br /><br /><br /><br /><br /><br /><br />#History #Documentary{% endraw %}
