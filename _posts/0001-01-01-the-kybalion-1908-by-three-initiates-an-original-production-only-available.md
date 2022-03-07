@@ -1,0 +1,15 @@
+---
+title: "The Kybalion (1908) by Three Initiates"
+image: "https:\/\/i.ytimg.com\/vi\/aL43l2SFVWQ\/hqdefault.jpg"
+vid_id: "aL43l2SFVWQ"
+categories: "Education"
+tags: ["The Master Key","Master Key","purpose"]
+date: "2022-03-07T10:56:03+03:00"
+vid_date: "2021-07-25T22:00:00Z"
+duration: "PT4H4M54S"
+viewcount: "1035964"
+likeCount: "26707"
+dislikeCount: ""
+channel: "Master Key Society"
+---
+{% raw %}An original production only available only on YouTube.<br />Thanks for subscribing and sharing.<br /><br />Book Introduction:<br />The Kybalion is a study of the Hermetic Philosophy of Ancient Egypt and Greece. The Kybalion is attributed to the Hermes Trismegistus (a syncretic combination of the Greek god Hermes and the Egyptian god Thoth). The Kybalion is a study of the Hermetic Philosophy of life and the 7 hermetic principles. It explores the relationships between human beings, the cosmos, and God. The book helped popularize the axiom As Above, So Below and propounds the idea that mind is causational. That within the limits of physical and material life we can create just as the higher mind can create. <br /><br />Chapters:<br />00:00 - Intro<br />00:58 - Introduction<br />09:12 - I. Hermetic Philosophy<br />20:06 - II. Seven Hermetic Principles<br />40:02 - III. Mental Transmutation<br />49:37 - IV. The All<br />1:03:17 - V. The Mental Paradox<br />1:17:30 - VI. The Divine Paradox<br />1:38:12 - VII. &quot;The All&quot; in All<br />1:57:50 - VIII. Planes of Correspondance<br />2:24:47 - IX. Vibration<br />2:37:19 - X. Polarity<br />2:48:57 - XI. Rhythm<br />3:02:42 - XII. Causation<br />3:17:40 - XIII. Gender<br />3:29:23 - XIV. Mental Gender<br />3:51:52 - XV. Hermetic Axioms<br /><br />Credits:<br />Text - Three Initiates<br />Audio Narration - Adam Hanin<br />Visual Photography and Editing - Brian Dehler<br />Produced by Cine-O-Matic, Inc. dba Master Key Society on location in Minneapolis, Minnesota.<br /><br />This YouTube book is copyright ©2021 Master Key Society<br /><br />About Master Key Society:<br />This educational channel provides a unique and accessible book format so that these important literary works can be available to everyone. With each rare and often never-before-seen book, we provide an overview in the description, record original narration, and we meticulously photograph each page so that you can experience the book in full detail. Our library is for the academic study and research of metaphysical philosophy and for those that are seekers of wisdom, personal transformation, and self-improvement. Please participate by subscribing and sharing your thoughts in the comments section.<br /><br />Recognized by the YouTube community for bringing audio/visual accessibility to these important literary works, Master Key Society is proud to be a supporter of the Philosophical Research Society and a supporting member of The International Dyslexia Association (IDA) and The International Association of Accessibility Professionals (IAAP).{% endraw %}
