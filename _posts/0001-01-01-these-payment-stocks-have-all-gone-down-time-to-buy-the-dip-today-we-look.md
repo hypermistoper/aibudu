@@ -1,0 +1,15 @@
+---
+title: "These Payment Stocks Have All Gone Down - Time To Buy The Dip?"
+image: "https:\/\/i.ytimg.com\/vi\/Xd8bHiyLcPg\/hqdefault.jpg"
+vid_id: "Xd8bHiyLcPg"
+categories: "Education"
+tags: ["These","Payment","Stocks"]
+date: "2022-03-07T09:22:48+03:00"
+vid_date: "2022-03-06T18:34:13Z"
+duration: "PT38M30S"
+viewcount: "7079"
+likeCount: "409"
+dislikeCount: ""
+channel: "The Investor Channel"
+---
+{% raw %}Today we look at the Fintech/Payments sector again after all these stocks are well off the highs. #BLOCK #PYPL #SOFI #Stock<br /><br />Block Earnings Video: <a rel="nofollow" target="blank" href="https://youtu.be/tznMhy-jCUY">https://youtu.be/tznMhy-jCUY</a><br />PayPal Earnings Video: <a rel="nofollow" target="blank" href="https://youtu.be/9YpSwPB8r2Y">https://youtu.be/9YpSwPB8r2Y</a><br />Sofi Earnings Video (This video covers earnings)<br />Visa Earnings Video: <a rel="nofollow" target="blank" href="https://youtu.be/rAsKWTh7LOI">https://youtu.be/rAsKWTh7LOI</a><br />Mastercard Earnings Video: <a rel="nofollow" target="blank" href="https://youtu.be/089Hs6Bwhh4">https://youtu.be/089Hs6Bwhh4</a><br /><br />- SUBSCRIBE TO MY FREE NEWSLETTER - <br /><a rel="nofollow" target="blank" href="https://theinvestorchannel.substack.com/?r=phd5&amp;s=w&amp;utm_campaign=pub&amp;utm_medium=web">https://theinvestorchannel.substack.com/?r=phd5&amp;s=w&amp;utm_campaign=pub&amp;utm_medium=web</a><br /><br />— Follow Me On Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/investorvideos/">https://www.instagram.com/investorvideos/</a><br />— Follow Me On Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/investorvideos">https://twitter.com/investorvideos</a><br /><br />WANT TO HELP THE CHANNEL??? (Referral Links)<br /><br />Sign Up To E-Trade: <a rel="nofollow" target="blank" href="https://refer.etrade.net/vt71917">https://refer.etrade.net/vt71917</a><br /><br />Shop On Amazon: <a rel="nofollow" target="blank" href="https://amzn.to/3iI6LVM">https://amzn.to/3iI6LVM</a><br />We Get A Small % Of Your Purchase<br /><br />Sign Up For Coinbase: <a rel="nofollow" target="blank" href="https://www.coinbase.com/join/ctedards">https://www.coinbase.com/join/ctedards</a><br />You Will get $10 after you buy $100 worth of Crypto!<br /><br />Sign Up For Robinhood: <a rel="nofollow" target="blank" href="https://join.robinhood.com/colint11">https://join.robinhood.com/colint11</a><br />You Will Get Free Shares Of Stock When You Open An Account!<br /><br />Sign Up For Tradingview: <a rel="nofollow" target="blank" href="https://www.tradingview.com/gopro/?share_your_love=sportscardshow">https://www.tradingview.com/gopro/?share_your_love=sportscardshow</a><br />These Are The Charts We Use On The Channel<br /><br />YouTubeTV: <a rel="nofollow" target="blank" href="https://tv.youtube.com/referral/r1d400ovkrsicg">https://tv.youtube.com/referral/r1d400ovkrsicg</a><br />You’ll Get $10 Off Your 1st Bill<br /><br />Timestamps:<br />Intro 0:00<br />Block Analysis: 3:00<br />PayPal Analysis: 12:01<br />Sofi Earnings/Analysis: 20:13<br />Visa Analysis: 30:15<br />Mastercard Analysis: 34:47{% endraw %}
