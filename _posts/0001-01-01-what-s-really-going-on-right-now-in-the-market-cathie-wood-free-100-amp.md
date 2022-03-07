@@ -1,0 +1,15 @@
+---
+title: "What's REALLY Going On Right Now In The Market | Cathie Wood"
+image: "https:\/\/i.ytimg.com\/vi\/0oXJ_21oHsE\/hqdefault.jpg"
+vid_id: "0oXJ_21oHsE"
+categories: "People-Blogs"
+tags: ["ark invest","bitcoin","bitcoin crash"]
+date: "2022-03-07T07:22:28+03:00"
+vid_date: "2022-03-06T21:11:26Z"
+duration: "PT10M1S"
+viewcount: "8568"
+likeCount: "433"
+dislikeCount: ""
+channel: "Only The SAVVY"
+---
+{% raw %}🔸 FREE $100 &amp; No Monthly Fees 💵 I-Trust Capital  ► <a rel="nofollow" target="blank" href="https://itrust.capital/onlysavvy">https://itrust.capital/onlysavvy</a><br /><br />What's REALLY Going On Right Now In The Market | Cathie Wood<br /><br />In her Big Ideas report, Cathie Wood of Ark Invest discussed numerous topics, including monetary policy, fiscal policy, market signals, and innovation.  Wood was very candid about her stock picks being down 75% at one point, but suggested that the reason for this is because her firm is as close to venture capital firm in the public equity market as you can find.  Meaning, in the short term, her stock picks are high risk because she is early but according to her 5-year time horizon, she will win out big.  One of the big mantras Wood preached during her 33-minute report was that innovation solves problems and we have a lot of problems to solve in the world right now, to say the least which is why she’s so bullish on her innovation platforms.  Wood believes that the geopolitical turmoil between Russia and Ukraine has accelerated the timeline for these innovations to mature and that consumers will turn to innovation to combat everything that is coming, which we have seen a glimpse of with Bitcoin donations to Ukraine and the Canadian Truckers.<br />▬▬▬▬▬▬▬▬▬▬<br />THIS INTERVIEW WAS POSTED ON MARCH 1, 2022<br />Listen to the full unedited interview here ⬇ [Credits] 🙏<br />Cathie Wood In Conversation With Miami Herbert Business School<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9GH0dm_geJY">https://www.youtube.com/watch?v=9GH0dm_geJY</a><br />▬▬▬▬▬▬▬▬▬▬<br />🎵BACKGROUND MUSIC licensed through AudioJungle &amp; Epidemic Sound <br /><br />🎥FOOTAGE licensed through VideoBlocks and Filmpac, except parts about the topic that have been used under fair use.<br />▬▬▬▬▬▬▬▬▬▬<br />FAIR-USE COPYRIGHT DISCLAIMER <br />Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational, or personal use tips the balance in favor of fair use. <br /><br />-This video has no negative impact on the original works (It would actually be positive for them) <br />-This video is also for teaching and inspirational purposes. <br />-It is not transformative in nature. <br />-We've only used bits and pieces of videos to get the point across where necessary.{% endraw %}
