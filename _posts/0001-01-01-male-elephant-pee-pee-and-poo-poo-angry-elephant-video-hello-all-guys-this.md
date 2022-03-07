@@ -1,0 +1,15 @@
+---
+title: "Male elephant pee pee and poo poo | Angry elephant video"
+image: "https:\/\/i.ytimg.com\/vi\/LhQR6xEyOu8\/hqdefault.jpg"
+vid_id: "LhQR6xEyOu8"
+categories: "Pets-Animals"
+tags: ["Elephant","Elephants","Elephant attacks"]
+date: "2022-03-07T22:45:10+03:00"
+vid_date: "2021-08-15T23:48:24Z"
+duration: "PT2M4S"
+viewcount: "310468"
+likeCount: "753"
+dislikeCount: ""
+channel: "Happy Cambodia Elephant"
+---
+{% raw %}Hello all guys this is my channel , I would like to tell you about the daily life of my elephant in Cambodia , His name Rang Bay and 36years old and he come from Mondulkiri .<br />If you want to know more about him please don’t forget subscribe and share this my video !<br /><br />Link channel :<a rel="nofollow" target="blank" href="https://youtube.com/channel/UCr78LJIG3hx4q2pU4ByOoFg">https://youtube.com/channel/UCr78LJIG3hx4q2pU4ByOoFg</a><br /><br />———————————————————————<br /><br />More video : <br />-Elephant playing with mud | Daily life elephant in Cambodia <br />  Link video:  <a rel="nofollow" target="blank" href="https://youtu.be/Cpiq9WKX1P0">https://youtu.be/Cpiq9WKX1P0</a><br />- Elephant eating sugarcane | Cambodia elephant Sanctuary<br />  Link video:  <a rel="nofollow" target="blank" href="https://youtu.be/awvTePBdfyk">https://youtu.be/awvTePBdfyk</a><br />-Amazing elephant with five legs video <br />  Link video: <a rel="nofollow" target="blank" href="https://youtu.be/x4fUvIDkLrY">https://youtu.be/x4fUvIDkLrY</a><br />-Hungry elephant want to eat sugarcane<br /> Linke Video: <a rel="nofollow" target="blank" href="https://youtu.be/3GDzQBVq7xs">https://youtu.be/3GDzQBVq7xs</a><br />- Giant elephant ride with people | Elephant and people<br /> Link video: <a rel="nofollow" target="blank" href="https://youtu.be/lXSRUzVbWm4">https://youtu.be/lXSRUzVbWm4</a><br />-Elephant vs man | Funny elephant fighting video<br />  Link video: <a rel="nofollow" target="blank" href="https://youtu.be/1Soppj2n5BA">https://youtu.be/1Soppj2n5BA</a><br />-Elephant playing with the tree | The power of elephant<br /> Link video: <a rel="nofollow" target="blank" href="https://youtu.be/5rMd4o4KFK0">https://youtu.be/5rMd4o4KFK0</a><br />-Angry elephant charges I Elephant attack on me<br />Link video: <a rel="nofollow" target="blank" href="https://youtu.be/XnhjXU0NA58">https://youtu.be/XnhjXU0NA58</a><br />-My sister enjoy feeding elephant (Rang Bay)<br />Link video: <a rel="nofollow" target="blank" href="https://youtu.be/8rszYBkpuf4">https://youtu.be/8rszYBkpuf4</a><br />-Elephant with five legs in cambodia | Elephant enjoy eating (Rang Bay)<br />Link video: <a rel="nofollow" target="blank" href="https://youtu.be/KGtDvrQbb8w">https://youtu.be/KGtDvrQbb8w</a><br />-Giant elephant swimming (Rang Bay)<br />Link video: <a rel="nofollow" target="blank" href="https://youtu.be/5qaquVNDWo4">https://youtu.be/5qaquVNDWo4</a><br />-Elephant swimming with the children<br />Link video: <a rel="nofollow" target="blank" href="https://youtu.be/K9OJA9VSze0">https://youtu.be/K9OJA9VSze0</a><br /><br />Thank you for watching !{% endraw %}
