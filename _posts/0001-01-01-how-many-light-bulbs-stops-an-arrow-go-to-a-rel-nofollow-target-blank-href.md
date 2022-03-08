@@ -1,0 +1,15 @@
+---
+title: "How Many Light Bulbs Stops an Arrow?"
+image: "https:\/\/i.ytimg.com\/vi\/vjvUS4QlNQo\/hqdefault.jpg"
+vid_id: "vjvUS4QlNQo"
+categories: "Sports"
+tags: ["how ridiculous","rexy","44club"]
+date: "2022-03-08T07:19:29+03:00"
+vid_date: "2022-03-04T22:00:31Z"
+duration: "PT18M40S"
+viewcount: "1373666"
+likeCount: "46603"
+dislikeCount: ""
+channel: "How Ridiculous"
+---
+{% raw %}Go to <a rel="nofollow" target="blank" href="http://CircleDNA.com/howridiculous">http://CircleDNA.com/howridiculous</a> and use code HowRidiculous to get 33% off all CircleDNA kits!<br /><br />BUY NEW MERCH ➤ <a rel="nofollow" target="blank" href="http://bit.ly/HRMerchStore">http://bit.ly/HRMerchStore</a><br /><br />SUBSCRIBE ➤ <a rel="nofollow" target="blank" href="http://bit.ly/SubHowRidiculous">http://bit.ly/SubHowRidiculous</a><br /><br />BECOME A MEMBER ➤ and get exclusive perks like bonus videos, live streams. merch discount codes + more!  <a rel="nofollow" target="blank" href="http://bit.ly/HRmemberships">http://bit.ly/HRmemberships</a><br /><br />SOCIALS<br />Instagram ➤ @HowRidiculous<br />Facebook ➤ How Ridiculous / <a rel="nofollow" target="blank" href="http://bit.ly/HRFacey">http://bit.ly/HRFacey</a><br />Twitter     ➤ @howridiculous<br />TikTok     ➤ @howridiculous<br />Discord   ➤ <a rel="nofollow" target="blank" href="https://discord.gg/MWmqCEvjeJ">https://discord.gg/MWmqCEvjeJ</a><br /><br />What's the 44 Club? <a rel="nofollow" target="blank" href="https://howridiculous.org/pages/44-club">https://howridiculous.org/pages/44-club</a><br /><br />Music used with permission and licensed to How Ridiculous by Dream Records LLC | Sync Royalty: &quot;Cruise Control&quot; - <a rel="nofollow" target="blank" href="https://youtu.be/h0q6_gD94II,">https://youtu.be/h0q6_gD94II,</a> &quot;Beach Ball&quot; - <a rel="nofollow" target="blank" href="https://youtu.be/H6g95w3abRQ,">https://youtu.be/H6g95w3abRQ,</a> &quot;HR1&quot; - <a rel="nofollow" target="blank" href="https://youtu.be/7Gj64DrBWfU,">https://youtu.be/7Gj64DrBWfU,</a> &quot;Pocket Change&quot; -  <a rel="nofollow" target="blank" href="https://youtu.be/Hj4WQFpwTVE">https://youtu.be/Hj4WQFpwTVE</a><br /><br />We are passionate about seeing children released from poverty and we would love you to consider sponsoring a child with Compassion. We visited our sponsor children in the Philippines and were blown away by the difference that child sponsorship can make. To find out more about sponsoring a child right now, check out: <a rel="nofollow" target="blank" href="http://cmpsn.co/howridiculous">http://cmpsn.co/howridiculous</a><br /><br />For 44 Club fan mail or other items please send to: <br />How Ridiculous <br />PO Box 1256 <br />Canning Vale DC WA 6970<br />Australia<br /><br />EMAIL US:<br />All 44CLUB/fan email ➤ 44club@howridiculous.org<br />&quot;We'll Pin Ya&quot; Submissions ➤ pinya@howridiculous.org<br />Merchandise Questions ➤ merch@howridiculous.org<br />Licensing/Media Inquiries ➤ licenses@howridiculous.org<br />Business Inquiries ONLY ➤ management@howridiculous.org{% endraw %}
