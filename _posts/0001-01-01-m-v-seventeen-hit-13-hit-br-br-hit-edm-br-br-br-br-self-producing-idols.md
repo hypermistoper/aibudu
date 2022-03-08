@@ -1,0 +1,15 @@
+---
+title: "[M\/V] SEVENTEEN(세븐틴) - HIT"
+image: "https:\/\/i.ytimg.com\/vi\/F9CrRG6j2SM\/hqdefault.jpg"
+vid_id: "F9CrRG6j2SM"
+categories: "Music"
+tags: ["에스쿱스","정한","조슈아"]
+date: "2022-03-08T23:34:52+03:00"
+vid_date: "2019-08-05T09:00:02Z"
+duration: "PT3M24S"
+viewcount: "66687870"
+likeCount: "1451832"
+dislikeCount: ""
+channel: "SEVENTEEN"
+---
+{% raw %}13명의 뚜렷한 음악 색을 바탕으로 세븐틴 표 노래와 무대를 전 세계에 알리며 독보적인 독창성을 보여주고 있는 자체 제작 아이돌 세븐틴이 또 한 번의 이미지 변신과 함께 명곡 탄생을 예감케 하는 디지털 싱글 ‘HIT’로 대중들의 심장을 강타할 예정이다.<br /><br />이번 디지털 싱글의 타이틀곡 ‘HIT’는 임팩트 있는 강렬한 EDM 장르의 댄스 곡으로 제목처럼 타격감이 느껴지는 사운드와 세븐틴의 폭발적인 에너지가 그대로 전해져 파워풀함의 끝을 보여주는 곡이다. 특히 모두가 주목할만한 역대급 퍼포먼스로 안무에 더욱 완성도를 높였으며 ‘우리를 구속하고 통제하는 것으로부터 벗어나자’는 해방을 외치며 저돌적으로 돌파구를 찾는 메시지를 담아내 가요계 또 다른 히트를 이끌 예정이다.<br /><br />또한 이번 싱글은 세븐틴이 새로운 세계로의 확장을 꿈꾸며 보내는 찬가로 이전에는 찾아볼 수 없었던 한층 더 성숙해진 매력의 세븐틴을 만나 볼 수 있어 과연 그들이 쏘아 올린 신호탄이 이후 어떤 색다른 프로젝트로 녹여질지 세븐틴이 써 내려갈 이야기에 많은 호기심을 자극하고 있다.<br /><br />“Self-producing idols,” SEVENTEEN, known for showing originality worldwide through their 13 distinct musical colors, return to the public with their digital single, &quot;HIT&quot;. The group plans to steal the hearts of many through this future “hit” track.  <br /><br />The digital single’s title track, “HIT,” is a dynamic EDM genre dance track. Like the title, the intense sound and SEVENTEEN’s explosive energy combine to create a powerful performance. The choreography is also brought to another level, seeking to capture the attention of many. As the lyrics ask for “liberation from those that oppress us,” SEVENTEEN plans to make this track another “hit” by expressing a message of freedom.<br /><br />Also, this single expresses SEVENTEEN’s dream of expanding into a new world, showing a more mature side of the group. This single anticipates what kind of new projects are in store and many continue to look forward to the stories SEVENTEEN will tell through their future projects.<br /><br /><br />iTunes &amp; Apple Music ▶ <a rel="nofollow" target="blank" href="https://apple.co/2GMH0kR">https://apple.co/2GMH0kR</a><br />Spotify ▶ <a rel="nofollow" target="blank" href="https://spoti.fi/2YpOlBz">https://spoti.fi/2YpOlBz</a><br /><br /><br />#SEVENTEEN #세븐틴 <br />#HIT #SEVENTEEN_HIT<br />#Online_Offline_세븐틴으로_도배해<br /><br /><br />SEVENTEEN Official Homepage: <a rel="nofollow" target="blank" href="http://www.seventeen-17.com">http://www.seventeen-17.com</a><br />SEVENTEEN Official Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/seventeennews">https://www.facebook.com/seventeennews</a><br />SEVENTEEN Official Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/pledis_17">https://twitter.com/pledis_17</a><br />SEVENTEEN Official Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/saythename_17">http://www.instagram.com/saythename_17</a><br />SEVENTEEN Official Fancafe: <a rel="nofollow" target="blank" href="http://cafe.daum.net/pledis-17">http://cafe.daum.net/pledis-17</a><br /><br /><br />ⓒ Pledis Entertainment. All Rights Reserved{% endraw %}
