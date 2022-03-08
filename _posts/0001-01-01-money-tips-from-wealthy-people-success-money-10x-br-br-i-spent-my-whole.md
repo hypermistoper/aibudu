@@ -1,0 +1,15 @@
+---
+title: "Money Tips from Wealthy People"
+image: "https:\/\/i.ytimg.com\/vi\/P-2407JzgM8\/hqdefault.jpg"
+vid_id: "P-2407JzgM8"
+categories: "Education"
+tags: ["grantcardone","grant cardone","10x"]
+date: "2022-03-08T09:11:50+03:00"
+vid_date: "2021-10-17T17:29:59Z"
+duration: "PT2H38M58S"
+viewcount: "330102"
+likeCount: "9840"
+dislikeCount: ""
+channel: "Grant Cardone"
+---
+{% raw %}#success #money #10x<br /><br />I spent my whole life figuring out this money game - based on what word popped into your head after “Money is….” tells you a lot about your current financial situation…<br /><br />I spent 7 days with key players in the money game to learn more and I want to share some of the highlights I took away from these experts: Kevin O'Leary, Sharon Lechter, Magic Johnson, Stormy Wellington, Dr. Jordan Peterson, and Chris Voss.<br /><br />If you want to truly dominate your life, career, finances, and health - spend 3 full days with me here: grantcardone.com/virtual<br /><br />… but only if you are serious about changing your financial situation for the better and getting your life on track.<br />It's time to get serious. I'm fighting for your success and I know you have it in you.<br /><br />Learn more: <a rel="nofollow" target="blank" href="https://grantcardone.com/virtual">https://grantcardone.com/virtual</a><br />GC<br />-----<br />► More Grant Cardone<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/grantcardone">https://instagram.com/grantcardone</a><br />iTunes: <a rel="nofollow" target="blank" href="https://itunes.apple.com/us/podcast/cardone-zone/id825614458">https://itunes.apple.com/us/podcast/cardone-zone/id825614458</a><br /><br />► This is an AD FREE Channel with new videos added daily concerting <br />#RealEstate #Investing #Entrepreneur #Money #Sales #Scaling #Leadership<br />#Socialmedia #Marketing #10 #Speaking #Family #Finance<br /><br />Subscribe to Grant Cardone YT Channel: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/GrantCardone?sub_confirmation=1">https://www.youtube.com/user/GrantCardone?sub_confirmation=1</a><br />--<br />Grant Cardone Career and Bio<br />TV   Undercover Billionaire<br />CEO -   CardoneCapital.com Real Estate Holdings 2.2B AUM<br />Founder -  10X Movement Business Conferences Worldwide<br />Author -   The 10X Rule. (Plus eight more biz books)<br />Philanthropy Grant Cardone Foundation - Support kids without fathers.<br />Raised Over 100M for Charites This is not an offer, solicitation of an offer, to buy or sell securities nor a recommendation to buy or sell any securities. Past performance is not an indication of future results. Investing involves risk and may result in partial or total loss. Prospective investors should consider carefully investment objectives, risks, charges and expenses, and should consult with a tax, legal and/or financial adviser before making any investment decision. For additional information, visit www.cardonecapital.com/disclosures.{% endraw %}
