@@ -1,0 +1,15 @@
+---
+title: "Doppler effect formula for observed frequency | Physics | Khan Academy"
+image: "https:\/\/i.ytimg.com\/vi\/kGrk6V8tWDY\/hqdefault.jpg"
+vid_id: "kGrk6V8tWDY"
+categories: "Education"
+tags: ["Doppler","effect","formula"]
+date: "2022-03-08T21:22:44+03:00"
+vid_date: "2010-06-05T21:04:06Z"
+duration: "PT10M13S"
+viewcount: "279570"
+likeCount: "817"
+dislikeCount: ""
+channel: "Khan Academy"
+---
+{% raw %}Let's derive the formula for how the perceived frequency of a sound changes when its source is moving toward you. Created by Sal Khan.<br /><br />Watch the next lesson: <a rel="nofollow" target="blank" href="https://www.khanacademy.org/science/physics/mechanical-waves-and-sound/doppler-effect/v/doppler-effect-formula-when-source-is-moving-away?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=physics">https://www.khanacademy.org/science/physics/mechanical-waves-and-sound/doppler-effect/v/doppler-effect-formula-when-source-is-moving-away?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=physics</a><br /><br />Missed the previous lesson? <a rel="nofollow" target="blank" href="https://www.khanacademy.org/science/physics/mechanical-waves-and-sound/doppler-effect/v/introduction-to-the-doppler-effect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=physics">https://www.khanacademy.org/science/physics/mechanical-waves-and-sound/doppler-effect/v/introduction-to-the-doppler-effect?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=physics</a><br /><br />Physics on Khan Academy: Physics is the study of the basic principles that govern the physical world around us. We'll start by looking at motion itself. Then, we'll learn about forces, momentum, energy, and other concepts in lots of different physical situations. To get the most out of physics, you'll need a solid understanding of algebra and a basic understanding of trigonometry.<br /><br />About Khan Academy: Khan Academy offers practice exercises, instructional videos, and a personalized learning dashboard that empower learners to study at their own pace in and outside of the classroom. We tackle math, science, computer programming, history, art history, economics, and more. Our math missions guide learners from kindergarten to calculus using state-of-the-art, adaptive technology that identifies strengths and learning gaps. We've also partnered with institutions like NASA, The Museum of Modern Art, The California Academy of Sciences, and MIT to offer specialized content.<br /><br />For free. For everyone. Forever. #YouCanLearnAnything<br /><br />Subscribe to Khan Academy’s Physics channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC0oGarQW2lE5PxhGoQAKV7Q?sub_confirmation=1">https://www.youtube.com/channel/UC0oGarQW2lE5PxhGoQAKV7Q?sub_confirmation=1</a><br />Subscribe to Khan Academy: <a rel="nofollow" target="blank" href="https://www.youtube.com/subscription_center?add_user=khanacademy">https://www.youtube.com/subscription_center?add_user=khanacademy</a>{% endraw %}
