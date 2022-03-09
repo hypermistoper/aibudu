@@ -1,0 +1,15 @@
+---
+title: "i literally cut civilization in half"
+image: "https:\/\/i.ytimg.com\/vi\/yJJ0_LIplPc\/hqdefault.jpg"
+vid_id: "yJJ0_LIplPc"
+categories: "Gaming"
+tags: ["cities skylines","cities: skylines","city builder"]
+date: "2022-03-10T00:24:22+03:00"
+vid_date: "2022-02-25T21:50:40Z"
+duration: "PT16M45S"
+viewcount: "580637"
+likeCount: "21367"
+dislikeCount: ""
+channel: "GrayStillPlays"
+---
+{% raw %}i literally cut civilization in half<br />• Coffee - <a rel="nofollow" target="blank" href="https://floridamancoffeeco.com/">https://floridamancoffeeco.com/</a><br />• Merch - <a rel="nofollow" target="blank" href="https://www.graystillplays.store/">https://www.graystillplays.store/</a><br />• Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/graystillplays/">https://www.facebook.com/graystillplays/</a><br />• Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/graystillplaysofficial/?hl=en">https://www.instagram.com/graystillplaysofficial/?hl=en</a><br />• TikTok - <a rel="nofollow" target="blank" href="https://www.tiktok.com/@graystillplaystiktok?lang=en">https://www.tiktok.com/@graystillplaystiktok?lang=en</a><br />• Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/GrayStillPlays">https://twitter.com/GrayStillPlays</a><br />----------------------------------------------------------------<br />Watch more Graystillplays<br />• Games Where You Make Terrible Choices - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=sg0drcURlMQ&amp;list=PLw8xXEJ0p21cRkni_fMVQpDsHZt3rCo-C">https://www.youtube.com/watch?v=sg0drcURlMQ&amp;list=PLw8xXEJ0p21cRkni_fMVQpDsHZt3rCo-C</a><br />• GTA 5 - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=MzpajcqMEJk&amp;list=PLw8xXEJ0p21eqxJyXzakHCsWPuinZaOnt">https://www.youtube.com/watch?v=MzpajcqMEJk&amp;list=PLw8xXEJ0p21eqxJyXzakHCsWPuinZaOnt</a><br />• Happy Wheels - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=y1f5nHJMC9Y&amp;list=PLw8xXEJ0p21e4sMHByO149oWipy9vKBxo">https://www.youtube.com/watch?v=y1f5nHJMC9Y&amp;list=PLw8xXEJ0p21e4sMHByO149oWipy9vKBxo</a><br />• Minecraft - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=om6kveM0bnk&amp;list=PLw8xXEJ0p21c5Byf4tCwkPOI3qDJbtLN_">https://www.youtube.com/watch?v=om6kveM0bnk&amp;list=PLw8xXEJ0p21c5Byf4tCwkPOI3qDJbtLN_</a><br />• Solar Smash - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=aoLRxLMw-Ag&amp;list=PLw8xXEJ0p21dW0MykhEx0Z0SUp-cURh7d">https://www.youtube.com/watch?v=aoLRxLMw-Ag&amp;list=PLw8xXEJ0p21dW0MykhEx0Z0SUp-cURh7d</a><br />----------------------------------------------------------------<br />ABOUT: CITIES SKYLINES<br />Cities: Skylines is a modern take on the classic city simulation. The game introduces new gameplay elements to realize the thrill and hardships of creating and maintaining a real city whilst expanding on some well-established tropes of the city building experience.<br />----------------------------------------------------------------<br />#graystillplays #indie #simulation{% endraw %}
