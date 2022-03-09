@@ -1,0 +1,15 @@
+---
+title: "Zack Tabudlo - Pano (Official Lyric Video)"
+image: "https:\/\/i.ytimg.com\/vi\/xizg1-0JmiA\/hqdefault.jpg"
+vid_id: "xizg1-0JmiA"
+categories: "Music"
+tags: ["Zack","Tabudlo","Pano"]
+date: "2022-03-09T17:51:23+03:00"
+vid_date: "2021-12-06T13:00:21Z"
+duration: "PT4M36S"
+viewcount: "47494022"
+likeCount: "382513"
+dislikeCount: ""
+channel: "ZackTabudloVEVO"
+---
+{% raw %}Listen to 'Pano' out now everywhere: <a rel="nofollow" target="blank" href="https://ZackTabudlo.lnk.to/ThisIs">https://ZackTabudlo.lnk.to/ThisIs</a><br /><br />Don't forget to follow Zack Tabudlo on Social:<br /><a rel="nofollow" target="blank" href="http://ZackTabudlo.lnk.to/_FB">http://ZackTabudlo.lnk.to/_FB</a><br /><a rel="nofollow" target="blank" href="http://ZackTabudlo.lnk.to/_IG">http://ZackTabudlo.lnk.to/_IG</a><br /><a rel="nofollow" target="blank" href="http://ZackTabudlo.lnk.to/_TW">http://ZackTabudlo.lnk.to/_TW</a><br /><br />Follow Zack on Spotify<br /><a rel="nofollow" target="blank" href="https://ZackTabudlo.lnk.to/Spotify">https://ZackTabudlo.lnk.to/Spotify</a><br /><br />Watch Zack Tabudlo on TikTok:<br /><a rel="nofollow" target="blank" href="http://ZackTabudlo.lnk.to/_Tiktok">http://ZackTabudlo.lnk.to/_Tiktok</a><br /><br />-<br />Pano - Zack Tabudlo<br /><br />Verse 1:<br />oh giliw naririnig mo ba <br />ang yong sarili<br />nakakabaliw lumalabas <br />sa yong bibig<br /><br />alam kong uto uto ako<br />alam ko na marupok<br />tao lang din naman <br />kasi ako<br /><br /><br />Pre-chorus: <br />may nararamdaman din ako<br />di kasi manhid na tulad mo<br />alam kong sanay bumitaw<br />ang isang tulad mo<br />lalayo na ba ako<br /><br />Chorus:<br />pano naman ako<br />nahulog na sayo<br />binitawan mo lang ba talaga ako<br /><br />pano naman ako<br />naghintay ng matagal sayo<br />wala lang ba talaga lahat ng yon sayo<br />ano na bang gagawin ko<br /><br />Verse 2:<br />sinasadya mo ba ang lahat<br />o trip mo lang ba ako saktan<br />pagtapos kong ibigay balikat ko<br />pag ika'y umiiyak<br /><br />ano bang tingin mo saakin<br />isa ba akong alipin<br />wala ka bang modo<br />anong ginawa mo<br />nagtiwala naman sayo<br /><br />Pre-chorus:<br />may nararamdaman din ako<br />di kasi manhid na tulad mo<br />alam kong sanay bumitaw<br />ang isang tulad mo<br />lalayo na ba ako<br /><br />Chorus:<br />pano naman ako<br />nahulog na sayo<br />binitawan mo lang ba talaga ako<br /><br />pano naman ako<br />naghintay ng matagal sayo<br />wala lang ba talaga lahat ng yon sayo<br />ano na bang gagawin ko<br /><br />pano naman ako<br />nahulog na sayo<br />binitawan mo lang ba talaga ako<br /><br />pano naman ako<br />naghintay ng matagal sayo<br />wala lang ba talaga lahat ng yon sayo<br />ano na bang gagawin ko<br /><br />#PanoZackTabudlo #PanoLV #ZackTabudlo<br /><br />Music video by Zack Tabudlo performing Pano (Lyric Video). © 2021 Island Records Philippines, a division of MCA Music Inc. A Universal Music Group Company<br /><br /><a rel="nofollow" target="blank" href="http://vevo.ly/iqnocu">http://vevo.ly/iqnocu</a>{% endraw %}
