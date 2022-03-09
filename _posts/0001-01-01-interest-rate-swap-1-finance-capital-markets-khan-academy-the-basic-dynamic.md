@@ -1,0 +1,15 @@
+---
+title: "Interest rate swap 1 | Finance & Capital Markets | Khan Academy"
+image: "https:\/\/i.ytimg.com\/vi\/PLjyj1FJqig\/hqdefault.jpg"
+vid_id: "PLjyj1FJqig"
+categories: "Education"
+tags: ["Interest","Finance","Capital"]
+date: "2022-03-09T03:21:09+03:00"
+vid_date: "2011-09-16T22:40:41Z"
+duration: "PT3M51S"
+viewcount: "400298"
+likeCount: "2077"
+dislikeCount: ""
+channel: "Khan Academy"
+---
+{% raw %}The basic dynamic of an interest rate swap. Created by Sal Khan.<br /><br />Watch the next lesson: <br /><a rel="nofollow" target="blank" href="https://www.khanacademy.org/economics-finance-domain/core-finance/derivative-securities/interest-rate-swaps-tut/v/interest-rate-swap-2?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=financeandcapitalmarkets">https://www.khanacademy.org/economics-finance-domain/core-finance/derivative-securities/interest-rate-swaps-tut/v/interest-rate-swap-2?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=financeandcapitalmarkets</a><br /><br />Missed the previous lesson? Watch here: <br /><a rel="nofollow" target="blank" href="https://www.khanacademy.org/economics-finance-domain/core-finance/derivative-securities/credit-default-swaps-tut/v/financial-weapons-of-mass-destruction?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=financeandcapitalmarkets">https://www.khanacademy.org/economics-finance-domain/core-finance/derivative-securities/credit-default-swaps-tut/v/financial-weapons-of-mass-destruction?utm_source=YT&amp;utm_medium=Desc&amp;utm_campaign=financeandcapitalmarkets</a><br /><br />Finance and capital markets on Khan Academy: Interest is the basis of modern capital markets. Depending on whether you are lending or borrowing, it can be viewed as a return on an asset (lending) or the cost of capital (borrowing). This tutorial gives an introduction to this fundamental concept, including what it means to compound. It also gives a rule of thumb that might make it easy to do some rough interest calculations in your head.<br /><br />About Khan Academy: Khan Academy offers practice exercises, instructional videos, and a personalized learning dashboard that empower learners to study at their own pace in and outside of the classroom. We tackle math, science, computer programming, history, art history, economics, and more. Our math missions guide learners from kindergarten to calculus using state-of-the-art, adaptive technology that identifies strengths and learning gaps. We've also partnered with institutions like NASA, The Museum of Modern Art, The California Academy of Sciences, and MIT to offer specialized content.<br /><br />For free. For everyone. Forever. #YouCanLearnAnything<br /><br />Subscribe to Khan Academy’s Finance and Capital Markets channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCQ1Rt02HirUvBK2D2-ZO_2g?sub_confirmation=1">https://www.youtube.com/channel/UCQ1Rt02HirUvBK2D2-ZO_2g?sub_confirmation=1</a><br />Subscribe to Khan Academy: <a rel="nofollow" target="blank" href="https://www.youtube.com/subscription_center?add_user=khanacademy">https://www.youtube.com/subscription_center?add_user=khanacademy</a>{% endraw %}
