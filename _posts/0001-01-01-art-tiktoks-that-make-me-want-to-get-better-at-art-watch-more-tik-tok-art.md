@@ -1,0 +1,15 @@
+---
+title: "Art TikToks that Make Me Want to Get Better at Art 🎨✨"
+image: "https:\/\/i.ytimg.com\/vi\/KoM6O-VtaI0\/hqdefault.jpg"
+vid_id: "KoM6O-VtaI0"
+categories: "Entertainment"
+tags: ["tiktok art","art tiktoks","tik tok art"]
+date: "2022-03-09T14:26:18+03:00"
+vid_date: "2022-03-08T17:00:22Z"
+duration: "PT17M2S"
+viewcount: "72362"
+likeCount: "3804"
+dislikeCount: ""
+channel: "PinkRamen"
+---
+{% raw %}➡️ Watch more Tik Tok Art here: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=-gbUgE0XLeQ&amp;list=PLLHtPlyiQ8zOV9iIXRpm67Kmjxg1Gkqz0">https://www.youtube.com/watch?v=-gbUgE0XLeQ&amp;list=PLLHtPlyiQ8zOV9iIXRpm67Kmjxg1Gkqz0</a><br /><br />🔔 Subscribe here: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCF-xmzC8NxPjQd8VO8J8lUA?sub_confirmation=1">https://www.youtube.com/channel/UCF-xmzC8NxPjQd8VO8J8lUA?sub_confirmation=1</a><br /><br />💬 Join our community discord: <a rel="nofollow" target="blank" href="https://discord.gg/cp95t3C">https://discord.gg/cp95t3C</a><br /><br />❗Ad revenue goes to artists in the video who claim it! Email me (tiktokcompilation87@gmail.com) if you need help regarding this and also email me if you want any clips removed or recredited!❗<br /><br />🎬 Credits:<br />00:00  goreglitters<br />00:08  _rannita<br />00:19  milliespottery<br />00:34  ceyuba<br />00:48  because42kicks<br />00:57  maisiegriffinn<br />01:02  _drawzy_<br />01:08  visetie<br />01:15  artworkbylaura<br />01:27  theoarrt<br />01:34  heather_ven<br />01:49  stuki_28<br />01:57  tildaarcher<br />02:05  bir.cizer<br />02:15  paperjulia<br />02:27  nartiststudio<br />02:36  agggaris<br />02:46  rrrye<br />03:22  alwayssad6<br />03:34  wilxstielerr<br />03:46  1oser_vi11e<br />03:59  juliuhsart<br />04:10  casadeclay<br />04:23  bx1o2<br />04:37  mintyrosearts<br />04:50  bizzy.draws<br />05:03  ashhdraws<br />05:17  glorysamjollyart<br />05:36  bloodycat228<br />06:06  dayrisfelixx<br />06:27  moonfriedart<br />06:46  wolfybaddd<br />07:05  myart1979<br />07:20  rosebrownlangtry<br />07:40  jessiear888<br />08:04  jellybean.celine<br />08:10  macawroni<br />08:34  naomicreation<br />08:59  abbiekye<br />09:07  feristhii<br />09:31  8_jmal_8<br />09:58  mattchessco<br />10:07  ros_0688<br />10:39  nikkiartsy<br />10:48  j.drwww<br />11:23  ayeee_ruben<br />11:32  merdyy_<br />12:10  abbiekye<br />12:22  artthurrr_<br />12:58  anastasiakhoroshenko<br />13:12  thecrystalreef<br />14:10  tsa_roc<br />14:24  kaelaxx<br />15:23  souptimmy<br />15:48  sparketh<br /><br />Intro: Wunkolo <br />Outro song: elijah who - skateboard p<br /><br />Thank you guys so, so much for all the support on PinkRamen!! I love <br />making these Art Compilations for you and sometimes they even get watched by SSSniperWolf! You guys tell me so often that <br />watching these Art Tiktoks made you pick up drawing again and that truly<br /> warms my heart!! I really thinking Art on Tiktok can connect all of us <br />and that's incredible in my opinion. Keep making Art Tik toks!!<br /><br /> #Art #Drawing #Artist{% endraw %}
