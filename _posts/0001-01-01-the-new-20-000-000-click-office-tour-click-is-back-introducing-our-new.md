@@ -1,0 +1,15 @@
+---
+title: "The NEW $20,000,000 Click OFFICE Tour"
+image: "https:\/\/i.ytimg.com\/vi\/GltqXziLSvc\/hqdefault.jpg"
+vid_id: "GltqXziLSvc"
+categories: "Entertainment"
+tags: ["click","click house","click crew"]
+date: "2022-03-10T08:09:25+03:00"
+vid_date: "2020-02-29T20:00:01Z"
+duration: "PT15M11S"
+viewcount: "3497909"
+likeCount: "139224"
+dislikeCount: ""
+channel: "Click"
+---
+{% raw %}CLICK IS BACK! Introducing our NEW $20,000,000 Gaming office in Sydney! <br />For brand new merchhhhhhh check here: <a rel="nofollow" target="blank" href="https://clickmerch.com">https://clickmerch.com</a><br /><br />And if you're 18, in Sydney and want to come to Fresh's 18th birthday party link is here!!! <a rel="nofollow" target="blank" href="https://m.moshtix.com.au/v2/event/freshs-18th-marquee-sydney/120204?skin=marquee">https://m.moshtix.com.au/v2/event/freshs-18th-marquee-sydney/120204?skin=marquee</a><br /><br /><br /><br />Click Social Links:<br />YouTube | <a rel="nofollow" target="blank" href="http://bit.ly/CLICK-SUBSCRIBE">http://bit.ly/CLICK-SUBSCRIBE</a><br />Double Click YouTube | <a rel="nofollow" target="blank" href="http://bit.ly/DOUBLECLICK">http://bit.ly/DOUBLECLICK</a><br />Tik Tok | <a rel="nofollow" target="blank" href="http://vm.tiktok.com/m68E3N/">http://vm.tiktok.com/m68E3N/</a><br />Twitter | <a rel="nofollow" target="blank" href="https://twitter.com/TheClickCrew">https://twitter.com/TheClickCrew</a><br />Instagram | <a rel="nofollow" target="blank" href="https://instagram.com/click">https://instagram.com/click</a><br /><br />Our Partners:<br />Produced and edited by the Click Management Team | <a rel="nofollow" target="blank" href="http://clickmgmt.com.au/team">http://clickmgmt.com.au/team</a><br />Audio Equipment by Rode Microphones | <a rel="nofollow" target="blank" href="http://www.rode.com/">http://www.rode.com/</a><br /><br />Click Roster:<br />Muselk | <a rel="nofollow" target="blank" href="https://www.youtube.com/user/MrMuselk">https://www.youtube.com/user/MrMuselk</a><br />Loserfruit | <a rel="nofollow" target="blank" href="https://www.youtube.com/user/TheLoserfruit">https://www.youtube.com/user/TheLoserfruit</a><br />Crayator | <a rel="nofollow" target="blank" href="https://www.youtube.com/user/Crayator">https://www.youtube.com/user/Crayator</a><br />BazzaGazza | <a rel="nofollow" target="blank" href="https://www.youtube.com/c/BazzaGazza">https://www.youtube.com/c/BazzaGazza</a><br />LazarBeam | <a rel="nofollow" target="blank" href="https://www.youtube.com/LazarBeam">https://www.youtube.com/LazarBeam</a><br />Tannar | <a rel="nofollow" target="blank" href="https://www.youtube.com/c/tannareacott">https://www.youtube.com/c/tannareacott</a><br />Fresh | <a rel="nofollow" target="blank" href="https://www.youtube.com/mrfreshasian">https://www.youtube.com/mrfreshasian</a><br />Mully | <a rel="nofollow" target="blank" href="https://www.youtube.com/mullyvr">https://www.youtube.com/mullyvr</a> <br /><br />We have opened a PO Box! You can send your letters or packages to all of us here at Click for a chance to be featured in a future video:<br />PO Box 183<br />Pyrmont 2009<br />Australia{% endraw %}
