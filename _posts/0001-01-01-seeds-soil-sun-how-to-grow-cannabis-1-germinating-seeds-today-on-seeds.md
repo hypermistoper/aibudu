@@ -1,0 +1,15 @@
+---
+title: "Seeds, Soil & Sun: How to Grow Cannabis (#1 Germinating Seeds)"
+image: "https:\/\/i.ytimg.com\/vi\/2w7jPGKHAUw\/hqdefault.jpg"
+vid_id: "2w7jPGKHAUw"
+categories: "Howto-Style"
+tags: ["How to","grow cannabis","sprout"]
+date: "2022-03-11T01:04:05+03:00"
+vid_date: "2018-09-05T01:35:30Z"
+duration: "PT6M5S"
+viewcount: "513191"
+likeCount: "7335"
+dislikeCount: ""
+channel: "RuffHouse Studios"
+---
+{% raw %}Today on Seeds, Soil &amp; Sun: How to Grow Cannabis we learn how to germinate seeds, our first step in the journey of growing cannabis. <a rel="nofollow" target="blank" href="https://www.ruffhousestudios.com/">https://www.ruffhousestudios.com/</a> for partner deals and more cannabis culture videos!<br /><br />Affiliate links:<br />Propagation kit (light, heat pad, dome): <a rel="nofollow" target="blank" href="https://amzn.to/2oFxo1O">https://amzn.to/2oFxo1O</a><br />Jiffy Pots 3”: <a rel="nofollow" target="blank" href="https://amzn.to/2PDaG5X">https://amzn.to/2PDaG5X</a><br />Organic potting soil: <a rel="nofollow" target="blank" href="https://amzn.to/2ChXSQu">https://amzn.to/2ChXSQu</a><br /><br />Watch this and hundreds more cannabis culture videos on our site: <a rel="nofollow" target="blank" href="https://www.ruffhousestudios.com/how-to-grow-cannabis-ep-1-germinating-seeds/">https://www.ruffhousestudios.com/how-to-grow-cannabis-ep-1-germinating-seeds/</a><br /><br />Affiliate Deals:<br />- <a rel="nofollow" target="blank" href="https://tcheckme.grsm.io/ruffhouse">https://tcheckme.grsm.io/ruffhouse</a><br />THC potency tester for oils and butter: Save $25 on the Base Unit as well as the add-on pack with the code RUFFHOUSE<br /><br />- <a rel="nofollow" target="blank" href="https://www.theherbalinfuser.com/">https://www.theherbalinfuser.com/</a><br />(Mighty Fast Herbal Infuser): Awesome herbal infuser machine to make infused oils and butter. Save $30 with code RUFFHOUSE<br /><br />- <a rel="nofollow" target="blank" href="https://www.myrosinpress.com/">https://www.myrosinpress.com/</a><br />(My Press)Personal Rosin Pres System. Save $30 and get free shipping with the code: RUFFHOUSE<br /><br />- <a rel="nofollow" target="blank" href="https://waxliquidizer.com/">https://waxliquidizer.com/</a><br />(Wax Liquidizer) Excellent solution for turning your wax, shatter, rosins and more into delicious e-juice. 15% off purchases with the code: RUFFHOUSE<br /><br />- <a rel="nofollow" target="blank" href="https://wizardpuff.com/">https://wizardpuff.com/</a><br />(Wizard Puff) Online head shop with glass pipes, e-nails, dab rigs and more. 15% off purchases with the code: CANNABASICS<br /><br />Social Links:<br />INSTAGRAM: <a rel="nofollow" target="blank" href="http://instagram.com/ruffhousestudios">http://instagram.com/ruffhousestudios</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/RuffHouseStudios">https://www.facebook.com/RuffHouseStudios</a><br />TWITTER: <a rel="nofollow" target="blank" href="http://www.twitter.com/#!/ruffhousestudio">http://www.twitter.com/#!/ruffhousestudio</a>{% endraw %}
