@@ -1,0 +1,15 @@
+---
+title: "Searching A Farm For Colonial And Civil War Relics"
+image: "https:\/\/i.ytimg.com\/vi\/-ZKJdaqDtXk\/hqdefault.jpg"
+vid_id: "-ZKJdaqDtXk"
+categories: "Entertainment"
+tags: ["metal detecting","family friendly","outdoor adventure"]
+date: "2022-03-10T06:00:00+03:00"
+vid_date: "2022-03-08T23:56:47Z"
+duration: "PT20M34S"
+viewcount: "16342"
+likeCount: "2060"
+dislikeCount: ""
+channel: "Aquachigger"
+---
+{% raw %}Today finds Mike and I searching a new permission in the hopes of finding evidence of a major retreat route that the Confederate Army used after their devastating loss at Gettysburg, Pennslyvania in the summer of 1863. The Army passed this farm late at night and after nearly 10 days of fighting. Records indicate that they built a large signal fire at a crossroads to alert the shattered Army to a change in direction for the column to follow. I search for evidence of that fire and any other things of historical interest that might be found.<br /><br />About Aquachigger:<br />I enjoy metal detecting for historical items like gold coins, relics, silver coins, and other buried treasures. I also metal detect for gold and silver nuggets and even meteorites. I like to make videos that promote my choice of lifestyle that includes outdoor adventure, <br />metal detecting, yapping, searching for river treasure, SCUBA diving, exploring abandoned places, hiking, caving, caring for animals and pets, and observing the things outdoors that often go unnoticed by most people who are not familiar with outdoor adventures and nature. I keep my Youtube &quot;Aquachigger&quot; channel family-friendly and hope you subscribe if you like my style. <br /><br />BTW, you can also catch me here, <a rel="nofollow" target="blank" href="https://www.facebook.com/chiggsarmy/">https://www.facebook.com/chiggsarmy/</a>  ,but I may get a little edgier there. FB isn't a place for kids anyway...lol.<br /><br />Affiliate links to see and purchase the gear I use:<br />General Gear:                    <a rel="nofollow" target="blank" href="http://bit.ly/MetalDetectorsAndMOAR">http://bit.ly/MetalDetectorsAndMOAR</a><br />T-Shirts:                              <a rel="nofollow" target="blank" href="https://www.bonfire.com/store/aquachigger/">https://www.bonfire.com/store/aquachigger/</a><br />Garrett Metal Detectors: <a rel="nofollow" target="blank" href="https://goo.gl/nbzDYH">https://goo.gl/nbzDYH</a><br /><br />Follow the ChiggsArmy!<br />My Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/aquachigger">https://www.patreon.com/aquachigger</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/aquachigger/">https://www.instagram.com/aquachigger/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/chiggsarmy/">https://www.facebook.com/chiggsarmy/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/BeauOuimette">https://twitter.com/BeauOuimette</a><br /><br />I hope to see you guys out there!<br />#chiggsarmy #aquachigger{% endraw %}
