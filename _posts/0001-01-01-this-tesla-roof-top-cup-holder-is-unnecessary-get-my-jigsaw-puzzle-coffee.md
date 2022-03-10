@@ -1,0 +1,15 @@
+---
+title: "This Tesla Roof-Top Cup Holder is Unnecessary!"
+image: "https:\/\/i.ytimg.com\/vi\/Z40tef9YVgs\/hqdefault.jpg"
+vid_id: "Z40tef9YVgs"
+categories: "Entertainment"
+tags: ["Unnecessary Inventions","Tesla","Elon Musk"]
+date: "2022-03-10T09:59:22+03:00"
+vid_date: "2019-10-19T21:12:06Z"
+duration: "PT1M39S"
+viewcount: "19799"
+likeCount: "430"
+dislikeCount: ""
+channel: "Unnecessary Inventions"
+---
+{% raw %}Get my Jigsaw Puzzle Coffee Table now on Kickstarter: <a rel="nofollow" target="blank" href="https://www.kickstarter.com/projects/unnecessaryinvent/the-jigsaw-puzzle-coffee-table?ref=8rj1bu">https://www.kickstarter.com/projects/unnecessaryinvent/the-jigsaw-puzzle-coffee-table?ref=8rj1bu</a><br /><br />Shop the Store: <a rel="nofollow" target="blank" href="https://www.unnecessaryinventions.com/shop/">https://www.unnecessaryinventions.com/shop/</a><br />Browse all my Inventions: <a rel="nofollow" target="blank" href="https://www.instagram.com/unnecessaryinventions/">https://www.instagram.com/unnecessaryinventions/</a><br /><br />CarTop CupHolder™️ Did you leave your coffee on the roof of your Car again?! Well never again worry if your favorite cup of joe is going to make it to its destination. Slap on our revolutionary cup holder with extreme suction to your car roof. Head on your way with the piece of mind you deserve. <br /><br />🙃Where You Can Find Me 🙃<br />🚨Subscribe | <a rel="nofollow" target="blank" href="http://bit.ly/UnnecessarySubscribe">http://bit.ly/UnnecessarySubscribe</a><br />🛒Shop | <a rel="nofollow" target="blank" href="https://www.unnecessaryinventions.com/shop/">https://www.unnecessaryinventions.com/shop/</a><br />🤳🏻Instagram | <a rel="nofollow" target="blank" href="https://www.instagram.com/unnecessaryinventions/">https://www.instagram.com/unnecessaryinventions/</a><br />💡Invention Portfolio | <a rel="nofollow" target="blank" href="https://www.unnecessaryinventions.com/">https://www.unnecessaryinventions.com/</a><br />👤Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/unnecessaryinventions/">https://www.facebook.com/unnecessaryinventions/</a><br />👽Subreddit | <a rel="nofollow" target="blank" href="https://www.reddit.com/r/UnnecessaryInventions/">https://www.reddit.com/r/UnnecessaryInventions/</a><br />🐦Twitter | <a rel="nofollow" target="blank" href="https://www.twitter.com/mattyxb">https://www.twitter.com/mattyxb</a><br />💃🏻TikTok | <a rel="nofollow" target="blank" href="https://www.tiktok.com/@unnecessaryinventions">https://www.tiktok.com/@unnecessaryinventions</a><br /><br />💰Get up to $500 off a GLOWFORGE Laser Cutter💰<br /><a rel="nofollow" target="blank" href="https://www.glowforge.com/unnecessaryinventions">https://www.glowforge.com/unnecessaryinventions</a><br /><br /><br />_____________________<br />Unnecessary Inventions is the brainchild of product designer Matty Benedetto, where he designs &amp; builds 2-4 brand new products each week that solve problems that don't exist.{% endraw %}
