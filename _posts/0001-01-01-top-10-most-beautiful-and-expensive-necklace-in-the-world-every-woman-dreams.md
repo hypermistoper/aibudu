@@ -1,0 +1,15 @@
+---
+title: "Top 10 | Most Beautiful and Expensive Necklace in the World"
+image: "https:\/\/i.ytimg.com\/vi\/AQ7pLOYBqb8\/hqdefault.jpg"
+vid_id: "AQ7pLOYBqb8"
+categories: "Education"
+tags: ["Tiffany yellow Diamond Necklace - $ 30 Million","MARIE ANTOINETTE PEARL NECKLACE - $38 Million","Patiala Necklace - $50 Million"]
+date: "2022-03-11T13:10:18+03:00"
+vid_date: "2022-03-07T17:21:35Z"
+duration: "PT18M9S"
+viewcount: "15349"
+likeCount: "423"
+dislikeCount: ""
+channel: "Andrew Pidor"
+---
+{% raw %}Every woman dreams of wearing the most expensive necklaces in the world. However, the sad reality is that due to different classes that have been made in society, it is not possible for every woman to own expensive necklaces. Usually, the only women who wear expensive necklaces belong to the upper class. Those in the lower middle class buy cheap alternatives. <br /><br />A wardrobe is not complete without a costume jewelry. It's a must have addition that adds flare and flamboyance to any usual attire. Most women will feel naked if they are not wearing some jewellery. A fancy piece of jewellery around the neck can add to a woman's beauty, express her good taste, and, if exquisite enough, her wealth. <br /><br />The most expensive necklaces in the world are considered the most fashionable jewellery items, usually worn by those in the upper class. Their value stems from their good quality, the rarity and weight of their stones, and their precious metals. Here is a list of the costly necklaces in 2021.<br /><br />Top 10 <br /><br />10. Napoleon Diamond Necklace - $20 Million<br />9.   Hutton-Mdivani necklace - $27 Million <br />8.   Tiffany yellow Diamond Necklace - $ 30 Million <br />7.   DE GRISOGONO Creation I - $33.7 Million<br />6.   MARIE ANTOINETTE PEARL NECKLACE - $38 Million<br />5.   Patiala Necklace - $50 Million<br />4.   The Coronation Necklace - $88 Million<br />3.   Jeanne Toussaint Necklace - $150 Million<br />2.  Heritage in Bloom Necklace - $200 Million<br />1.  Evalyn Walsh Mclean’s Diamond Necklace - $350 Million<br /><br />Sources;<br /><br /><a rel="nofollow" target="blank" href="https://www.wikipedia.org">https://www.wikipedia.org</a><br /><a rel="nofollow" target="blank" href="https://www.thecourtjeweller.com">https://www.thecourtjeweller.com</a><br /><a rel="nofollow" target="blank" href="https://www.katerinaperez.com">https://www.katerinaperez.com</a><br /><a rel="nofollow" target="blank" href="https://www.veranda.com">https://www.veranda.com</a><br /><a rel="nofollow" target="blank" href="https://financesonline.com">https://financesonline.com</a><br /><a rel="nofollow" target="blank" href="https://successstory.com">https://successstory.com</a><br /><a rel="nofollow" target="blank" href="http://www.cartier.com">http://www.cartier.com</a><br /><a rel="nofollow" target="blank" href="http://www.tiffany.com">http://www.tiffany.com</a><br /><a rel="nofollow" target="blank" href="https://thegemstandard.wordpress.com">https://thegemstandard.wordpress.com</a><br /><br />#AndrewPidor{% endraw %}
