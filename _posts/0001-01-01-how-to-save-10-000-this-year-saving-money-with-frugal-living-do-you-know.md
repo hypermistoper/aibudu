@@ -1,0 +1,15 @@
+---
+title: "HOW TO SAVE $10,000 THIS YEAR\/Saving Money with Frugal Living"
+image: "https:\/\/i.ytimg.com\/vi\/-Xn1RMkndhE\/hqdefault.jpg"
+vid_id: "-Xn1RMkndhE"
+categories: "Howto-Style"
+tags: ["how to save 10000 dollars in a year","how to save 10000 dollars this year","how to save money fast"]
+date: "2022-03-11T18:42:40+03:00"
+vid_date: "2022-03-11T11:30:10Z"
+duration: "PT14M25S"
+viewcount: "1659"
+likeCount: "393"
+dislikeCount: ""
+channel: "Kate Kaden- Making Frugal Living Fun!"
+---
+{% raw %}Do you know what it takes to blow $10,000 in a year? …$27.40 a day in miscellaneous spending! I have a minimalist approach to budgeting. I only have 4 categories (household, savings, giving and lifetstyle.) Let's figure out where we can squeak out $27.40 and save $10,000 this year!<br /><br />Get Cozy in Kate Kaden Merch: Grab a hoodie or mug to support the channel and rock your KSQUAD vibe!  <a rel="nofollow" target="blank" href="https://teespring.com/stores/kate-kaden-ksquad-gear">https://teespring.com/stores/kate-kaden-ksquad-gear</a><br /><br />Become a member of the channel! (Thank you for your support!) <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UClhu-dkUv9icumrazpEOBkg">https://www.youtube.com/channel/UClhu-dkUv9icumrazpEOBkg</a><br /><br />WATCH NEXT: <br />How to STOP Living Paycheck to Paycheck On a Single Income (BUDGET BUFFER)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=AgBh7tXyslA">https://www.youtube.com/watch?v=AgBh7tXyslA</a><br /><br />My email addy is: katekadenchannel@gmail.com (or for those of you that ask to buy me a coffee, this is also my Paypal. Thank you!)<br /><br />FREE MONEY FOR YOU <br />(and thank you to everyone who has used my codes!)<br /><br />My M1 Finance Code-Get $50 when you fund your account for the first time!<br /><a rel="nofollow" target="blank" href="https://m1.finance/U_tcQe6wCrog">https://m1.finance/U_tcQe6wCrog</a><br /><br />RAKUTEN- Get free money and hook your friend up (me) up at the same time:) :)<br />Please USE MY CODE for Rakuten to get CASH BACK on your essential purchases.<br /><a rel="nofollow" target="blank" href="https://www.rakuten.com/r/KATEKA350">https://www.rakuten.com/r/KATEKA350</a><br /><br />MY FETCH REWARDS CODE (MY FAV GROCERY APP RIGHT NOW!)<br />WRDGU (copy and paste this as your referral to get extra points when you sign up!)<br />-thank you!   www.fetchrewards.com<br /><br />HONEY-Get the BEST deals online<br />USE Kate's CODE: joinhoney.com/ref/hthn1so<br /><br />Join the KSquad Email List for updates and more!<br /><a rel="nofollow" target="blank" href="https://mailchi.mp/cf53048a6b44/katekaden">https://mailchi.mp/cf53048a6b44/katekaden</a><br /><br />Want to send me snail mail?<br />My PO Box:<br />Kate Kaden<br />PO Box 1122<br />Biddeford, ME 04005<br /><br />*Links may be affiliates, which support my business at no additional cost to you. Thanks so much!*<br /><br />#savemoney #budgeting #katekaden{% endraw %}
