@@ -1,0 +1,15 @@
+---
+title: "Putin 'Rise In Energy Prices In Europe, US Is Associated With Their Economic Miscalculations'"
+image: "https:\/\/i.ytimg.com\/vi\/YfUn79m5gEI\/hqdefault.jpg"
+vid_id: "YfUn79m5gEI"
+categories: "News-Politics"
+tags: ["Putin","'Rise","Energy"]
+date: "2022-03-11T04:49:31+03:00"
+vid_date: "2022-03-10T21:52:03Z"
+duration: "PT2M57S"
+viewcount: "303"
+likeCount: "64"
+dislikeCount: ""
+channel: "The Kremlin Stories"
+---
+{% raw %}With regard to the countries that are taking hostile steps towards our country and our economy, we are well aware that they are calling on their citizens to tighten their belts, to dress warmer and are pointing to the sanctions that they are imposing on us as the reason for the deterioration of the situation in their respective countries. This is very strange, especially since we are meeting our commitments,  President Vladimir Putin said on Thursday.<br />Once again, I want to emphasise that we are respecting all our commitments regarding energy supplies. Deputy Prime Minister [Alexander] Novak talked about this a couple of days ago. Everything that we are supposed to supply, we are supplying to our core consumers in Europe and other regions of the world in full; even the Ukrainian gas transit system is filled to 100 percent under our contracts. This may be surprising, but it is true. We are doing all this. Prices are increasing in these countries, but not because of us. This is the result of their own miscalculations, so they cannot blame us for that.<br />The same goes for higher oil and petroleum product prices in the United States. They announced that they were shutting down imports of Russian oil to the US market. Prices there are high, and inflation rates are unprecedentedly high, too, probably an all-time high. Still, they are trying to blame us for the consequences of their own mistakes.<br />This is obvious to the analysts, because Russian oil distribution to the US does not exceed 3 percent. This is a negligible amount, but their prices are up. We have absolutely nothing to do with that. And even the ban on Russian oil imports has absolutely nothing to do with it. They are simply hiding behind these decisions in order to once again deceive their own people. They are already trying to reach agreements with countries they imposed illegitimate restrictions on at some point before. They are now ready to make peace with Iran and sign all the documents right away, and with Venezuela as well. They went to Venezuela to have talks. But of course, they should not have imposed these illegitimate sanctions in the first place.<br />The same will happen in relations with our country, I have no doubt. However, along with our partners – the ones who do not recognise these illegal actions – we will certainly find a solution to all the problems they are trying to create for us.<br />#thekremlinstories #vladimirputin #riseenergyprices<br />***<br />SUBSCRIBE TO OUR CHANNEL <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheKremlinStories">https://www.youtube.com/c/TheKremlinStories</a>{% endraw %}
