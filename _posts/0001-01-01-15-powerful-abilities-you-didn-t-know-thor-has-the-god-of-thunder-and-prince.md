@@ -1,0 +1,15 @@
+---
+title: "15 Powerful Abilities You Didn't Know Thor Has"
+image: "https:\/\/i.ytimg.com\/vi\/peuvMWpqsbc\/hqdefault.jpg"
+vid_id: "peuvMWpqsbc"
+categories: "Film-Animation"
+tags: ["cbr","thor abilities","thor facts"]
+date: "2022-03-11T18:10:55+03:00"
+vid_date: "2022-03-11T14:00:33Z"
+duration: "PT15M13S"
+viewcount: "2824"
+likeCount: "368"
+dislikeCount: ""
+channel: "CBR"
+---
+{% raw %}The God of Thunder and Prince of Asgard may just seem like a big oaf at times, but the truth is he is one of the most powerful heroes ever to avenge. We have seen him display an incredible amount of powers in the MCU, and used those powers to defeat aliens, robots and adopted brothers alike. We know about the lightning , but the young prince has a ton of powers you may not have even been aware of. Let’s check out some of the tricks this Asgardian God has up his sleeve - you know when he decides to wear sleeves - right now!<br /><br />Some heroes are known for specific powers. Each of the Eternals for example. Druig has mind control. Makkari and her superspeed. Phastos has a working relationship with technology. Then there are heroes like the God of Thunder who are just known as a great strong hero who can do quite a bit. He has super speed and strength and stamina. He can travel great distances and there may be more upstairs in this gladiator’s head than you had previously realized. Which of this mighty hero’s powers do you think are the most powerful? And which one’s were you most surprised to find out he possessed? Be sure to like, subscribe and leave a comment. Otherwise Volstagg will just keep eating. He doesn’t even need to but he keeps going. I have no more food in my house. He’s now broken into my neighbor’s home okay I have to go but please leave a thumbs up!<br /><br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/Subscribe-to-CBR">http://bit.ly/Subscribe-to-CBR</a> <br /><br />Chapters:<br />0:00 Intro<br />0:38 Super Speed<br />1:45 Teleportation<br />2:50 God Blast<br />4:14 Superhuman Stamina<br />5:10 Self Sustenance<br />6:14 Transformation<br />7:33 All-Tongue<br />8:25 Invulnerability<br />9:27 Superhuman Senses<br />10:06 Superhuman Healing<br />10:57 Earth Control<br />11:48 Mind Powers<br />12:36 Mind Resistance<br />13:11 Master Combatant<br />13:55 Warrior’s Madness<br />14:52 Outro<br /><br />Our Social Media:<br /><a rel="nofollow" target="blank" href="https://twitter.com/CBR">https://twitter.com/CBR</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/ComicBookResources">https://www.facebook.com/ComicBookResources</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@cbrgeeks">https://www.tiktok.com/@cbrgeeks</a><br /><a rel="nofollow" target="blank" href="https://www.linkedin.com/company/comic-book-resources/">https://www.linkedin.com/company/comic-book-resources/</a><br /><br /><br />Our Website<br /><a rel="nofollow" target="blank" href="https://www.cbr.com">https://www.cbr.com</a><br /><br />Written by: Nick Twohig<br />Narrated by: Nick Twohig<br />Edited by:MA<br /><br />For copyright matters please contact us at: legal@valnetinc.com{% endraw %}
