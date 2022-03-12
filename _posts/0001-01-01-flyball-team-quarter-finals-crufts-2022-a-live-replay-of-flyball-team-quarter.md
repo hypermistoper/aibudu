@@ -1,0 +1,15 @@
+---
+title: "Flyball Team Quarter-Finals | Crufts 2022"
+image: "https:\/\/i.ytimg.com\/vi\/bv9ngxloT84\/hqdefault.jpg"
+vid_id: "bv9ngxloT84"
+categories: "Pets-Animals"
+tags: ["Crufts","Crufts 2022","Crufts 2022 Live"]
+date: "2022-03-12T19:20:08+03:00"
+vid_date: "2022-03-11T16:42:46Z"
+duration: "PT40M1S"
+viewcount: "2035"
+likeCount: "53"
+dislikeCount: ""
+channel: "Crufts"
+---
+{% raw %}A live replay of Flyball Team Quarter-Finals from Day 2 of Crufts 2022. <br /><br />Subscribe to Crufts: <a rel="nofollow" target="blank" href="http://bit.ly/CruftsSub">http://bit.ly/CruftsSub</a><br /><br />------------------------------------------------------------------------------------<br /><br />WATCH MORE CRUFTS: <br /><br />• Flyball at Crufts 2022: <br /><br />• Highlights from Crufts 2022: <br /><br />• The Fastest Flyball Dogs Ever: <a rel="nofollow" target="blank" href="http://bit.ly/FastestFlyballDogs">http://bit.ly/FastestFlyballDogs</a><br /><br />• Day 2 at Crufts 2022: <br /><br />------------------------------------------------------------------------------------<br /><br />Connect with Crufts online:<br />Follow us on Tiktok : <a rel="nofollow" target="blank" href="https://www.tiktok.com/@crufts">https://www.tiktok.com/@crufts</a><br />Follow us on Twitter: @Crufts – <a rel="nofollow" target="blank" href="https://www.twitter.com/crufts">https://www.twitter.com/crufts</a><br />Follow us on Instagram: @Crufts - <a rel="nofollow" target="blank" href="https://www.instagram.com/crufts">https://www.instagram.com/crufts</a><br />Like us on Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/Crufts">http://www.facebook.com/Crufts</a><br />Visit the Official Crufts Website: <a rel="nofollow" target="blank" href="http://www.crufts.org.uk/">http://www.crufts.org.uk/</a><br /> <br />Connect with The Kennel Club online:<br />Follow us on Tiktok : <a rel="nofollow" target="blank" href="https://www.tiktok.com/@thekennelclub">https://www.tiktok.com/@thekennelclub</a><br />Follow us on Twitter: @TheKennelClubUK – <a rel="nofollow" target="blank" href="https://www.twitter.com/thekennelclubuk">https://www.twitter.com/thekennelclubuk</a>  <br />Follow us on Instagram: @TheKennelClubUK - <a rel="nofollow" target="blank" href="https://www.instagram.com/thekennelclubuk">https://www.instagram.com/thekennelclubuk</a><br />Like us on Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/thekennelclubuk">http://www.facebook.com/thekennelclubuk</a><br />Visit the Official Kennel Club Website: <a rel="nofollow" target="blank" href="http://www.thekennelclub.org.uk">http://www.thekennelclub.org.uk</a><br /><br />#Crufts #Crufts2022 #Dogs<br /><br />All content © Crufts 2022 and is freely available for private non-commercial viewing worldwide. Reproduction of any content requires the prior express consent of The Kennel Club. For terms of use, click here: <a rel="nofollow" target="blank" href="http://www.crufts.org.uk/content/notice-and-take-down-policy/">http://www.crufts.org.uk/content/notice-and-take-down-policy/</a>{% endraw %}
