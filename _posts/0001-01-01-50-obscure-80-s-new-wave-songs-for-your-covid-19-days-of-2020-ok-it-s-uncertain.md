@@ -1,0 +1,15 @@
+---
+title: "50 Obscure 80's New Wave Songs - For Your COVID-19 Days of 2020"
+image: "https:\/\/i.ytimg.com\/vi\/GaLWEpRwoas\/hqdefault.jpg"
+vid_id: "GaLWEpRwoas"
+categories: "Music"
+tags: ["80's","new wave","synth"]
+date: "2022-03-12T06:10:02+03:00"
+vid_date: "2020-04-02T00:54:01Z"
+duration: "PT3H23M6S"
+viewcount: "198970"
+likeCount: "4459"
+dislikeCount: ""
+channel: "80zforever"
+---
+{% raw %}Ok, it's uncertain times, some of us have lost our jobs, some are luckier to still have a job, either working from home or still heading to an actual workplace. Can't get together with friends and family, no dinning out, no sports. We are all in this together and we will surely pull through. Given all that's going on, here's some music, exactly 3.5 hour of 80's lesser known new wave songs to listen to, to kills the loneliness of long days of social distancing. Song list below by popu;ar demand:<br /><br />00:00 The Press Club - I'm Watching You<br />00:03:37 Tools Of Romance - I Won't Wait<br />00:08:12 No I.D. - Sticky Guilt<br />00:12:07 Primary Colours – Paint Love Blue<br />00:15:59 Paradox - One Look<br />00:20:04 Mood Section - Just Keep On<br />00:24:06 Afterwords - Forever<br />00:27:27 The Expression - Total eclipse<br />00:32:44 Private Sector - Drowned<br />00:37:12 Degrees Of Freedom - In This Room<br />00:40:43 Darkroom-c - Close Your Eyes<br />00:45:03 Immunity - Round Midnight<br />00:49:11 Counterfeit - The Good Samaritan<br />00:53:13 Absolute 9 - Love And Work<br />00:56:59 The Mood - Don't Let Me Down<br />01:01:12 Partners In Crime - Tell Me Now<br />01:04:57 Sons And Lovers - Every Indication<br />01:10:25 Camera - Replicant<br />01:12:51 Minks – Surprised<br />01:16:36 T-4-2 - Paper Thin<br />01:20:50 Times - Take Me Away<br />01:24:00 Face Of Concern -  Brighter Days<br />01:27:08 Davy &amp; Z-Vue - Is This Love<br />01:30:43 Glorious Strangers – Modern Life<br />01:34:29 Erth - The View<br />01:38:33 The Fans - Love Me Like a Stranger<br />01:42:35 Panoramas - Amanda<br />01:46:17 Next Exit - Caution, Contents Under Pressure<br />01:49:56 National Pastime – It's All A Game<br />01:53:53 Morning Star - Connection<br />01:57:57 Edge Of The Wedge - Animated Lover<br />02:01:33 Secret Steps - Confidential<br />02:06:03 Bangah - Every Wave<br />02:11:16 Perspex Spangles– The Great Winter<br />02:15:26 Neurons - Midnight Meetings<br />02:19:48 Native Alien - Ways Of A Man<br />02:23:55 Cook Da Books – Golden Age<br />02:29:42 Comateens - Don't Come Back<br />02:32:40 Clancy Carroll - Hollow Man<br />02:36:45 Computer Sex - Be free <br />02:42:12 The Wonders Of Science - Big Picture<br />02:46:36 Alastair Riddell  - Zero<br />02:49:55 Sons Of Heroes - Strange Eyes<br />02:54:24 Sensible Shoes - Game<br />02:58:08 Industry - State Of The Nation<br />03:02:36 Nick Haward - Grey Day<br />03:06:05 Velvascurge - ...In The Numbers<br />03:10:27 All Fall Down - Arecibo<br />03:13:51 Living Links - Gathering The Forces<br />03:18:35 Sight Unseen - Is This Heaven{% endraw %}
