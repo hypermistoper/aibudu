@@ -1,0 +1,15 @@
+---
+title: "How To RADIATE Feminine Energy *life changing*"
+image: "https:\/\/i.ytimg.com\/vi\/U_QDGGlQkWE\/hqdefault.jpg"
+vid_id: "U_QDGGlQkWE"
+categories: "Howto-Style"
+tags: ["femininity 101","how to be feminine","how to be elegant"]
+date: "2022-03-14T00:33:48+03:00"
+vid_date: "2021-11-20T19:03:28Z"
+duration: "PT15M41S"
+viewcount: "81434"
+likeCount: "5364"
+dislikeCount: ""
+channel: "Jasmyne Theodora"
+---
+{% raw %}#feminineenergy <br /><br />Hi, my name is Jasmyne, and I love being a woman. I think every woman should love being a woman. We’ve been blessed with an unbridled innate feminine essence that allows us to be profoundly intuitive, warm, compassionate, soft, and magnetic. I feel that as women, we do a disservice to ourselves and we lose power when we try to imitate men and try to do only as men do because as feminine beings, we pull so much of our purpose from our feminine activity.<br />The fact that the sexes have opposite yet complementary energy is a beautiful thing and men and women interact the best together when they each practice their natural, viscous masculine and feminine energy. I have faith that the two polar energies are an intentional creation. <br /><br />Unfortunately, we women haven't been educated about what it means to be a woman. How to conduct yourself as a woman. How to take advantage of our innate feminine gifts - I went most of my life without even hearing the word &quot;femininity&quot; and therefore, I didn't know really what it means to be a woman - how women are different from men and vice versa. My goal is to help educate women about femininity so we can take advantage of our divinely-given feminine gifts &amp; inclinations so that we can lead joyous, fulfilling lives.<br /><br />Timestamps/chapters:<br />I. Intro 0:00-1:47<br />II. What is femininity? 1:48-3:49<br />III. Receptivity  3:50-6:07<br />IV. Open, positive energy 6:08-7:46<br />V. Boundaries 7:47-9:09<br />VI. Flexibility 9:10-10:05<br />VII. Re-sensitize yourself 10:06-11:03<br />VIII. Don't gossip 11:04-11:20<br />IX. Being 11:21-11:59<br />X. Gentleness 12:00-13:37<br />XI. Toxic people 13:38-14:29<br />XII. Outro 14:30-15:41<br /><br />Instagram: @jasmynetheodora <br /><br />---------------------------------------------------------------------------------------------------------------------------------------------------------<br /><br />Hello everyone, welcome to my channel! I'm Jasmyne Theodora, I'm an Orthodox Christian and I make content about the art of femininity (from a virtuous, Godly perspective), lost female education, and traditionalism. Please do subscribe if you enjoy my content and thank you so much for watching. <br /><br />FAQ: <br />Height - 5'9&quot;<br />Race - Biracial (black &amp; white)<br />Religion - Orthodox Christian <br />Location - Pacific Northwest <br />Favorite book about femininity - &quot;Feminine Lost&quot; by Jennifer Granger <br />Some favorite Bible verses - Proverbs 31, 1 Peter 3:3-4, 1 Timothy 3:11 <br /><br />Business inquiries: please email me at jasmynetheodora@gmail.com.<br /><br />-xo.{% endraw %}
