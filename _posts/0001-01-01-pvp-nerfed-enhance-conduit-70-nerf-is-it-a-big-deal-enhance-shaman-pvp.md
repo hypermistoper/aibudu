@@ -1,0 +1,15 @@
+---
+title: "😭PvP NERFED?! Enhance Conduit 70% Nerf | Is it a big deal? Enhance Shaman PvP"
+image: "https:\/\/i.ytimg.com\/vi\/OwAvWhUIHfA\/hqdefault.jpg"
+vid_id: "OwAvWhUIHfA"
+categories: "Gaming"
+tags: ["tiqqle","enhancement shaman shadowlands","shadowlands enhance shaman"]
+date: "2022-03-13T05:42:26+03:00"
+vid_date: "2022-03-13T01:45:00Z"
+duration: "PT12M35S"
+viewcount: "162"
+likeCount: "8"
+dislikeCount: ""
+channel: "Tiqqle"
+---
+{% raw %}Is the Healing Surge nerf a big deal? YOU TELL ME focused Lightning conduit buff for 9.2 was good, but what do you think about this change?<br />💧I drink G FUEL Energy use code &quot;TIQQLE&quot; for 10% to 30% OFF YOUR ORDER! : <a rel="nofollow" target="blank" href="https://gfuel.ly/3etjQzq">https://gfuel.ly/3etjQzq</a> <br />🎬TWITCH FOLLOW ME 9PM EST = <a rel="nofollow" target="blank" href="https://www.twitch.tv/tiqqlethis">https://www.twitch.tv/tiqqlethis</a><br /><br />WoWhead link : <a rel="nofollow" target="blank" href="https://www.wowhead.com/blue-tracker/topic/eu/fire-mage-and-enhancement-shaman-pvp-tuning-16-march-345992">https://www.wowhead.com/blue-tracker/topic/eu/fire-mage-and-enhancement-shaman-pvp-tuning-16-march-345992</a><br /><br />Tiqqle UI/Addon Video: <a rel="nofollow" target="blank" href="https://youtu.be/z2Cs7AcJxbE">https://youtu.be/z2Cs7AcJxbE</a><br />⚡Elemental Shaman Keybinds: <a rel="nofollow" target="blank" href="https://youtu.be/bSNT2grr5Do">https://youtu.be/bSNT2grr5Do</a><br />⚡Elemental Shaman Shadowlands Guide: <a rel="nofollow" target="blank" href="https://youtu.be/tbGDLwC5-kk">https://youtu.be/tbGDLwC5-kk</a><br />⚡Elemental Shaman in BGs: <a rel="nofollow" target="blank" href="https://youtu.be/VZRrBn3NJdQ">https://youtu.be/VZRrBn3NJdQ</a> <br />🔥Enhance Keybinds : <a rel="nofollow" target="blank" href="https://youtu.be/oOJFlBBThnI">https://youtu.be/oOJFlBBThnI</a><br />🔥Ehance Shadowlands Guide : <a rel="nofollow" target="blank" href="https://youtu.be/_8DJ_OC8ZXg">https://youtu.be/_8DJ_OC8ZXg</a><br />🔥Enhance Legendaries: <a rel="nofollow" target="blank" href="https://youtu.be/X9wD7N3dUQ0">https://youtu.be/X9wD7N3dUQ0</a><br /><br />🐦TWITTER @ ME : <a rel="nofollow" target="blank" href="https://twitter.com/tiqqlethis">https://twitter.com/tiqqlethis</a><br />🔥Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/bePatron?c=1188608">https://www.patreon.com/bePatron?c=1188608</a><br />DISCORD = <a rel="nofollow" target="blank" href="https://discord.gg/NTgqAcd">https://discord.gg/NTgqAcd</a><br /><br />If you enjoy please SUBSCRIBE, and LIKE!!<br /><br />MORE VIDEOS!: <br />🔥TIER LIST VIDEO: <a rel="nofollow" target="blank" href="https://youtu.be/YovQlN3U3nI">https://youtu.be/YovQlN3U3nI</a><br />🔥Absterge Resto Shaman Interview: <a rel="nofollow" target="blank" href="https://youtu.be/dMT7e3UUgQw">https://youtu.be/dMT7e3UUgQw</a><br />🔥BEST Tiqqle Twitch Clips: <a rel="nofollow" target="blank" href="https://youtu.be/z5YSpQpl6KY">https://youtu.be/z5YSpQpl6KY</a><br /><br />DAMAGE TEXT ADDON = NAMEPLATE SCROLLING COMBAT TEXT<br /><br />#Shadowlands #Enhance #Tiqqle{% endraw %}
