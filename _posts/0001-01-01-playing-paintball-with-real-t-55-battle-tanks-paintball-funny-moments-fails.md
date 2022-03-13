@@ -1,0 +1,15 @@
+---
+title: "Playing Paintball with REAL T-55 BATTLE TANKS 😲► PAINTBALL FUNNY MOMENTS\/FAILS & VLOG"
+image: "https:\/\/i.ytimg.com\/vi\/vhzTbmQ3yGc\/hqdefault.jpg"
+vid_id: "vhzTbmQ3yGc"
+categories: "Gaming"
+tags: ["paintball","paintball funny moments","funny"]
+date: "2022-03-14T00:44:19+03:00"
+vid_date: "2022-03-13T18:30:04Z"
+duration: "PT18M13S"
+viewcount: "4822"
+likeCount: "577"
+dislikeCount: ""
+channel: "Barker"
+---
+{% raw %}Not everyday you get to play paintball alongside a T-55 battle Tank but damn it certainly was an incredible experience to say the least...<br /><br />If you want to know more about this field and the epic games they run then head over to their website here: <a rel="nofollow" target="blank" href="https://battleground.de/">https://battleground.de/</a><br /><br />Also another thank you to Ray @ Ray's World for some of the amazing photos and videos used in the video! You can find him at  @Battleground   YouTube channel <br /><br />📱  Social Media:<br />🎬 Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/barkerpb">https://www.twitch.tv/barkerpb</a><br />📘  Facebook:  <a rel="nofollow" target="blank" href="https://www.facebook.com/barkerpaintball/">https://www.facebook.com/barkerpaintball/</a><br />🐤 Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/BarkerPaintball">https://twitter.com/BarkerPaintball</a> <br />📸 Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/barkerpaintball/">https://www.instagram.com/barkerpaintball/</a><br />🎼 TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@barkerpb">https://www.tiktok.com/@barkerpb</a><br /><br />💷 Support the channel:<br />👛 Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/Barkerpb">https://www.patreon.com/Barkerpb</a><br />💸  Youtube Members: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCAH3oY4Gz0BDwmrkoiIUefA/join">https://www.youtube.com/channel/UCAH3oY4Gz0BDwmrkoiIUefA/join</a><br /><br />🎁Merch:<br />📛 Patches: <a rel="nofollow" target="blank" href="https://www.barkerpb.co.uk">https://www.barkerpb.co.uk</a><br /><br />📞 Let's Chat:<br />🔊 Discord: <a rel="nofollow" target="blank" href="https://discordapp.com/invite/evSUrqp">https://discordapp.com/invite/evSUrqp</a><br /><br />Wanna play at the same events as me? Then check out:<br />🌎 OMG events: <a rel="nofollow" target="blank" href="https://www.facebook.com/OnlyMagfedGames">https://www.facebook.com/OnlyMagfedGames</a><br /><br />Funkorama by Kevin MacLeod is licensed under a Creative Commons Attribution licence (<a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/)">https://creativecommons.org/licenses/by/4.0/)</a><br />Source: <a rel="nofollow" target="blank" href="http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1100474">http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1100474</a><br />Artist: <a rel="nofollow" target="blank" href="http://incompetech.com/">http://incompetech.com/</a><br /><br />#paintball #airsoft #paintballshenanigans{% endraw %}
