@@ -1,0 +1,15 @@
+---
+title: "NHL 22 HUT TRADE DEADLINE EVENT DETAILS!"
+image: "https:\/\/i.ytimg.com\/vi\/_XFI0yClsDU\/hqdefault.jpg"
+vid_id: "_XFI0yClsDU"
+categories: "Gaming"
+tags: ["nhl 22 hut","nhl22 hut","nhl 22 hut tips"]
+date: "2022-03-13T20:24:34+03:00"
+vid_date: "2022-03-11T23:34:44Z"
+duration: "PT12M16S"
+viewcount: "5721"
+likeCount: "257"
+dislikeCount: ""
+channel: "Sleeveless Gaming"
+---
+{% raw %}In this video I cover the NHL 22 HUT Trade Deadline event! I talk about all of the new cards, sets and packs!<br /><br />Be sure to toss the video a LIKE if you enjoyed! <br />SUBSCRIBE➝ <a rel="nofollow" target="blank" href="https://youtube.com/SleevelessGaming?sub_confirmation=1">https://youtube.com/SleevelessGaming?sub_confirmation=1</a><br /><br />FOLLOW ME ON:<br /><br />Twitter ► <a rel="nofollow" target="blank" href="https://twitter.com/NoSleevesGaming">https://twitter.com/NoSleevesGaming</a><br />Instagram ► <a rel="nofollow" target="blank" href="https://www.instagram.com/sleevelessgaming/?hl=en">https://www.instagram.com/sleevelessgaming/?hl=en</a><br />Twitch ► <a rel="nofollow" target="blank" href="https://www.twitch.tv/nosleeves12">https://www.twitch.tv/nosleeves12</a><br />TikTok ► <a rel="nofollow" target="blank" href="https://www.tiktok.com/@nosleeves12?lang=en">https://www.tiktok.com/@nosleeves12?lang=en</a><br />Discord ► <a rel="nofollow" target="blank" href="https://discord.gg/qTNUjfc5uH">https://discord.gg/qTNUjfc5uH</a><br /><br />CHECK OUT THESE GREAT PRODUCTS:<br /><br />SummaForte - Custom designed performance tape for gamers and athletes! Through the innovative of our delivery technology, the active ingredient in our SummaTape (Lifter CBD) is passed through the skin, allowing it to exert its effects on deeper or more distant tissues and circulate throughout the body. Use code NOSLEEVES for 10% your entire order! <br />► <a rel="nofollow" target="blank" href="https://tinyurl.com/3vm7dwvp">https://tinyurl.com/3vm7dwvp</a> <br /><br />GamerAdvantage - The best blue light glasses you can buy. If you suffer from headaches, or spend a lot of time daily looking at a monitor, these will do you wonders! Use code NOSLEEVES for 10% your entire order! <br />► <a rel="nofollow" target="blank" href="https://gameradvantage.com/discount/NOSLEEVES">https://gameradvantage.com/discount/NOSLEEVES</a> <br /><br />GFUEL - Looking for the best energy formula to keep you in the game? Gfuel is the king, try out my favorite flavors Shiny Splash, Hype Sauce and Snow Cone! Get 10% off your order using code NOSLEEVES!<br />► gfuel.ly/3iVwoAv<br /><br />KINGS COAST COFFEE - Simply put, the best coffee you can buy. I drink Kings Coast every day, and its stunning how great a properly made cup of coffee can taste. Try out my favorite blends Lamplighter, Get Woke, and Countach. Use code NOSLEEVES for 10% off your entire order!<br />►<a rel="nofollow" target="blank" href="https://www.kingscoastcoffee.com/">https://www.kingscoastcoffee.com/</a><br /><br />#NHL22{% endraw %}
