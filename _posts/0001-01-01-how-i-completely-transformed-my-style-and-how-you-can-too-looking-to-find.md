@@ -1,0 +1,15 @@
+---
+title: "how I COMPLETELY transformed my style (and how you can, too)"
+image: "https:\/\/i.ytimg.com\/vi\/MLqGspV0-eI\/hqdefault.jpg"
+vid_id: "MLqGspV0-eI"
+categories: "Howto-Style"
+tags: ["Hannah elise","hannah","Hannah maute"]
+date: "2022-03-14T14:53:43+03:00"
+vid_date: "2022-03-13T19:00:12Z"
+duration: "PT25M53S"
+viewcount: "35483"
+likeCount: "2789"
+dislikeCount: ""
+channel: "Hannah Elise"
+---
+{% raw %}Looking to find your personal style and build a wardrobe around it? You've come to the right place. In this video we're talking all things style, including my wardrobe/closet essentials, building outfits, finding inspiration &amp; my top lazy girl fashion tips!<br /><br />Don't forget to subscribe! ☞ <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCT9y7nOBdqfWuaZJ_x9mPkA?sub_confirmation=1">https://www.youtube.com/channel/UCT9y7nOBdqfWuaZJ_x9mPkA?sub_confirmation=1</a><br /><br />Thank you so much for watching! xoxo, Han<br /><br />Help me to translate this video into your language! ☞ <a rel="nofollow" target="blank" href="http://www.youtube.com/timedtext_cs_panel?c=UCT9y7nOBdqfWuaZJ_x9mPkA&amp;tab=2">http://www.youtube.com/timedtext_cs_panel?c=UCT9y7nOBdqfWuaZJ_x9mPkA&amp;tab=2</a><br /><br />Timestamps:<br />00:00 - The introduction &amp; welcome :)<br />03:20 - On the agenda today:<br />04:21 - Part 01: Finding Inspiration<br />08:20 - Part 02: Outfit Formulas (aka how I build outfits)<br />12:09 - Part 03: Wardrobe/Closet Essentials<br />20:29 - Part 04: Tips &amp; Tricks<br />24:09 - The conclusion<br /><br />☞ MUSIC USED:<br />Music by Mr. Chase - Wild Cherry - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=4AF031FE">https://thmatc.co/?l=4AF031FE</a><br />Free 30 day trial of Epidemic Sound (also where I get some of my music!!) -  <a rel="nofollow" target="blank" href="http://share.epidemicsound.com/3qm8p6">http://share.epidemicsound.com/3qm8p6</a> <br /><br />☞ SOCIALS:<br />Instagram @hannahemaute<br />Twitter @hannahemaute<br />TikTok: hannahemaute<br />Pinterest: hannahemaute<br /><br />☞ EMAIL:<br />For business inquiries only plz<br />hannahelise@select.co<br /><br />☞ FAQs:<br />What camera do you use? Main: Canon EOS M50, Travel: Canon G7X Mark II<br />How old are you? 22 (as of when this video was posted)<br />What do you use to edit your videos? Final Cut Pro X<br />What apps do you use for thumbnails? Procreate, VSCO, PicsArt<br />When do you upload? Every Sunday!<br /><br />☞ FTC: This video is not sponsored, all opinions are my own. Some links may be affiliate links, meaning I make a small commission off of purchases made through my link, but it does not cost you anything extra!<br /><br />This video is about wardrobe essentials, outfits, outfit ideas, outfit inspo, outfit aesthetic, outfit air force 1, fashion and style, wardrobe essentials for women, closet essentials, how to, how to find your style, personal style, finding your style, building a wardrobe, building a wardrobe you will actually wear, building a capsule wardrobe, build your wardrobe, build an outfit, build your wardrobe<br /><br />#HannahElise{% endraw %}
