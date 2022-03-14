@@ -1,0 +1,15 @@
+---
+title: "Cancer Mid April 2019 (7:18 start) Considering Your Next Move..."
+image: "https:\/\/i.ytimg.com\/vi\/Q4EGFCW48Ds\/hqdefault.jpg"
+vid_id: "Q4EGFCW48Ds"
+categories: "Entertainment"
+tags: ["2019","angel","aquarius"]
+date: "2022-03-14T03:13:52+03:00"
+vid_date: "2019-04-10T00:31:30Z"
+duration: "PT21M37S"
+viewcount: "313"
+likeCount: "16"
+dislikeCount: ""
+channel: "Guided AngelCC"
+---
+{% raw %}Please Subscribe to this channel so I can keep these readings coming! Share videos with your friends and family... All signs are done monthly... Watch other signs to see what your friends and family members may be going through... Maybe you will be in their reading ;) <br />I may not tell you what you want to hear but I will tell you the angels want you to know!<br />If this reading resonated with you then that’s great! If it didn’t then it wasn’t a message for you… Please be kind with your comments 😊 <br /><br />Sun Moon and Rising sign link:  <a rel="nofollow" target="blank" href="https://www.astrosofa.com/horoscope/ascendant">https://www.astrosofa.com/horoscope/ascendant</a><br /><br />Purchase a Private Reading:<br /><a rel="nofollow" target="blank" href="https://www.etsy.com/shop/GuidedAngelCC111">https://www.etsy.com/shop/GuidedAngelCC111</a> <br /><br />Donations greatly appreciated: <a rel="nofollow" target="blank" href="https://www.paypal.me/guidedangelcc?ppid=PPC000628&amp;cnac=US&amp;rsta=en_US(en_US)&amp;cust=2LX3MUFKRG25W&amp;unptid=861d4f90-3a0c-11e9-9f20-441ea14ee4c4&amp;t=&amp;cal=2656356b5a98f&amp;calc=2656356b5a98f&amp;calf=2656356b5a98f&amp;unp_tpcid=ppme-social-user-profile-created&amp;page=main:email&amp;pgrp=main:email&amp;e=op&amp;mchn=em&amp;s=ci&amp;mail=sys">https://www.paypal.me/guidedangelcc?ppid=PPC000628&amp;cnac=US&amp;rsta=en_US(en_US)&amp;cust=2LX3MUFKRG25W&amp;unptid=861d4f90-3a0c-11e9-9f20-441ea14ee4c4&amp;t=&amp;cal=2656356b5a98f&amp;calc=2656356b5a98f&amp;calf=2656356b5a98f&amp;unp_tpcid=ppme-social-user-profile-created&amp;page=main:email&amp;pgrp=main:email&amp;e=op&amp;mchn=em&amp;s=ci&amp;mail=sys</a><br /><br />Email: GuidedAngelCC111@gmail.com<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/AngelCC111/">https://www.facebook.com/AngelCC111/</a><br /><br />Decks used in Reading: <br />Magical Messages from the Fairies: <a rel="nofollow" target="blank" href="https://amzn.to/2FLO40S">https://amzn.to/2FLO40S</a><br />Essential Tarot : <a rel="nofollow" target="blank" href="https://amzn.to/2YFGBIn">https://amzn.to/2YFGBIn</a><br />Gilded Tarot: <a rel="nofollow" target="blank" href="https://amzn.to/2HRKAw1">https://amzn.to/2HRKAw1</a><br />Golden Universal Tarot: <a rel="nofollow" target="blank" href="https://amzn.to/2U7LgEm">https://amzn.to/2U7LgEm</a><br />Romance Angels: <a rel="nofollow" target="blank" href="https://amzn.to/2CPNQE9">https://amzn.to/2CPNQE9</a><br />Angel Answers Oracle is out of print and no purchase is available.<br /><br /><br />**Disclaimer** Readings are for entertainment purposes only, do not make decisions based on a reading, seek professional advice**{% endraw %}
