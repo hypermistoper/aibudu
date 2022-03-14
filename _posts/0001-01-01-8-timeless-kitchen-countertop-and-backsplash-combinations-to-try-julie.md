@@ -1,0 +1,15 @@
+---
+title: "8 Timeless Kitchen Countertop and Backsplash Combinations to Try! | Julie Khuu"
+image: "https:\/\/i.ytimg.com\/vi\/wJ6N6vPsPP0\/hqdefault.jpg"
+vid_id: "wJ6N6vPsPP0"
+categories: "Howto-Style"
+tags: ["Interior design","decorating","home decor"]
+date: "2022-03-14T04:38:32+03:00"
+vid_date: "2021-08-03T16:00:24Z"
+duration: "PT15M46S"
+viewcount: "301108"
+likeCount: "6774"
+dislikeCount: ""
+channel: "Julie Khuu"
+---
+{% raw %}Please subscribe for stylish and simple interior design tips: <a rel="nofollow" target="blank" href="https://bit.ly/2RcwIla">https://bit.ly/2RcwIla</a><br /><br />A majority of homeowners are looking for kitchen countertop and backsplash combinations that are durable, easy to maintain, timeless, and of course matches the aesthetic and interior style of their home. With so many options out there and virtually an infinite amount of creative combinations, where do you even begin?<br /><br />Ask yourself these 3 key questions before specifying materials for your kitchen design:<br />1. Who lives here? <br />2. How do you use your kitchen?<br />3. What’s your budget to prioritize the finish that makes <br />more of an impact- Countertop or backsplash?<br /><br />Let’s break down my 8 favorite combinations and share top designer tips on the pros and cons of each! <br />_____________________________________________<br />TOPICS DISCUSSED:<br />2:00 Solid Slab<br />5:00 Heavy Veined Stone<br />6:10 Artisan Tile<br />8:25 Colorful Tile<br />9:45 Dark and moody<br />10:35 Light and Bright<br />11:30 Mixed Materials<br />12:42 Subway Tile<br /><br />The first 1,000 people to use this link will get a 1 month free trial of Skillshare: <a rel="nofollow" target="blank" href="https://skl.sh/juliekhuu07211">https://skl.sh/juliekhuu07211</a><br /><br />Cover Image: Rose and Ivy Journal<br />_____________________________________________<br />LET’S CONNECT!<br />SUBSCRIBE: <a rel="nofollow" target="blank" href="https://bit.ly/2QeCoWH">https://bit.ly/2QeCoWH</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/Julie_Khuu">https://www.instagram.com/Julie_Khuu</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/HauteKhuuture">https://www.facebook.com/HauteKhuuture</a><br />WEBSITE: <a rel="nofollow" target="blank" href="http://www.JulieKhuu.com">http://www.JulieKhuu.com</a><br />BLOG: <a rel="nofollow" target="blank" href="http://www.HauteKhuutureBlog.com">http://www.HauteKhuutureBlog.com</a><br />BUSINESS INQUIRIES: <a rel="nofollow" target="blank" href="http://info@juliekhuu.com">http://info@juliekhuu.com</a><br />Edited by: Kelly Nguyen for Julie Khuu Interior Design<br />___________________________<br />MUSIC BY<br />Mario Ayuda - Memories - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=6D6C7929">https://thmatc.co/?l=6D6C7929</a><br />Mario Ayuda - Deep Inside You - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=A2818D90">https://thmatc.co/?l=A2818D90</a><br />___________________________<br />#JulieKhuu #InteriorDesignTips #HomeDecor #DIY #Tutorial #HowTo #KitchenCountertops{% endraw %}
