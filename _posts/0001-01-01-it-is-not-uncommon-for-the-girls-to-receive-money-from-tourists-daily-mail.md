@@ -1,0 +1,15 @@
+---
+title: "It is not uncommon for the girls to receive money from tourists - Daily Mail"
+image: "https:\/\/i.ytimg.com\/vi\/RduEmfnLbf0\/hqdefault.jpg"
+vid_id: "RduEmfnLbf0"
+categories: "News-Politics"
+tags: ["girls","money","tourists"]
+date: "2022-03-14T15:04:18+03:00"
+vid_date: "2018-03-08T15:20:32Z"
+duration: "PT2M38S"
+viewcount: "14"
+likeCount: "0"
+dislikeCount: ""
+channel: "Daily Mail"
+---
+{% raw %}Two young Thai girls accused of being pickpockets after they posed for a picture with a woman tourist have pleaded with the 'victim' to visit their home village so they can prove their innocence. Stung by accusations that she and sister deliberately targeted the woman at a temple in Chiang Mai, northern Thailand, one of the so-called 'adorable thieves' told MailOnline that the pair wwere innocent, insisting: 'I didn't take your watch'. A picture of the moment  seven-year-old Kanlayanee, pictured in blue tabard with her sister Thidaret above left, is said to have unclasped the watch from the woman's wrist went viral after it was uploaded onto the social media site Reddit, top right. But older sister Thidaret, 10, told MailOnline they had done nothing wrong and added that she would say to the woman: 'I want you to come visit me at Baan Doi Pui Village.' The family, pictured bottom right, have been to police to deny wrongdoing.<br /><br />Original Article: <a rel="nofollow" target="blank" href="http://www.dailymail.co.uk/news/article-3811462/I-didn-t-watch-want-come-visit-Thai-girls-adorable-pickpocket-storm-say-INNOCENT-plead-tourist-victim-come-forward.html">http://www.dailymail.co.uk/news/article-3811462/I-didn-t-watch-want-come-visit-Thai-girls-adorable-pickpocket-storm-say-INNOCENT-plead-tourist-victim-come-forward.html</a><br />Original Video: <a rel="nofollow" target="blank" href="http://www.dailymail.co.uk/video/news/video-1334586/It-not-uncommon-girls-receive-money-tourists.html">http://www.dailymail.co.uk/video/news/video-1334586/It-not-uncommon-girls-receive-money-tourists.html</a><br /><br />Daily Mail Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/dailymail">http://facebook.com/dailymail</a><br />Daily Mail IG: <a rel="nofollow" target="blank" href="http://instagram.com/dailymail">http://instagram.com/dailymail</a><br />Daily Mail Snap: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Daily-Mail/8392137033">https://www.snapchat.com/discover/Daily-Mail/8392137033</a><br />Daily Mail Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/MailOnline">http://twitter.com/MailOnline</a><br />Daily Mail Pinterest: <a rel="nofollow" target="blank" href="http://pinterest.co.uk/dailymail">http://pinterest.co.uk/dailymail</a><br />Daily Mail Google+: <a rel="nofollow" target="blank" href="https://plus.google.com/+DailyMail/posts">https://plus.google.com/+DailyMail/posts</a><br /><br />Get the free Daily Mail mobile app: <a rel="nofollow" target="blank" href="http://dailymail.co.uk/mobile">http://dailymail.co.uk/mobile</a>{% endraw %}
