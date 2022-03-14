@@ -1,0 +1,15 @@
+---
+title: "Fashion and styling hacks"
+image: "https:\/\/i.ytimg.com\/vi\/prxEmD1mFIQ\/hqdefault.jpg"
+vid_id: "prxEmD1mFIQ"
+categories: "People-Blogs"
+tags: ["fashion hacks","tiktok fashion hacks","how to wear a scarf"]
+date: "2022-03-14T14:59:02+03:00"
+vid_date: "2022-03-09T17:03:38Z"
+duration: "PT10M8S"
+viewcount: "45321"
+likeCount: "1225"
+dislikeCount: ""
+channel: "YellowClover"
+---
+{% raw %}🤍 CUSTOM NECKLACES: <a rel="nofollow" target="blank" href="https://bit.ly/yellowclover_sunecklace">https://bit.ly/yellowclover_sunecklace</a><br />🌸   55% Off Sale Today  🌸  <br />      <br />🌎 FREE WORLDWIDE SHIPPING 🌎<br />        Limited Stock Available<br /><br />SHOP NOW ➜ <a rel="nofollow" target="blank" href="https://bit.ly/yellowclover_sunecklace">https://bit.ly/yellowclover_sunecklace</a><br /><br />====================================<br /><br />Business inquires: poisedhoney@gmail.com<br /><br />I do not own these video clips, credit is given to the rightful owner and usernames are displayed on each video. <br /><br />Thank you for watching! Please like and subscribe for more videos.<br /><br />Ad revenue paid to copyright owner (<a rel="nofollow" target="blank" href="https://bit.ly/2WIrUFQ​)">https://bit.ly/2WIrUFQ​)</a><br /><br />====================================<br /><br />Credits goes to all the creators seen in this video! The credit and username is shown on each clip. Make sure to check them out.<br /><br />If you are the owner of a video and would like your video to be taken down or have your social media linked, please email me at poisedhoney@gmail.com.<br /><br />*Note: Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholar ship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favour of fair use.<br /><br />====================================<br />Tags (ignore):<br />beautybabes,skincare,style tips,styletips,fashiontips,fashion tips,tiktok style tips,tiktok fashion tips,tik tok fashiontips,styletips tiktok,styletips tik tok,how to dress,how to style,how to dress rich,outfits of the week,outfit tips,women,buzzfeed chloe,clothing hacks,tik tok hacks,simple,tiktok hacks,tik tok life hacks,jewelry,diy,crop top,scarf top,tapered sweatpants,diy clothing,tik tok,i tested 10 tiktok fashion hacks,fashion hacks,style #art​ #picoftheday​ #cute​ #fashionista​ #instafashion​ #happy​ #makeup​ #girl​ #me​ #instadaily​ #followme​ #bhfyp​ #photo​ #likeforlikes​ #bhfyp​ #fashionstyle​ #smile​ #shopping​ #outfit​ #summer​ #design​ #dress​ #look​ #handmade​ #instalike​ #selfie​ #life​ #portrait​ #photoshoot​ #shoes​ #onlineshopping​ #myself​ #fun​ #l​ #nature​ #blogger​ #streetstyle​ #mensfashion​ #stylish​ #likes​ #travel​ #accessories​ #music​ #jewelry​ #hair<br /><br />===================================={% endraw %}
