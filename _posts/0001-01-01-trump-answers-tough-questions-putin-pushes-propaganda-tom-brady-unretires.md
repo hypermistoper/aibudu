@@ -1,0 +1,15 @@
+---
+title: "Trump Answers Tough Questions, Putin Pushes Propaganda & Tom Brady Unretires After 41 Days"
+image: "https:\/\/i.ytimg.com\/vi\/UqNnWlDp0g0\/hqdefault.jpg"
+vid_id: "UqNnWlDp0g0"
+categories: "Comedy"
+tags: ["jimmy","jimmy kimmel","jimmy kimmel live"]
+date: "2022-03-15T14:35:25+03:00"
+vid_date: "2022-03-15T02:39:57Z"
+duration: "PT14M28S"
+viewcount: "482880"
+likeCount: "11357"
+dislikeCount: ""
+channel: "Jimmy Kimmel Live"
+---
+{% raw %}Today is 3.14 or “National Pi Day,” our entire staff is back in the office after two years of working from home, LA had one of the best/worst police chases of all time, the CEO of Pfizer is saying that everyone will need a fourth dose of the vaccine to stave off a new wave of COVID, former President Obama has contracted the virus, Trump was on a podcast hosted by a small group of YouTubers known as the Nelk Boys, Vladimir Putin is doing whatever he can to prevent Russian citizens from knowing the truth about what he’s up to in Ukraine, a lot of businesses are severing ties with Russia including McDonald’s, Pete Davidson is flying into space on a Blue Origin flight next week, part one of the two-part finale of “The Bachelor” aired tonight on ABC and might actually be the most dramatic ever, and after the news that Tom Brady will be returning to the NFL only 41 days after retiring, we check in with his number one fan, two-year-old Tommy Brady Fitzpatrick.<br /><br />SUBSCRIBE to get the latest #Kimmel: <a rel="nofollow" target="blank" href="http://bit.ly/JKLSubscribe">http://bit.ly/JKLSubscribe</a><br /><br />Watch Mean Tweets: <a rel="nofollow" target="blank" href="http://bit.ly/KimmelMT10">http://bit.ly/KimmelMT10</a><br /><br />Connect with Jimmy Kimmel Live Online:<br /><br />Visit the Jimmy Kimmel Live WEBSITE: <a rel="nofollow" target="blank" href="http://bit.ly/JKLWebsite">http://bit.ly/JKLWebsite</a><br />Like Jimmy Kimmel on FACEBOOK: <a rel="nofollow" target="blank" href="http://bit.ly/KimmelFB">http://bit.ly/KimmelFB</a><br />Like Jimmy Kimmel Live on FACEBOOK: <a rel="nofollow" target="blank" href="http://bit.ly/JKLFacebook">http://bit.ly/JKLFacebook</a><br />Follow @JimmyKimmel on TWITTER: <a rel="nofollow" target="blank" href="http://bit.ly/KimmelTW">http://bit.ly/KimmelTW</a><br />Follow Jimmy Kimmel Live on TWITTER: <a rel="nofollow" target="blank" href="http://bit.ly/JKLTwitter">http://bit.ly/JKLTwitter</a><br />Follow Jimmy Kimmel Live on INSTAGRAM: <a rel="nofollow" target="blank" href="http://bit.ly/JKLInstagram">http://bit.ly/JKLInstagram</a><br /><br />About Jimmy Kimmel Live:<br /><br />Jimmy Kimmel serves as host and executive producer of Emmy®-nominated “Jimmy Kimmel Live!,” ABC’s late-night talk show. “Jimmy Kimmel Live!” is well known for its huge viral video successes, with over 11 billion views and more than 15 million subscribers on the show’s YouTube channel. Some of Kimmel’s most popular comedy bits include “Celebrities Read Mean Tweets,” “Lie Witness News,” “Unnecessary Censorship,” “Halloween Candy YouTube Challenge,” and music videos like “I (Wanna) Channing All Over Your Tatum.”{% endraw %}
