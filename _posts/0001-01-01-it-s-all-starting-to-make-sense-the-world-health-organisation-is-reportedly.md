@@ -1,0 +1,15 @@
+---
+title: "It’s All Starting To Make Sense"
+image: "https:\/\/i.ytimg.com\/vi\/EKnGxdb4Nf0\/hqdefault.jpg"
+vid_id: "EKnGxdb4Nf0"
+categories: "Education"
+tags: ["Russell Brand","Brand Russell","BrandThe"]
+date: "2022-03-15T22:47:34+03:00"
+vid_date: "2022-03-14T18:00:03Z"
+duration: "PT16M25S"
+viewcount: "1012768"
+likeCount: "74352"
+dislikeCount: ""
+channel: "Russell Brand"
+---
+{% raw %}The World Health Organisation is reportedly working on a global vaccine passport system and wants as many countries as possible to join. Will the key to the future of public life also be the linchpin of a global surveillance network? <br />#Pandemic #VaccinePassports #WHO<br /><br />References<br /><a rel="nofollow" target="blank" href="https://reclaimthenet.org/the-who-is-working-on-a-global-vaccine-passport-system/">https://reclaimthenet.org/the-who-is-working-on-a-global-vaccine-passport-system/</a><br /><br /><a rel="nofollow" target="blank" href="https://qz.com/2102889/the-who-is-too-dependent-on-gates-foundation-donations/">https://qz.com/2102889/the-who-is-too-dependent-on-gates-foundation-donations/</a><br /><br /><a rel="nofollow" target="blank" href="https://www.politico.eu/article/bill-gates-who-most-powerful-doctor/">https://www.politico.eu/article/bill-gates-who-most-powerful-doctor/</a><br /><br /><a rel="nofollow" target="blank" href="https://theintercept.com/2022/01/01/covid-vaccine-passports-surveillance/">https://theintercept.com/2022/01/01/covid-vaccine-passports-surveillance/</a><br /><br />Get tickets for my 2022 tour here: <a rel="nofollow" target="blank" href="http://bit.ly/33_2022">http://bit.ly/33_2022</a><br /><br />Join Our Community HERE: <a rel="nofollow" target="blank" href="https://www.russellbrand.com/join">https://www.russellbrand.com/join</a> <br /><br />To listen, subscribe to the Luminary Channel on Apple Podcasts at apple.co/russell or on the Luminary app <a rel="nofollow" target="blank" href="http://luminary.link/russell">http://luminary.link/russell</a><br /><br />For meditation and breath work, subscribe to my side-channel: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/AwakeningWithRussell">https://www.youtube.com/c/AwakeningWithRussell</a><br /><br />My Weekly meditation podcast, Above the Noise, is available now on Apple &amp; Luminary<br /><a rel="nofollow" target="blank" href="http://apple.co/meditate">http://apple.co/meditate</a><br /><a rel="nofollow" target="blank" href="http://luminary.link/meditate">http://luminary.link/meditate</a><br /><br />FOOTBALL IS NICE is my free, weekly, full-length podcast - subscribe here: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/FootballisNiceRussellBrand">https://www.youtube.com/c/FootballisNiceRussellBrand</a><br /><br />Rumble:<br /><a rel="nofollow" target="blank" href="https://rumble.com/c/russellbrand">https://rumble.com/c/russellbrand</a><br /><br />Locals:<br /><a rel="nofollow" target="blank" href="https://russellbrand.locals.com/">https://russellbrand.locals.com/</a>{% endraw %}
