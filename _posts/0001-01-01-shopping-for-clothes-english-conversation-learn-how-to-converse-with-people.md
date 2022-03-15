@@ -1,0 +1,15 @@
+---
+title: "Shopping for Clothes 🛍  | English Conversation"
+image: "https:\/\/i.ytimg.com\/vi\/ad8a2BiXulw\/hqdefault.jpg"
+vid_id: "ad8a2BiXulw"
+categories: "Education"
+tags: ["English","Easy English","Advance English"]
+date: "2022-03-15T19:49:59+03:00"
+vid_date: "2021-01-10T07:39:36Z"
+duration: "PT4M40S"
+viewcount: "37697"
+likeCount: "630"
+dislikeCount: ""
+channel: "EverydayEnglish"
+---
+{% raw %}Learn how to converse with people when you are shopping for clothes - this video includes key questions and answers you may ask.<br /><br /><br /><br />Subscribe | Like | Comment | Share <br />Thank you for your support. :)<br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br />Music credit:<br />Walk In The Park Full by Audionautix is licensed under a Creative Commons Attribution 4.0 licence. <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br /><br />Artist: <a rel="nofollow" target="blank" href="http://audionautix.com/">http://audionautix.com/</a><br /><br /><br />Images credit:<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/background'Background">https://www.freepik.com/vectors/background'Background</a> vector created by vectorpouch - www.freepik.com<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/business'Business">https://www.freepik.com/vectors/business'Business</a> vector created by iconicbestiary - www.freepik.com<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/background'Background">https://www.freepik.com/vectors/background'Background</a> vector created by vectorpocket - www.freepik.com<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/background'Background">https://www.freepik.com/vectors/background'Background</a> vector created by vectorpocket - www.freepik.com<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/sale'Sale">https://www.freepik.com/vectors/sale'Sale</a> vector created by vectorpouch - www.freepik.com<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/business'Business">https://www.freepik.com/vectors/business'Business</a> vector created by freepik - www.freepik.com<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/winter&quot;Winter">https://www.freepik.com/vectors/winter&quot;Winter</a> vector created by macrovector_official - www.freepik.com<br /><a rel="nofollow" target="blank" href="https://www.freepik.com/vectors/wedding'Wedding">https://www.freepik.com/vectors/wedding'Wedding</a> vector created by vectorpocket - www.freepik.com{% endraw %}
