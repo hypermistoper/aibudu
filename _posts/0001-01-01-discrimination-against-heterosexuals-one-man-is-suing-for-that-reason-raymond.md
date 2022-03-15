@@ -1,0 +1,15 @@
+---
+title: "Discrimination Against Heterosexuals? One Man Is Suing for That Reason."
+image: "https:\/\/i.ytimg.com\/vi\/DPay7rMfAGs\/hqdefault.jpg"
+vid_id: "DPay7rMfAGs"
+categories: "Nonprofits-Activism"
+tags: ["The Ruth Institute","Dr J","Jennifer Roback Morse"]
+date: "2022-03-16T01:35:05+03:00"
+vid_date: "2021-09-17T19:00:03Z"
+duration: "PT57M27S"
+viewcount: "754"
+likeCount: "39"
+dislikeCount: ""
+channel: "RuthInstitute"
+---
+{% raw %}Raymond W. Belair began his career as a defense lawyer or both foreign and domestic companies and insurers. He successfully wrote and argued a number of appeals in both New York and federal appeals courts.  For over 35 years his practice has focused on trials. This has been primarily in defense of physicians and other healthcare workers. <br /><br />He is admitted to practice law in New York, the United States District Court: Southern, Eastern and Northern Districts of New York, and the United States Court of Appeals: First and Second Circuits.  He has also successfully prosecuted and tried many serious personal injury cases to<br />verdict, resulting in very substantial recoveries. These have involved many different theories of negligence, design, manufacture and professional liability.<br /><br />Ray also has a D.Min., and is certified in systematic theology.  He served for a time as Adjunct Professor of Sacred Scripture at St. Joseph’s Seminary and College.  He has served as Trustee, Lector, and Catechist for his local parish.  He serves as Vice President of the Children First Foundation, and is General Counsel for the Family First Foundation.<br /><br />He has written many published articles, including “Public Faith and Private Morality,” Homiletic &amp; Pastoral Review, 2005.  <br /><br />Write to Cardinal Dolan and tell him you don’t want your church donations going to defend homosexual predation against seminarians like Anthony Gorgia:<br />His Eminence Timothy Cardinal Dolan<br />c/o St Patrick’s Cathedral<br />14 East 51st Street<br />New York City, NY 10022<br /><br />Please donate to Anthony’s Go Fund Me page, &quot;Save Our  Seminarians&quot;:<br /><a rel="nofollow" target="blank" href="https://www.gofundme.com/f/save-our-seminarians-fund">https://www.gofundme.com/f/save-our-seminarians-fund</a><br />&quot;We are up against multiple defense law firms who are very well staffed and who charge very high fess to the defendants  Archdiocese of New York, Dolan, North American College (NAC) and the individual NAC employed priests. My client Anthony Gorgia is a man of very limited means because of defendants' tortious actions against him. Donations are very much needed to continue Anthony's quest for redress.&quot;<br /><br />Anthony’s video explanation:<br />www.YouTube.com/watch?v=fZFFOFm64k8<br /><br />Sign up for our weekly newsletter here:<br /><a rel="nofollow" target="blank" href="http://www.ruthinstitute.org/make-a-difference/subscribe-to-our-newsletter">http://www.ruthinstitute.org/make-a-difference/subscribe-to-our-newsletter</a>{% endraw %}
