@@ -1,0 +1,15 @@
+---
+title: "The PiCar-X.  A Raspberry Pi powered robot car.  Supplied by SunFounder"
+image: "https:\/\/i.ytimg.com\/vi\/pVayQiLgPK0\/hqdefault.jpg"
+vid_id: "pVayQiLgPK0"
+categories: "People-Blogs"
+tags: ["fpv","drone","race"]
+date: "2022-03-16T21:57:57+03:00"
+vid_date: "2022-03-16T18:00:32Z"
+duration: "PT43M11S"
+viewcount: "82"
+likeCount: "12"
+dislikeCount: ""
+channel: "CurryKitten"
+---
+{% raw %}I've had a look at a few robot car kits, but they mostly use Arduino boards for the car's &quot;brain&quot;.  This time I'm using the far more powerful Raspberry Pi 4.  Let's check out what that extra computational power can do.<br /><br />This robot car was kindly supplied by SunFounder for review, so please use this (affiliate) link to check out their product in more detail   <a rel="nofollow" target="blank" href="https://www.sunfounder.com/products/picar-x?ref=nlrq3y-lbgm">https://www.sunfounder.com/products/picar-x?ref=nlrq3y-lbgm</a><br /><br />More links with other buying options -<br /><br />PiCarX:<br />Official Site:<br /><a rel="nofollow" target="blank" href="https://www.sunfounder.com/products/picar-x?ref=nlrq3y-lbgm">https://www.sunfounder.com/products/picar-x?ref=nlrq3y-lbgm</a><br /><br />Amazon US:<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/gp/product/B08F46Q24N">https://www.amazon.com/gp/product/B08F46Q24N</a><br /><br />Amazon Canada:<br /><a rel="nofollow" target="blank" href="https://www.amazon.ca/dp/B08PYMWNC4">https://www.amazon.ca/dp/B08PYMWNC4</a><br /><br />Amazon Japan:<br /><a rel="nofollow" target="blank" href="https://www.amazon.co.jp/dp/B08FBT71Z2">https://www.amazon.co.jp/dp/B08FBT71Z2</a><br /><br />Amazon UK:<br /><a rel="nofollow" target="blank" href="https://www.amazon.co.uk/dp/B08FB6P88L">https://www.amazon.co.uk/dp/B08FB6P88L</a><br /><br />Amazon DE:<br /><a rel="nofollow" target="blank" href="https://www.amazon.de/dp/B08FB6P88L">https://www.amazon.de/dp/B08FB6P88L</a><br /><br />If you liked this video and want to show your support please feel free to join my Patreon supporters here <a rel="nofollow" target="blank" href="https://www.patreon.com/CurryKitten">https://www.patreon.com/CurryKitten</a> or if you decide to shop at Banggood, here's a general affiliate link which helps me out if you use it <a rel="nofollow" target="blank" href="https://www.banggood.com/?p=E81211714085201408XQ">https://www.banggood.com/?p=E81211714085201408XQ</a><br /><br /><br /><br />If you want to look at other ways of supporting my channel, then check out all the ways you could help out here <a rel="nofollow" target="blank" href="http://www.currykitten.co.uk/support-me/">http://www.currykitten.co.uk/support-me/</a><br /><br />This is a long video, so here are some chapter markers if you want to skip to the bit you are more interested in.<br /><br />0:00 Introduction<br />1:16 Unboxing<br />5:15 Building the PiCar-X<br />8:40 Zeroing the servos<br />13:19 Testing the Car with the example code<br />23:54 Using EZblock studio via a browser window<br />30:55 Testing out my own program<br />34:31 Using Python directly on the PiCar-X<br />38:36 Conclusions{% endraw %}
