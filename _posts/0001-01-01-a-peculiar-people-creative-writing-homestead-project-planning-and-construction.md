@@ -1,0 +1,15 @@
+---
+title: "A Peculiar People"
+image: "https:\/\/i.ytimg.com\/vi\/kJyIaJ_l5KI\/hqdefault.jpg"
+vid_id: "kJyIaJ_l5KI"
+categories: "Entertainment"
+tags: ["Peculiar","People"]
+date: "2022-03-16T13:31:01+03:00"
+vid_date: "2021-08-13T13:32:45Z"
+duration: "PT13M9S"
+viewcount: "162"
+likeCount: "15"
+dislikeCount: ""
+channel: "A Peculiar People"
+---
+{% raw %}creative writing, homestead project planning and construction<br /><br />My Recommended Books From my library:<br /><br />EMP Series, Book 1 &quot;Grid Down&quot;<br /><a rel="nofollow" target="blank" href="https://amzn.to/38RFECH">https://amzn.to/38RFECH</a><br />EMP Series ,Book 2 &quot;The New Normal&quot;<br /><a rel="nofollow" target="blank" href="https://amzn.to/2Lh1neT">https://amzn.to/2Lh1neT</a><br />EMP Series ,Book 3 &quot;Revolution&quot;<br /><a rel="nofollow" target="blank" href="https://amzn.to/351sTV4">https://amzn.to/351sTV4</a><br />Into The Wild<br /><a rel="nofollow" target="blank" href="https://amzn.to/353N5pf">https://amzn.to/353N5pf</a><br />Into Thin Air<br /><a rel="nofollow" target="blank" href="https://amzn.to/3pGfjht">https://amzn.to/3pGfjht</a><br />Animal Farm<br /><a rel="nofollow" target="blank" href="https://amzn.to/38498Ok">https://amzn.to/38498Ok</a><br />A Time to Kill<br /><a rel="nofollow" target="blank" href="https://amzn.to/3ok0eSN">https://amzn.to/3ok0eSN</a><br />The Chamber<br /><a rel="nofollow" target="blank" href="https://amzn.to/384l3vr">https://amzn.to/384l3vr</a><br />Never Surrende<br /><a rel="nofollow" target="blank" href="https://amzn.to/2X24gD5">https://amzn.to/2X24gD5</a><br />Defiance<br /><a rel="nofollow" target="blank" href="https://amzn.to/3o6Gou7">https://amzn.to/3o6Gou7</a><br />Anthem<br /><a rel="nofollow" target="blank" href="https://amzn.to/3rGXVLD">https://amzn.to/3rGXVLD</a><br />Atlas Shrugged<br /><a rel="nofollow" target="blank" href="https://amzn.to/2LaiShd">https://amzn.to/2LaiShd</a><br />Fountainhead<br /><a rel="nofollow" target="blank" href="https://amzn.to/3n2n5Rj">https://amzn.to/3n2n5Rj</a><br />Pilgrims Progress<br /><a rel="nofollow" target="blank" href="https://amzn.to/350xVRF">https://amzn.to/350xVRF</a><br /><br />Electronic Equipment I Use:<br /><br />Rode NT-USB Mic<br /><a rel="nofollow" target="blank" href="https://amzn.to/2KR0mKI">https://amzn.to/2KR0mKI</a><br />Audio-Technica ATR2100x-USB Cardioid Dynamic Microphone <br /><a rel="nofollow" target="blank" href="https://amzn.to/2WZdErf">https://amzn.to/2WZdErf</a><br />Logi Tech USB Web Cam<br /><a rel="nofollow" target="blank" href="https://amzn.to/3rOjvgY">https://amzn.to/3rOjvgY</a><br /><br />My Patreon Page<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/Worldwithoutruleoflaw?fan_landing=true">https://www.patreon.com/Worldwithoutruleoflaw?fan_landing=true</a><br />My Paypal<br /><a rel="nofollow" target="blank" href="https://www.paypal.com/paypalme/Timmo3663">https://www.paypal.com/paypalme/Timmo3663</a><br />My Website (Under Construction)<br /><a rel="nofollow" target="blank" href="https://youtu.be/t2Z2NNFjyT4">https://youtu.be/t2Z2NNFjyT4</a>{% endraw %}
