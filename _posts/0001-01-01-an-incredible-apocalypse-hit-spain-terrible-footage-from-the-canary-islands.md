@@ -1,0 +1,15 @@
+---
+title: "An incredible #apocalypse hit Spain. Terrible footage from the Canary Islands"
+image: "https:\/\/i.ytimg.com\/vi\/2jfiQhVvFdE\/hqdefault.jpg"
+vid_id: "2jfiQhVvFdE"
+categories: "News-Politics"
+tags: ["storm celia","storm celia espana","storm celia spain"]
+date: "2022-03-16T14:12:45+03:00"
+vid_date: "2022-03-15T19:00:01Z"
+duration: "PT2M8S"
+viewcount: "14580"
+likeCount: "319"
+dislikeCount: ""
+channel: "Planet News"
+---
+{% raw %}Subscribe to the channel and stay up to date with news about natural disasters and answer the main question of interest Will there be global warming and will people themselves be to blame<br />Brief description of this video : #naturaldisasters<br />The Celia storm covered the Canary Islands. Powerful gusts of wind that hit the Spanish islands ravaged the city streets, terrifying the inhabitants of the archipelago. The island of Tenerife suffered the most from the elements.<br />On local beaches, strong gusts of wind, in some places reaching 150 kilometers per hour, demolished beach bars, and also bent and overturned sun loungers. Strong winds drag hammocks and cause a sandstorm on Las Teresitas beach in Santa Cruz de Tenerife. due to storm Celia, which brought heavy rainfall to the archipelago, snow fell in some areas, which made it very difficult for honest and public transport to move. The authorities urge residents to be careful, as the situation in the archipelago will be complicated not only by strong winds, but also by large waves, as well as heavy rains and snowfalls. Snow fell on the peaks of the islands of La Palma and Tenerife. The government of the archipelago on this occasion announced a warning about poor conditions in the ocean, where waves of four to five meters are expected.<br />The channel lists natural disasters such as:<br />1) emergency geological situations: earthquake, volcanic eruption, mudflow, landslide, collapse, avalanche;<br />2) Hydrological emergencies: flood, tsunami, limnological catastrophe, floods, flooding;<br />3) Fires: forest fire, peat fire, glass fire, forest fire;<br />4) Extreme meteorological situations: Tornado, Cyclone, Snowstorm, Hail, Drought, Hail, Hurricane, Storm, Thunderstorm, Typhoon, Storm, Lightning.<br />The suffering of Europe has begun. France survives first major flood of 2022<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=qQ_-2Bwf9xQ">https://www.youtube.com/watch?v=qQ_-2Bwf9xQ</a><br />Hell for Europe! Storm dudley destroys UK, cyclone #zeynep Germany<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=JH4upU0iHyg">https://www.youtube.com/watch?v=JH4upU0iHyg</a><br />playlist Cyclon 2022<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=2NbETjwhIxE&amp;list=PLHWMqs-B5OVD14kmQ5kC_Kk1wD0U42c2A">https://www.youtube.com/watch?v=2NbETjwhIxE&amp;list=PLHWMqs-B5OVD14kmQ5kC_Kk1wD0U42c2A</a><br />#celia #LaPalma #storm #stormcelia #tenerife #LasTeresitas #beach #celiatenerife #sandstorm #precipitation #news #weather #snow #snowtenerife{% endraw %}
