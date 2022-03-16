@@ -1,0 +1,15 @@
+---
+title: "Textile Design With Embroidery And Embellishing - Talking Threads"
+image: "https:\/\/i.ytimg.com\/vi\/XIHEyMKFKgI\/hqdefault.jpg"
+vid_id: "XIHEyMKFKgI"
+categories: "Howto-Style"
+tags: ["design","creative crafts","malden"]
+date: "2022-03-16T20:48:28+03:00"
+vid_date: "2012-07-11T15:55:21Z"
+duration: "PT3M55S"
+viewcount: "57069"
+likeCount: "502"
+dislikeCount: ""
+channel: "Jamie Mason"
+---
+{% raw %}Textile Design With Embroidery And Embellishing - Talking Threads<br /><br />Sign up for our Colouricious Club - free weekly online textile art ideas and inspiration.<br /><a rel="nofollow" target="blank" href="http://colouricious.com/textiles-ideas-blogs-colouricious-club/">http://colouricious.com/textiles-ideas-blogs-colouricious-club/</a><br /><br />You can learn to create your own projects by following instructions on the creative textiles dvd 'Inspired Textile Landscapes' with Gilda Baron. Here are some pictures of some of the textile art ideas that Gilda presents in her textile art dvd. Take time to look at the wonderful embellished &amp; felted textile landscapes Gilda produces. If you are interested in how Gilda does these textile art techniques visit the Colouricious website at <a rel="nofollow" target="blank" href="http://www.colouricious.com">http://www.colouricious.com</a><br /><br />To buy 'Inspired Textile Landscapes' go to <a rel="nofollow" target="blank" href="http://colouricious.com/products-page/textile-workshop-dvd/hand-embroidery-textile-landscapes/">http://colouricious.com/products-page/textile-workshop-dvd/hand-embroidery-textile-landscapes/</a><br /><br />Visit our website to discover more and sign up to our weekly newsletter at <a rel="nofollow" target="blank" href="http://www.colouricious.com">http://www.colouricious.com</a><br /><br />Make sure not to miss a single video, Subscribe to Our Channel :<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/Colouricious?sub_confirmation=1">https://www.youtube.com/user/Colouricious?sub_confirmation=1</a><br />Like Us on Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/Colouricious/">https://www.facebook.com/Colouricious/</a><br />Like Us On Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/colouriciousblockprinting/">https://www.instagram.com/colouriciousblockprinting/</a><br />Visit Our Website : <a rel="nofollow" target="blank" href="http://colouricious.com/">http://colouricious.com/</a><br />Twit to Us At : <a rel="nofollow" target="blank" href="https://twitter.com/Colouricious">https://twitter.com/Colouricious</a><br />Follow Us On : <a rel="nofollow" target="blank" href="https://plus.google.com/101853927880001979798">https://plus.google.com/101853927880001979798</a><br />Pin Us At : <a rel="nofollow" target="blank" href="https://uk.pinterest.com/search/pins/?q=colouricious">https://uk.pinterest.com/search/pins/?q=colouricious</a><br />Click below for more Embroidery Designs : <br /><a rel="nofollow" target="blank" href="https://goo.gl/Pu7F8Z">https://goo.gl/Pu7F8Z</a>{% endraw %}
