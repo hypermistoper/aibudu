@@ -1,0 +1,15 @@
+---
+title: "The Most Brutal Onion Medical Headlines"
+image: "https:\/\/i.ytimg.com\/vi\/8Eoh-FYj1Cs\/hqdefault.jpg"
+vid_id: "8Eoh-FYj1Cs"
+categories: "Education"
+tags: ["doctor mike","dr mike","drmike"]
+date: "2022-03-16T21:42:08+03:00"
+vid_date: "2022-03-16T17:24:10Z"
+duration: "PT9M10S"
+viewcount: "62349"
+likeCount: "6756"
+dislikeCount: ""
+channel: "Doctor Mike"
+---
+{% raw %}COME SEE ME ON TOUR: <a rel="nofollow" target="blank" href="http://www.doctormikelive.com">http://www.doctormikelive.com</a><br /><br />The Onion is one of the smartest and funniest voices out there, so I once again reacted to a bunch of their medical headlines and articles. Today we talk about the CDC, ribs, sumo wrestling, Jimmy Carter, boxing gloves, surgery, sports injuries, morticians, zombies, Dr. Scholl’s, opioids, crossfit, babies, my strange addiction, fetuses, kid’s toys, doctors without borders, aliens, Elon Musk, HIPAA, smallpox, rinderpest, psoas muscles, billboards, conor mcgregor, shapewear, spanx, goop, gwenyth paltrow, cryosleep, and detox teas.<br /><br />I LOVE reading your comments and take your suggestions seriously. If there’s a subject you want me to discuss or something you’d like for me to react to, leave a comment down below. Many of my videos have been born out of suggestions directly from you, so don’t hold back!<br />-Doctor Mike Varshavski<br /><br />Help us continue the fight against medical misinformation and change the world through charity by becoming a Doctor Mike Resident on Patreon where every month I donate 100% of the proceeds to the charity, organization, or cause of your choice! Residents get access to bonus content, an exclusive discord community, and many other perks for just $10 a month. Become a Resident today:<br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/doctormike">https://www.patreon.com/doctormike</a><br /><br />Please SUBSCRIBE for new videos every Wednesday afternoon and Sunday morning!  <a rel="nofollow" target="blank" href="https://goo.gl/87kYq6">https://goo.gl/87kYq6</a><br /><br />Let’s connect:<br /><br />IG <a rel="nofollow" target="blank" href="https://goo.gl/41ZS7w">https://goo.gl/41ZS7w</a> - Doctor Mike<br />Reddit <a rel="nofollow" target="blank" href="https://www.reddit.com/r/DoctorMike/">https://www.reddit.com/r/DoctorMike/</a><br />Twitter <a rel="nofollow" target="blank" href="https://goo.gl/kzmGs5">https://goo.gl/kzmGs5</a> - Real Doctor Mike<br />Facebook <a rel="nofollow" target="blank" href="https://goo.gl/QH4nJS">https://goo.gl/QH4nJS</a> - Real Doctor Mike<br /><br />Contact Email: DoctorMikeMedia@Gmail.com<br /><br />P.O. Box (send me stuffs):<br />340 W 42nd St # 2695<br />NY, NY 10108<br /><br />* Select photos/videos provided by Getty Images *<br /><br />** The information in this video is not intended nor implied to be a substitute for professional medical advice, diagnosis or treatment. All content, including text, graphics, images, and information, contained in this video is for general information purposes only and does not replace a consultation with your own doctor/health professional **{% endraw %}
