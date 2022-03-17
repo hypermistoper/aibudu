@@ -1,0 +1,15 @@
+---
+title: "How Hasan Piker Became Our Generation’s Top Political Pundit | Blueprint"
+image: "https:\/\/i.ytimg.com\/vi\/oza5eNpWP00\/hqdefault.jpg"
+vid_id: "oza5eNpWP00"
+categories: "Entertainment"
+tags: ["sneakerhead","complex","complex originals"]
+date: "2022-03-17T22:27:34+03:00"
+vid_date: "2022-03-16T19:00:17Z"
+duration: "PT22M9S"
+viewcount: "53337"
+likeCount: "6703"
+dislikeCount: ""
+channel: "Complex"
+---
+{% raw %}Hasan Piker always knew he had a knack for debunking arguments. Starting off as a fill-in host for the YouTube news show “The Young Turks,” Hasan garnered attention for his political analysis around the 2016 elections. Soon after, he started combining news commentary with Twitch streaming under the handle hasanabi, creating the prototype of a new kind of political pundit. No matter how controversial the topic, Hasan has never shied away from offering his uncensored opinions. His determination to educate and inform has made him one of the most-viewed, most-subscribed-to, and at times, most-talked-about streamer on Twitch.<br /><br />There are more ways than ever to &quot;make it&quot; these days, and like snowflakes, no two journeys are identical. On &quot;Blueprint,&quot; a diverse range of influential people reveal the lessons they learned on their paths to success—direct to camera with no filter. From the origin stories of Lyrical Lemonade founder Cole Bennett and TV mogul Mona Scott-Young to the career pivot of rapper-turned-exec Lil Bibby, learn how small victories can add up to big wins. Also featured in the series: unconventional advice from Twitch's most popular streamer Hasan Piker and words of wisdom from Netflix CMO Bozoma Saint John. These are their blueprints—it's up to you to create yours.<br /><br />Subscribe to Complex on YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Complex">https://www.youtube.com/c/Complex</a><br /><br />Check out more of Complex here:<br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/complex">https://www.twitch.tv/complex</a><br /><a rel="nofollow" target="blank" href="http://www.complex.com">http://www.complex.com</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/Complex">https://twitter.com/Complex</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/complex">https://www.facebook.com/complex</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/complex">http://instagram.com/complex</a><br /><a rel="nofollow" target="blank" href="https://plus.google.com/+complex/">https://plus.google.com/+complex/</a><br /><br />COMPLEX is a community of creators and curators, armed with the Internet, committed to surfacing and sharing the voices and conversations that define our new America. Our videos exemplify convergence culture, exploring topics that include music, sneakers, style, sports, and pop culture through original shows and Complex News segments. Featuring your favorite celebrities, authoritative commentary, and a unique voice, our videos make culture pop. #Blueprint #HasanPiker{% endraw %}
