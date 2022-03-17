@@ -1,0 +1,15 @@
+---
+title: "Irish People Try St. Patrick's Day LIVE!"
+image: "https:\/\/i.ytimg.com\/vi\/OVTlYyFu7SY\/hqdefault.jpg"
+vid_id: "OVTlYyFu7SY"
+categories: "Entertainment"
+tags: ["irish people try","irish","people"]
+date: "2022-03-17T09:22:04+03:00"
+vid_date: "2022-03-17T00:42:54Z"
+duration: "PT3H30M18S"
+viewcount: "50554"
+likeCount: "2846"
+dislikeCount: ""
+channel: "The TRY Channel"
+---
+{% raw %}Join us for a few hours of Paddy's Day fun, games &amp; drink, as it aired live 16/03/2022!<br /><br />The Tryers featured in this video:<br />Paddy Murphy: <a rel="nofollow" target="blank" href="http://TRY.Media/Paddy">http://TRY.Media/Paddy</a><br />Nicole O'Connor: <a rel="nofollow" target="blank" href="http://TRY.Media/Nicole">http://TRY.Media/Nicole</a><br />Irish Jesus: <a rel="nofollow" target="blank" href="http://TRY.Media/Jesus">http://TRY.Media/Jesus</a><br />Jamie Jay Car: <a rel="nofollow" target="blank" href="http://TRY.Media/Jamie">http://TRY.Media/Jamie</a><br />Callyann Brennan: <a rel="nofollow" target="blank" href="http://TRY.Media/Callyann">http://TRY.Media/Callyann</a><br />Justine Stafford: <a rel="nofollow" target="blank" href="http://TRY.Media/Justine-Stafford">http://TRY.Media/Justine-Stafford</a><br />Lolsy Byrne: <a rel="nofollow" target="blank" href="http://TRY.Media/Lolsy">http://TRY.Media/Lolsy</a><br />Aidan Greene: <a rel="nofollow" target="blank" href="http://TRY.Media/Aidan">http://TRY.Media/Aidan</a><br /><br />Follow The TRY Channel:<br />Twitter: <a rel="nofollow" target="blank" href="https://TRY.Media/Twitter">https://TRY.Media/Twitter</a><br />Facebook: <a rel="nofollow" target="blank" href="https://TRY.Media/Facebook">https://TRY.Media/Facebook</a><br />Instagram: <a rel="nofollow" target="blank" href="https://TRY.Media/Instagram">https://TRY.Media/Instagram</a><br />TikTok: <a rel="nofollow" target="blank" href="https://TRY.media/TikTok">https://TRY.media/TikTok</a><br />Subreddit: <a rel="nofollow" target="blank" href="https://TRY.media/Reddit">https://TRY.media/Reddit</a><br /><br />Watch more from The TRY Channel:<br />Latest Uploads: <a rel="nofollow" target="blank" href="https://TRY.Media/LatestUploads">https://TRY.Media/LatestUploads</a><br />Popular Uploads Playlist: <a rel="nofollow" target="blank" href="https://TRY.Media/PopularUploads">https://TRY.Media/PopularUploads</a><br />Trying Alcohol Videos: <a rel="nofollow" target="blank" href="https://TRY.Media/Alcohol">https://TRY.Media/Alcohol</a><br />Trying American Things: <a rel="nofollow" target="blank" href="https://TRY.Media/American">https://TRY.Media/American</a><br /><br />_________________________________________<br /><br />Credits:<br />Content produced by The TRY Channel.<br />Music courtesy of Epidemic Sound.<br /><br />TRY is your new home on YouTube. A place where people try things for the first time. Similar to popular YouTube channels such as BuzzFeed, WatchCut, GMM &amp; TheFineBros' React, our goal is to create content to entertain you and to bring a positive light to the start or end of your day.{% endraw %}
