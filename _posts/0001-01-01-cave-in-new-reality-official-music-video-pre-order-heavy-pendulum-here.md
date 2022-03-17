@@ -1,0 +1,15 @@
+---
+title: "CAVE IN - New Reality (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/KyUaPzGoQQ8\/hqdefault.jpg"
+vid_id: "KyUaPzGoQQ8"
+categories: "Music"
+tags: ["relapse records","metal","heavy metal"]
+date: "2022-03-17T07:48:16+03:00"
+vid_date: "2022-03-15T15:00:38Z"
+duration: "PT5M26S"
+viewcount: "40401"
+likeCount: "2065"
+dislikeCount: ""
+channel: "RelapseRecords"
+---
+{% raw %}Pre-Order 'Heavy Pendulum' Here: <a rel="nofollow" target="blank" href="http://bit.ly/cavein-heavypendulum">http://bit.ly/cavein-heavypendulum</a><br />Digital Downloads/Streaming: <a rel="nofollow" target="blank" href="https://orcd.co/cavein-heavypendulum">https://orcd.co/cavein-heavypendulum</a><br />Subscribe to Relapse Records Channel: <a rel="nofollow" target="blank" href="http://bit.ly/RelapseYouTube">http://bit.ly/RelapseYouTube</a><br /><br />New CAVE IN album 'Heavy Pendulum' out May 20 on DLX 2xLP/2xLP/CD/CS/Digital.<br /><br />Michael Gilday - Director, Producer, Editor<br />Brendan Coughlin - Director of Photography <br />Derek Whittington - Gaffer<br />Rebecca Greene - Production Designer<br />Courtney Gilday - Colorist, Editor<br />Uros Perisic - VFX Supervisor<br />Heather Chapman - Addl. Concept Art<br />Zach Weeks - All Around Awesome Guy<br />Kurt Ballou - Grumpy Guy who let us destroy GodCity<br /><br />Lyrics:<br /><br />Granite state of shock<br />See the fallen rock<br />Slip off the mountain<br />Face of man within<br /><br />New reality<br />Never knew would be <br />Dawning on me<br />New reality <br />Night is moving on<br />Mourning the sun<br /><br />New reality<br />Never knew would be<br />New reality<br />Dawning on me<br /><br />Where red river runs<br />See what one becomes<br />Old man left behind<br />Face of our decline <br /><br />Official Links:<br /><br />CAVE IN on FacebooK: <a rel="nofollow" target="blank" href="https://www.facebook.com/CaveIn.Official/">https://www.facebook.com/CaveIn.Official/</a> <br />CAVE IN on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/cave_in_boston/">https://www.instagram.com/cave_in_boston/</a><br />CAVE IN on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/cave_in_boston">https://twitter.com/cave_in_boston</a><br />CAVE IN on Bandcamp: <a rel="nofollow" target="blank" href="https://cavein.bandcamp.com">https://cavein.bandcamp.com</a><br /><br /><a rel="nofollow" target="blank" href="http://www.relapse.com​​">http://www.relapse.com​​</a><br /><a rel="nofollow" target="blank" href="http://www.facebook.com/relapserecords​​">http://www.facebook.com/relapserecords​​</a><br /><a rel="nofollow" target="blank" href="http://www.relapserecords.bandcamp.com​​">http://www.relapserecords.bandcamp.com​​</a><br /><a rel="nofollow" target="blank" href="http://www.twitter.com/relapserecords​​">http://www.twitter.com/relapserecords​​</a><br /><a rel="nofollow" target="blank" href="http://www.instagram.com/relapserecords​">http://www.instagram.com/relapserecords​</a><br /><br />#CaveIn #HeavyPendulum #Metal #Hardcore #RelapseRecords{% endraw %}
