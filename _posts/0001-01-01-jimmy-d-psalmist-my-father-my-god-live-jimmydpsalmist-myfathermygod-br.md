@@ -1,0 +1,15 @@
+---
+title: "JIMMY D PSALMIST - MY FATHER MY GOD (LIVE)"
+image: "https:\/\/i.ytimg.com\/vi\/X2aV6fGGEtA\/hqdefault.jpg"
+vid_id: "X2aV6fGGEtA"
+categories: "Music"
+tags: ["jimmydpsalmist","MIGHTYMANOFWAR","myfathermyGod"]
+date: "2022-03-18T07:35:52+03:00"
+vid_date: "2021-07-23T09:09:51Z"
+duration: "PT5M55S"
+viewcount: "885910"
+likeCount: "6425"
+dislikeCount: ""
+channel: "Jimmy D Psalmist"
+---
+{% raw %}#JimmyDPsalmist #MyFatherMyGod<br /><br />Jimmy D Psalmist ministers &quot;My Father My God&quot; live at the WAR-SHIP EXPERIENCE CONCERT 2021.<br /><br />Experience the God who is not just your God but Your Father. Enjoy the love and protection of your Father<br /><br />Production <br />Recording Engineer: Greenwox <br />Director: Manus Akpanke <br /><br />Video Production: Lanre Esho<br /><br /><br />Get Jimmy D Psalmist’s Latest Album here <a rel="nofollow" target="blank" href="https://itunes.apple.com/ng/artist/jimmy-d-psalmist/1174673826">https://itunes.apple.com/ng/artist/jimmy-d-psalmist/1174673826</a><br /><br />Subscribe to Jimmy D Psalmist’s Official YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/JimmyDPsalmist">https://www.youtube.com/user/JimmyDPsalmist</a><br /><br />Connect with Jimmy:<br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/JimmyDPsalmist">https://twitter.com/JimmyDPsalmist</a> <br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/jimmydpsalmist">https://www.instagram.com/jimmydpsalmist</a> <br /><br />Facebook: www.facebook.com/jimmydpsalmistfanpage<br /><br />'MY FATHER MY GOD' is also available on all Digital Stores such as Amazon Music, Spotify, Deezer, Boomplay, iTunes and all worldwide digital platforms for Download and Streaming. <br /><br />LYRICS <br /><br />MY FATHER MY GOD<br /><br />You can not be hired<br />You cant be hired<br />You are God all by yourself <br />You're not elected, you're not appointed <br />You're God even before time began<br />When you open no man can close<br />When you close no man can open<br />You are the God the makes<br />You cannot be made<br />Yaweh who can question who you are<br /><br /><br />You are my Father<br />You are my God<br />Yaweh that's who you are<br />You are my Father<br />You are my God<br />Yaweh that's who you are<br /><br /><br />You are my song<br />My salvation<br />You are my shield<br />You are my rock<br />You made the cloud your chariots <br />You ride upon the wings of the wind<br />O Lord you are God all by yourself<br />My strong tower<br />Miracle worker<br />You're my testimony<br />My defender<br />You are the bridge over the troubled waters<br />Yaweh you are the owner of the world<br /><br />You are my Father<br />You are my God<br />Yaweh that's who you are<br />You are my Father<br />You are my God<br />Yaweh that's who you are<br /><br />Chineke <br />Nnam oo Nnam oo<br /><br />Oluwa<br />Baba mi Babi mi<br /><br />Mungu Wang<br />Baba yanku<br /><br />Yaweh <br />My father My father{% endraw %}
