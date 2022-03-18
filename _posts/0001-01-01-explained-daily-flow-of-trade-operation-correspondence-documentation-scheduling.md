@@ -1,0 +1,15 @@
+---
+title: "Explained Daily Flow of Trade Operation. Correspondence, Documentation, Scheduling, and so on."
+image: "https:\/\/i.ytimg.com\/vi\/-9I9Lqwx6tM\/hqdefault.jpg"
+vid_id: "-9I9Lqwx6tM"
+categories: "Education"
+tags: ["Explained","Daily","Trade"]
+date: "2022-03-18T11:47:54+03:00"
+vid_date: "2022-02-11T03:00:00Z"
+duration: "PT10M7S"
+viewcount: "4928"
+likeCount: "178"
+dislikeCount: ""
+channel: "【Logistics YouTuber】 IINO san"
+---
+{% raw %}contents<br />00:00<br />00:22  About Trade Operation<br />01:40  Main Tasks<br />02:41  1. Correspondence<br />03:49  2. Scheduling<br />04:16  3. Payment Transaction<br />05:13  4. Domestic Delivery Arrangement<br />05:44  5. Issueing Shipping Documents<br />06:55  6. Customs Documentation<br />07:28  7. Submit B/L<br />07:35  8. Scheduling<br />07:59  9. Correspondence<br />08:19  10. End of Work<br />08:46  Summary<br /><br />■●■●■●■●■●■●■●■●<br /><br />★Contact to IINO san★<br /><br />☆Radio Channel ☆ Daily Updated☆<br />IINO san's Logistics Radio<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCd76WA-T26YpJ9yMOHyPujA">https://www.youtube.com/channel/UCd76WA-T26YpJ9yMOHyPujA</a><br /><br />-----------------------------------------<br />Facebook Page<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/iinosaan">https://www.facebook.com/iinosaan</a><br /><br />Linked In Message<br /><a rel="nofollow" target="blank" href="https://www.linkedin.com/in/shinya-iino/">https://www.linkedin.com/in/shinya-iino/</a><br /><br />Twitter DM<br /><a rel="nofollow" target="blank" href="https://twitter.com/iino_saan">https://twitter.com/iino_saan</a><br />-----------------------------------------<br /><br />★Logistics Manual for Beginners★<br /><a rel="nofollow" target="blank" href="http://forwarder-university.com/training-lesson/">http://forwarder-university.com/training-lesson/</a><br />** All videos and text explanation are in this page **<br /><br />・Forwarder University - Logistics Blog<br /><a rel="nofollow" target="blank" href="http://forwarder-university.com/">http://forwarder-university.com/</a><br /><br />・Instagram - Logistics can be art<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/iino_san_logistics/">https://www.instagram.com/iino_san_logistics/</a><br /><br />・Company Website<br /><a rel="nofollow" target="blank" href="http://www.hps-trade.co.th/">http://www.hps-trade.co.th/</a><br /><br /><br />【Profile】<br />Shinya Iino<br /><br />15 years experience in business development in Asia and South East Asia. Marketing and Sales specialist in especially Logistics field.<br /><br />Over 5,000 TEU Monthly volume for export and import in our Group company in Thailand.<br /><br />・Established Forwarding Company in Thailand.<br />・Achieved THB 7.5 million ordinary income in the first year.<br />・Management and Training Thai staffs with Japanese hospitality style.<br />・Strong communication skill with Japanese, English and Thai language.<br />・Succeed in expanding our business to the total logistics provider.{% endraw %}
