@@ -1,0 +1,15 @@
+---
+title: "Doctor Explains How To REDUCE INFLAMMATION & Optimize Immune System | Roger Seheult"
+image: "https:\/\/i.ytimg.com\/vi\/XUBtgYIQFm0\/hqdefault.jpg"
+vid_id: "XUBtgYIQFm0"
+categories: "Entertainment"
+tags: ["Mark Hyman","Mark Hyman interview","Mark Hyman live longer"]
+date: "2022-03-19T11:08:56+03:00"
+vid_date: "2022-03-16T13:00:30Z"
+duration: "PT1H3M55S"
+viewcount: "15383"
+likeCount: "683"
+dislikeCount: ""
+channel: "Mark Hyman, MD"
+---
+{% raw %}Get my top tips for optimal health and vitality: <a rel="nofollow" target="blank" href="https://bit.ly/MarksPicks">https://bit.ly/MarksPicks</a><br /><br />For the past two years, we’ve been flooded with Covid-related information. We’ve heard conflicting recommendations on everything from how to prevent the spread, reduce the severity, and recover, but many people are still unsure of which actions make the most impact. To me, a key underlying issue of the pandemic is that we aren’t addressing the health of the host. With the virus actively looking for a new home, it’s within our power to make our bodies the least appealing place for it to settle down. <br /><br />Today on The Doctor’s Farmacy, I talk to Dr. Roger Seheult about giving our bodies the best inputs to stay resilient against Covid and other infectious diseases. Dr. Roger Seheult is currently an Associate Clinical Professor at the University of California, Riverside School of Medicine, and an Assistant Clinical Professor at the School of Medicine and Allied Health at Loma Linda University. Dr. Seheult is quadruple board-certified in Internal Medicine, Pulmonary Diseases, Critical Care Medicine, and Sleep Medicine through the American Board of Internal Medicine. He is also the co-founder of MedCram, an online medical education company that helps healthcare professionals and laypeople understand medical topics clearly.<br /><br />This episode is brought to you by Thrive Market, Rupa Health, and Eight Sleep.<br /><br />Thrive Market is an online, membership-based grocery store that makes eating well convenient and more affordable. Join today at <a rel="nofollow" target="blank" href="http://thrivemarket.com/hyman">http://thrivemarket.com/hyman</a> to receive an extra 40% off your first order and a free gift.<br /><br />Rupa Health is a place where Functional Medicine practitioners can access more than 2,000 specialty lab tests from over 20 labs like DUTCH, Vibrant America, Genova, and Great Plains. You can check out a free, live demo with a Q&amp;A or create an account at <a rel="nofollow" target="blank" href="http://RupaHealth.com.">http://RupaHealth.com.</a><br /> <br />Eight Sleep’s Pod Pro mattress is so smart that it adjusts your temperature and also gives you individualized recommendations on how to sleep better the next night. To get yours, go to <a rel="nofollow" target="blank" href="http://eightsleep.com/mark">http://eightsleep.com/mark</a> to check out the Pod Pro mattress or mattress cover and save $150 at checkout.{% endraw %}
