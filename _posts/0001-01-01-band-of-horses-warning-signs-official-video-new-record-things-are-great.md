@@ -1,0 +1,15 @@
+---
+title: "Band of Horses - Warning Signs (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/6iUt6h8XXf0\/hqdefault.jpg"
+vid_id: "6iUt6h8XXf0"
+categories: "Music"
+tags: ["bandofhorses","band of horses","things are great"]
+date: "2022-03-19T23:15:37+03:00"
+vid_date: "2022-03-04T14:00:02Z"
+duration: "PT4M22S"
+viewcount: "127868"
+likeCount: "2917"
+dislikeCount: ""
+channel: "Band Of Horses"
+---
+{% raw %}NEW RECORD, 'THINGS ARE GREAT' OUT NOW: <a rel="nofollow" target="blank" href="https://band-of-horses.lnk.to/thingsaregreat">https://band-of-horses.lnk.to/thingsaregreat</a><br /><br />FOLLOW BAND OF HORSES: <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/bandofhorses">https://www.instagram.com/bandofhorses</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/bandofhorses">https://www.facebook.com/bandofhorses</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/bandofhorses">https://twitter.com/bandofhorses</a><br /><a rel="nofollow" target="blank" href="http://www.bandofhorses.com">http://www.bandofhorses.com</a><br /><br />LYRICS:<br />Small talk with a registered nurse<br />Not to cry in front of people at work <br />That’s hard, hard, hard, at times you know<br /><br />Get reminded of the earlier days <br />End of April ’78 <br />That was a long, long, long, long time ago <br /><br />And you showed a lot of warning signs<br />You made your own situation mine<br />Now your problem is mine <br /><br />You don’t want help<br />You don’t need me <br />You don’t look well <br />And you don’t want anything <br />You don’t want anything <br /><br />Slim pickings when the weather is snow <br />Pretty winded on a bicycle <br />It’s been quite, quite, quite, quite a row to hoe<br /><br />A hot dinner on souvenir plate<br />The part of town where the money ain’t <br />But things are fine, fine, fine we’re on our own <br /><br />We don’t want help<br />We don’t take handouts <br />We won’t seek sympathy <br />And we don’t anything, we don’t want anything, we don’t <br /><br />Get reminded of the earlier days<br />April ’78, long, long, long, time ago<br />You keep it bottled up inside and let it out from time to time<br />Yeah, the problems mine<br />I don’t want help, I don’t want counseling, I won’t go to therapy <br />I won’t do anything <br /><br /><br />Creature: Nico Lonetree (@nicogoofs)<br /><br />Director/Editor: Ben Fee (@benfeever)<br />Producer: Bren Lyn Haragan (@winonashoplifts)<br />Director of Photography: Jess Dunlap (@jessdunlap)<br />Production Designer/Creature Designer: Sunny Mills (sunshine_acid)<br />TV Installation: Media Pollution (@mediapollution)<br />Gaffer: Luis Cardenas (@luiscardenassv)<br />Key Grip: Josh Carrasco (@js0verl0ad)<br />Colorist: Bossi Baker (@bossibaker)<br />Director Rep: Doug Klinger/Reprobates (@doug_klinger, @reprobates_tv)<br />Production Assistant: Miguel Oro <br />First AC: Arthur Castellano @arthurcastelkano.dp<br /><br /><br />#BandofHorses #WarningSigns #ThingsAreGreat{% endraw %}
