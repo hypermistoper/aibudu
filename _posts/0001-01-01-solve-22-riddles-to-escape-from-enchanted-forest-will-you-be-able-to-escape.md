@@ -1,0 +1,15 @@
+---
+title: "Solve 22 Riddles to Escape From Enchanted Forest"
+image: "https:\/\/i.ytimg.com\/vi\/MSj_QAq9Mfw\/hqdefault.jpg"
+vid_id: "MSj_QAq9Mfw"
+categories: "Entertainment"
+tags: ["bright side","brightside","riddles"]
+date: "2022-03-19T15:31:22+03:00"
+vid_date: "2022-03-11T04:00:05Z"
+duration: "PT13M57S"
+viewcount: "97882"
+likeCount: "1480"
+dislikeCount: ""
+channel: "BRIGHT SIDE"
+---
+{% raw %}Will you be able to escape from an enchanted forest? There you'll meet elves, see the trees that don't cast any shadows, and talk to a strange wizard. You'll need all your attention to detail, fearlessness and analytical skills to crack all of these 22 riddles! But the result will be rewarding: only the brightest minds can crack them. You'll end up feeling refreshed and ready to meet any challenge. Puzzles help our concentration, focus and brain dexterity. <br /><br /><br /><br />#brightside<br /><br />TIMESTAMPS<br />Kitty met an elf 00:00<br />How many people are there? 00:30<br />Who's the thief? 00:56<br />Magic field riddle 01:50<br />Jewelry store thief 02:18<br />Elderly stargazer 03:20<br />5 weird details 04:23<br />Find all the ingredients emojis 04:55<br />Fake waiter 08:18<br />Who stole the money? 09:00<br />Diamond tiara riddle 10:00<br />2 prisoners riddle 12:13<br />Noah's puzzles 13:08<br /><br />Animation is created by Bright Side.<br />----------------------------------------------------------------------------------------<br />Music by Epidemic Sound <a rel="nofollow" target="blank" href="https://www.epidemicsound.com">https://www.epidemicsound.com</a> <br /><br />Check our Bright Side podcast on Spotify and leave a positive review! <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV">https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV</a> <br /><br />Subscribe to Bright Side: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a> <br />----------------------------------------------------------------------------------------<br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/brightside">https://www.facebook.com/brightside</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brightside.official">https://www.instagram.com/brightside.official</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brightside.official?lang=en">https://www.tiktok.com/@brightside.official?lang=en</a> <br /><br />Stock materials (photos, footages and other):<br /><a rel="nofollow" target="blank" href="https://www.depositphotos.com">https://www.depositphotos.com</a><br /><a rel="nofollow" target="blank" href="https://www.shutterstock.com">https://www.shutterstock.com</a><br /><a rel="nofollow" target="blank" href="https://www.eastnews.ru">https://www.eastnews.ru</a><br />----------------------------------------------------------------------------------------<br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="http://www.brightside.me">http://www.brightside.me</a>{% endraw %}
