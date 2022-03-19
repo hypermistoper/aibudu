@@ -1,0 +1,15 @@
+---
+title: "WE ARE ONE - Future (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/TPMbiokdRas\/hqdefault.jpg"
+vid_id: "TPMbiokdRas"
+categories: "Music"
+tags: ["Music video","We are one","Future"]
+date: "2022-03-19T06:11:04+03:00"
+vid_date: "2022-03-18T23:31:08Z"
+duration: "PT5M20S"
+viewcount: "248"
+likeCount: "120"
+dislikeCount: ""
+channel: "WE ARE ONE"
+---
+{% raw %}The official music video for “Future” by WE ARE ONE available now: <a rel="nofollow" target="blank" href="https://smarturl.it/waofuture">https://smarturl.it/waofuture</a><br /><br /><br />#WEAREONE #waoband #MusicVideo<br /><br />Joint the WE ARE ONE fam:<br />Web: <a rel="nofollow" target="blank" href="http://weareoneband.com">http://weareoneband.com</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/waoband">http://instagram.com/waoband</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/waoband">http://facebook.com/waoband</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/waoband">http://twitter.com/waoband</a><br /><br /><br />Music Video written and produced by @Eyeland Film: <a rel="nofollow" target="blank" href="http://instagram.com/eyelandfilm">http://instagram.com/eyelandfilm</a><br /><br /><br />“Future”<br />Words and Music by Dave Krist, Stephen Krist &amp; Tyler Kreiner<br />© 2022 Mainstay Records<br /><br />Lyrics:<br /><br />I wanna know what tomorrow holds<br />But I know if I know I won’t know you<br />Up to my neck in perfection’s press<br />The cause, fighting for applause<br /><br />They say the future is following hearts<br />But I’m not subscribing to all of my wants<br />Tomorrow is trickin’ the best of us<br /><br />But I’m not scared<br />The future is brighter than fear<br />So I’ll just dare<br />With You Lord I’m walking on air<br />Oh I’ll be fine cause all of what’s ahead<br />Is final in what You said then and now<br />Your future is where I’m found<br /><br />I get so tangled inside my head<br />I’m lost, oh I’m lost, a maze I build of thought<br />Please help me Jesus I’m givin’ up control<br />A target’s on my soul <br /><br />They say that breath is for livin’ it up<br />But death is a future that’s hardly begun<br />Tomorrow is trickin’ the best of us<br /><br />So I’m not scared<br />The future is brighter than fear<br />So I’ll just dare<br />With You Lord I’m walking on air<br />Oh I’ll be fine cause all of what’s ahead<br />Is final in what You said then and now<br />Your future is where I’m found<br /><br />Now<br />Your future is where I’m found<br />I’m steppin’ in freedom now<br />Your future is where I’m found<br />I’m steppin’ in freedom now<br />Your future is where I’m found<br />I’m steppin’ in freedom now<br />Your future is where I’m found<br />I’m steppin’ I’m steppin’<br /><br />Yeah I’m not scared<br />The future is brighter than fear<br />So I’ll just dare<br />With You Lord I’m walking on air<br />Oh I’ll be fine cause all of what’s ahead<br />Is final in what You said then and now<br />Your future is where I’m found<br /><br /><br />#WEAREONE #waoband #MusicVideo{% endraw %}
