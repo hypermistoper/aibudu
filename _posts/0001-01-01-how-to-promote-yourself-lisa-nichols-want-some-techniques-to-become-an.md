@@ -1,0 +1,15 @@
+---
+title: "How to Promote Yourself  - Lisa Nichols"
+image: "https:\/\/i.ytimg.com\/vi\/0GiYNGcmXcw\/hqdefault.jpg"
+vid_id: "0GiYNGcmXcw"
+categories: "People-Blogs"
+tags: ["Lisa Nichols","motivation","self-help"]
+date: "2022-03-19T15:10:30+03:00"
+vid_date: "2022-03-18T22:00:09Z"
+duration: "PT10M14S"
+viewcount: "1598"
+likeCount: "264"
+dislikeCount: ""
+channel: "Lisa Nichols"
+---
+{% raw %}Want some techniques to become an Unforgettable Speaker? Join my free webinar From Good To Unforgettable: <a rel="nofollow" target="blank" href="https://webinars.motivatingthemasses.com/fromgood2unforgettable/">https://webinars.motivatingthemasses.com/fromgood2unforgettable/</a><br /><br /><br />Hey hey hey!  I appreciate you stopping by!  For information on my live events, trainings and free resources, please visit my website:  <a rel="nofollow" target="blank" href="http://bit.ly/LisaNicholsMTM">http://bit.ly/LisaNicholsMTM</a><br /><br />——<br /><br />One of our tribe members that attended the Powerhouse Speakers Event has a question about how to promote herself – she is already using social media and has a beautiful website, but she doesn’t feel like she’s getting the results she’s looking for. I know like I know: she is not alone. <br /><br />Lots of entrepreneurs are struggling with the same situation. People are asking themselves, “What am I missing? What am I doing wrong?” I would ask, “How are you using social media? “ I use Business Building Media, which is social media, but I use it for the purpose of building my business, rather than for social interaction.<br /> <br />I have good news for you! Here’s a list of the TOP THREE tips for promoting your business, and it doesn’t require you to abandon social media, but rather to make some shifts in the way you are using it to promote yourself and make connections. Are you ready for the delicious details? Ok, here we go!<br /><br />#LisaNichols #LisaNicholsShow #PromoteYourself<br />__ __ <br /><br />Don't miss another new episode!  Subscribe NOW to The Lisa Nichols Show:<br /><a rel="nofollow" target="blank" href="http://bit.ly/LisaNicholsShow">http://bit.ly/LisaNicholsShow</a><br /><br />Follow Lisa Nichols here:<br />on Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/LisaNicholsFacebook">http://bit.ly/LisaNicholsFacebook</a><br />on Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/LisaNicholsTwitter">http://bit.ly/LisaNicholsTwitter</a><br />on Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/LisaNicholsInstagram">http://bit.ly/LisaNicholsInstagram</a><br />on Pinterest: <a rel="nofollow" target="blank" href="http://bit.ly/LisaNicholsPinterest">http://bit.ly/LisaNicholsPinterest</a><br />on LinkedIn: <a rel="nofollow" target="blank" href="http://bit.ly/LisaNicholsLinkedIn">http://bit.ly/LisaNicholsLinkedIn</a><br /><br />For programs, events and more information:<br />Website: <a rel="nofollow" target="blank" href="http://bit.ly/MotivatingTheMasses">http://bit.ly/MotivatingTheMasses</a>{% endraw %}
