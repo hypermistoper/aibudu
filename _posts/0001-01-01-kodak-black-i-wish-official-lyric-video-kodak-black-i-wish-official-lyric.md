@@ -1,0 +1,15 @@
+---
+title: "Kodak Black - I Wish [Official Lyric Video]"
+image: "https:\/\/i.ytimg.com\/vi\/ZlcsQ2_v2To\/hqdefault.jpg"
+vid_id: "ZlcsQ2_v2To"
+categories: "Music"
+tags: ["kodak","black","kodak black"]
+date: "2022-03-19T13:45:16+03:00"
+vid_date: "2022-03-17T16:00:25Z"
+duration: "PT2M51S"
+viewcount: "14870"
+likeCount: "672"
+dislikeCount: ""
+channel: "Kodak Black"
+---
+{% raw %}Kodak Black - I Wish [Official Lyric Video]<br /><br />Stream/Download 'Back For Everything' Album OUT NOW - <a rel="nofollow" target="blank" href="https://kodak.lnk.to/BackForEverything">https://kodak.lnk.to/BackForEverything</a><br />Grinding All Season Video - <a rel="nofollow" target="blank" href="https://youtu.be/8thpVH-K4S0">https://youtu.be/8thpVH-K4S0</a><br />Super Gremlin Video - <a rel="nofollow" target="blank" href="https://youtu.be/kiB9qk4gnt4">https://youtu.be/kiB9qk4gnt4</a><br />Love &amp; War - <a rel="nofollow" target="blank" href="https://youtu.be/IstjY83C3_s">https://youtu.be/IstjY83C3_s</a><br /> <br />Subscribe for more official content from Kodak Black:<br /><a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/KBsubscribe">https://Atlantic.lnk.to/KBsubscribe</a><br /><br />Follow Kodak Black<br /><a rel="nofollow" target="blank" href="https://twitter.com/KodakBlack1k">https://twitter.com/KodakBlack1k</a><br /><a rel="nofollow" target="blank" href="https://facebook.com/TheRealKodakBlack">https://facebook.com/TheRealKodakBlack</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/kodakblack">https://instagram.com/kodakblack</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/kodak-black">https://soundcloud.com/kodak-black</a><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/46SHBwWsqBkxI7EeeBEQG7">https://open.spotify.com/artist/46SHBwWsqBkxI7EeeBEQG7</a><br /><br />The official YouTube channel of Atlantic Records artist Kodak Black.<br /><br />2017 saw Kodak rack up certifications including: gold-certified album ‘Painting Pictures’, 2x platinum single “Tunnel Vision”, and gold-certified track “Too Many Years (feat. PnB Rock)”. In 2017, Kodak Black was on both Rolling Stone’s and Complex’s “Best of 2017” lists, as well as Billboard’s “21 Under 21” list. As well, he released ‘Project Baby 2’ with the single “Codeine Dreaming”.<br /><br />His 2018 mixtape ‘Heart Break Kodak’ went on to reach #15 on the US Top R&amp;B/Hip-Hop chart. Kodak later revealed his studio album ‘Dying to Live’, debuting #1 on the Billboard 200. The album featured “Testimony” and “Zeze (feat. Travis Scott &amp; Offset)”, which earned #1 on the Top R&amp;B/Hip-Hop Songs and Billboard 200 charts.<br /><br />He has also collaborated with major artists such as Gucci Mane and Bruno Mars on “Wake Up In The Sky” and XXXTentacion on “Roll In Peace”.<br /><br />Subscribe for more from Kodak Black: <a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/KBsubscribe">https://Atlantic.lnk.to/KBsubscribe</a><br /><br />#KodakBlack #IWish #BackForEverything{% endraw %}
