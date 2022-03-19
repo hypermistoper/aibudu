@@ -1,0 +1,15 @@
+---
+title: "How I Run My MILLION Dollar Business From Home at 27"
+image: "https:\/\/i.ytimg.com\/vi\/jSUfOlRzqiE\/hqdefault.jpg"
+vid_id: "jSUfOlRzqiE"
+categories: "People-Blogs"
+tags: ["EMBROIDERY","EMBROIDERY BUSINESS","ETSY SELLER"]
+date: "2022-03-19T22:29:01+03:00"
+vid_date: "2022-03-18T15:00:12Z"
+duration: "PT21M40S"
+viewcount: "12918"
+likeCount: "1387"
+dislikeCount: ""
+channel: "Angela Jasmina"
+---
+{% raw %}✨Embrilliance Embroidery Software:  <a rel="nofollow" target="blank" href="https://www.embrilliance.com/jamaffiliates/angelajasmina">https://www.embrilliance.com/jamaffiliates/angelajasmina</a><br />✨Heat Presses: <a rel="nofollow" target="blank" href="https://shrsl.com/3ffzj">https://shrsl.com/3ffzj</a><br />✨Heat Transfer Vinyl: <a rel="nofollow" target="blank" href="https://shrsl.com/2sn4m">https://shrsl.com/2sn4m</a><br />✨ To get FREE SHIPPING on your Mighty Hoop call 262-257-0930 use Code &quot;KidsCustom&quot; (USA ONLY<br />--------------------------------------------------------------------------<br />For more information on the MELCOEMT16X Embroidery Machine Click here <a rel="nofollow" target="blank" href="https://melco.com/angela_melco/">https://melco.com/angela_melco/</a> or contact Todd Eggersman, mention Angela from YouTube (770) 820-8002 teggersman@melco.com Thank you :) <br />--------------------------------------------------------------------------<br />Follow me on Social Media: <br /><a rel="nofollow" target="blank" href="https://instagram.com/angelajasminaa">https://instagram.com/angelajasminaa</a> <br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@angelajasminaa">https://www.tiktok.com/@angelajasminaa</a><br />--------------------------------------------------------------------------<br />My Websites: <br />AJ BLANKS (blank shirts for embroidery/vinyl): <a rel="nofollow" target="blank" href="https://ajblanks.com">https://ajblanks.com</a><br />KCD (ribbon, embroidery vinyl &amp; fabric): <a rel="nofollow" target="blank" href="https://kidscustomdesigns.com">https://kidscustomdesigns.com</a><br />--------------------------------------------------------------------------<br />Join My CFFans Page for exclusive content and behind the scenes! <br /><a rel="nofollow" target="blank" href="https://fans.creativefabrica.com/creators/angela-jasmina/">https://fans.creativefabrica.com/creators/angela-jasmina/</a><br /><br />Creative Fabrica All Access Memebership: <a rel="nofollow" target="blank" href="https://www.creativefabrica.com/promo/1064/CFGHIJKLMNO/ref/291280/">https://www.creativefabrica.com/promo/1064/CFGHIJKLMNO/ref/291280/</a><br /><br />Supplies I use from Amazon: <br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/angelajasmina">https://www.amazon.com/shop/angelajasmina</a> <br /><br />Email: Kidscustomdesigns@gmail.com<br />our Mailing Address: <br />Angela Potter<br />8843 Greenbelt Road<br />Box 303 <br />Greenbelt, MD 20770<br /><br />FULL DISCLAIMER: I make a small commission on my affiliate links<br />#MILLIONDOLLARBUSINESS #FIRSTMILLION #SMALLBUSINESS{% endraw %}
