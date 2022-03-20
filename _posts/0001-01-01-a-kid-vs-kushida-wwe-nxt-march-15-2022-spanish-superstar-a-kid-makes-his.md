@@ -1,0 +1,15 @@
+---
+title: "A-Kid vs. Kushida: WWE NXT, March 15, 2022"
+image: "https:\/\/i.ytimg.com\/vi\/CniSAImFXPU\/hqdefault.jpg"
+vid_id: "CniSAImFXPU"
+categories: "Sports"
+tags: ["A-Kid","Ikemen Jiro","Kushida"]
+date: "2022-03-21T00:50:43+03:00"
+vid_date: "2022-03-16T02:35:14Z"
+duration: "PT3M11S"
+viewcount: "84123"
+likeCount: "2833"
+dislikeCount: ""
+channel: "WWE"
+---
+{% raw %}Spanish Superstar A-Kid makes his NXT 2.0 debut in a thrilling showdown with Kushida. Catch WWE action on Peacock, WWE Network, FOX, USA Network, Sony India and more.<br />#WWENXT<br />Stream WWE on Peacock <a rel="nofollow" target="blank" href="https://pck.tv/3l4d8TP">https://pck.tv/3l4d8TP</a> in the U.S. and on WWE Network <a rel="nofollow" target="blank" href="http://wwe.yt/wwenetwork">http://wwe.yt/wwenetwork</a> everywhere else<br /><br />---------------------------------------------------------------------<br /><br />Follow WWE on YouTube for more exciting action!<br /><br />---------------------------------------------------------------------<br /><br />Subscribe to WWE on YouTube: <a rel="nofollow" target="blank" href="http://wwe.yt/">http://wwe.yt/</a><br /><br />Check out WWE.com for news and updates: <a rel="nofollow" target="blank" href="http://goo.gl/akf0J4">http://goo.gl/akf0J4</a><br /><br />Watch WWE on Sony in India: <a rel="nofollow" target="blank" href="http://www.wwe.com/SonySportsNetwork">http://www.wwe.com/SonySportsNetwork</a><br /><br />Watch WWE on Disney+ Hotstar in Indonesia: <a rel="nofollow" target="blank" href="http://www.wwe.com/hotstar">http://www.wwe.com/hotstar</a><br /><br />Find the latest Superstar gear at WWEShop: <a rel="nofollow" target="blank" href="http://shop.wwe.com">http://shop.wwe.com</a><br /><br />---------------------------------------------<br /><br />Check out our other channels!<br /><br />---------------------------------------------<br /><br />The Bella Twins: <a rel="nofollow" target="blank" href="https://www.youtube.com/thebellatwins">https://www.youtube.com/thebellatwins</a><br /><br />UpUpDownDown: <a rel="nofollow" target="blank" href="https://www.youtube.com/upupdowndown">https://www.youtube.com/upupdowndown</a><br /><br />WWEMusic: <a rel="nofollow" target="blank" href="https://www.youtube.com/wwemusic">https://www.youtube.com/wwemusic</a><br /><br />Total Divas: <a rel="nofollow" target="blank" href="https://www.youtube.com/wwetotaldivas">https://www.youtube.com/wwetotaldivas</a><br /><br />------------------------------------<br /><br />WWE on Social Media<br /><br />------------------------------------<br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/wwe">https://twitter.com/wwe</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/wwe">https://www.facebook.com/wwe</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/wwe/">https://www.instagram.com/wwe/</a><br /><br />Giphy: <a rel="nofollow" target="blank" href="https://giphy.com/wwe">https://giphy.com/wwe</a><br /><br />------------------------------------{% endraw %}
