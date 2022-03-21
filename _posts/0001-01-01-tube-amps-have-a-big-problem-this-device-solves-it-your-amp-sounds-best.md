@@ -1,0 +1,15 @@
+---
+title: "Tube Amps Have a BIG Problem. This Device SOLVES It."
+image: "https:\/\/i.ytimg.com\/vi\/Z1M55I_YiiE\/hqdefault.jpg"
+vid_id: "Z1M55I_YiiE"
+categories: "Music"
+tags: ["tim pierce","guitar","recording"]
+date: "2022-03-21T07:32:22+03:00"
+vid_date: "2022-03-19T15:36:38Z"
+duration: "PT11M"
+viewcount: "37904"
+likeCount: "2029"
+dislikeCount: ""
+channel: "Tim Pierce Guitar"
+---
+{% raw %}Your amp sounds best when it is opened up...and usually too loud for home AND for on stage.<br />This device captures your amps best tone at ANY volume. To me, It's revolutionary...<br />Made by my longtime friend, Stevie Fryette..<br /><a rel="nofollow" target="blank" href="https://www.fryette.com/power-station-one-hundred-ps-100-please-see-dealer-page/">https://www.fryette.com/power-station-one-hundred-ps-100-please-see-dealer-page/</a><br /><br />🎸If you haven't had a chance to check out the Masterclass recently, it is now over 1500 videos (more than 120 hours!) and there is a 14-Day free trial for you to see if it's right for you.<br /><br /> 👉Click Here to get your free trial: <a rel="nofollow" target="blank" href="https://www.timpierce.com/masterclass-info">https://www.timpierce.com/masterclass-info</a><br />——<br />👕 Tim Pierce shirts &amp; hoodies are here! Get yours at <a rel="nofollow" target="blank" href="https://bit.ly/2YjLs65">https://bit.ly/2YjLs65</a><br />——<br />✅Check out some of my FAVORITE GEAR on Sweetwater<br /><br />Super Sweet Boost: <a rel="nofollow" target="blank" href="https://imp.i114863.net/5bn0X3">https://imp.i114863.net/5bn0X3</a><br />Boss GE-7 EQ Pedal: <a rel="nofollow" target="blank" href="https://imp.i114863.net/qny6eN">https://imp.i114863.net/qny6eN</a><br />MXR M300 Digital Reverb: <a rel="nofollow" target="blank" href="https://imp.i114863.net/mgGyDa">https://imp.i114863.net/mgGyDa</a><br />Dunlop Volume Pedal: <a rel="nofollow" target="blank" href="https://imp.i114863.net/LP2dzL">https://imp.i114863.net/LP2dzL</a><br />Voodoo Lab Dingbat Pedalboard PX Package: <a rel="nofollow" target="blank" href="https://imp.i114863.net/rnXNAy">https://imp.i114863.net/rnXNAy</a><br />Voodoo Lab Pedal Power 2 PLUS: <a rel="nofollow" target="blank" href="https://imp.i114863.net/QObdRx">https://imp.i114863.net/QObdRx</a><br />Truetone 1 SPOT Slim 9V DC Adapter: <a rel="nofollow" target="blank" href="https://imp.i114863.net/P0bd2X">https://imp.i114863.net/P0bd2X</a><br /><br />Everyone needs PICKS! Check these out:<br />Dunlop Tortex Sharp: <a rel="nofollow" target="blank" href="https://imp.i114863.net/doGJb7">https://imp.i114863.net/doGJb7</a><br />Dunlop Tortex Standard: <a rel="nofollow" target="blank" href="https://imp.i114863.net/YgNmrB">https://imp.i114863.net/YgNmrB</a><br />Dunlop Nylon Max-Grip: <a rel="nofollow" target="blank" href="https://imp.i114863.net/Kezdoy">https://imp.i114863.net/Kezdoy</a><br /><br />00:00 Intro<br />00:13 Revolutionary<br />01:07 What's Going On?<br />02:53 Test<br />04:44 Front Panel<br />06:43 It's Worth It<br />06:43 Channel Switching<br />07:31 Effects Loop<br />08:57 Back<br />10:32 Thanks For Watching!{% endraw %}
