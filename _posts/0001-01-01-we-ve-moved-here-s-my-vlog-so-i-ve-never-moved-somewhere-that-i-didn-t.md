@@ -1,0 +1,15 @@
+---
+title: "WE'VE MOVED ... Here's my Vlog 🤷🏻‍♀️"
+image: "https:\/\/i.ytimg.com\/vi\/pF2MlaVS-CQ\/hqdefault.jpg"
+vid_id: "pF2MlaVS-CQ"
+categories: "Howto-Style"
+tags: ["YouTube","Beauty","Makeup"]
+date: "2022-03-22T00:25:09+03:00"
+vid_date: "2022-03-21T16:00:57Z"
+duration: "PT20M5S"
+viewcount: "160206"
+likeCount: "25217"
+dislikeCount: ""
+channel: "Tati"
+---
+{% raw %}So I've never moved somewhere that I didn't know anyone, so this is going to be an adventure.  Let me know in the comments if you like this new format and like to see more real life as it unfolds. xo's Tati<br /><br />SAVE 20% on Ilios Lighting Beauty Ring $249 <br /><a rel="nofollow" target="blank" href="https://www.ilioslighting.co/pages/_go_?ref=11141:287811&amp;discount=TATI20">https://www.ilioslighting.co/pages/_go_?ref=11141:287811&amp;discount=TATI20</a><br /><br />😇  BEST HAIR &amp; SKIN EVER! 🥝 <br />» » » <a rel="nofollow" target="blank" href="https://HaloBeauty.com">https://HaloBeauty.com</a><br /><br />▸ V I D E O S  M E N T I O N E D <br />FULL DAY TEST of BEAUTY BLENDER Bounce Foundation<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=x5ieGQ8PGLE">https://www.youtube.com/watch?v=x5ieGQ8PGLE</a><br /><br />▸ M A K E U P   W O R N <br />e.l.f. Putty Bronzer / Honey Drip $6<br />RCMA VK Palette $72<br />Beauty Blender BOUNCE Always On Radiant Skin Tint / Light 5 $29<br />Hourglass Vanish Airbrush Concealer $36<br />Sigma Beauty Ivy Eyeshadow Palette $29<br />Hourglass Voyeur Waterproof Liner $36<br />Makeup By Mario SoftSculpt Bronzer $28<br />L’Oreal True Match Super Blendable Blush / Baby Blossom $11.99<br />Mally Positive Radiance Skin Perfecting Highlighter $32<br />Maybelline Color Sensational Shaping Lip Liner / Totally Toffee $7.99<br />No7 Lip Gloss High Shine / Sparkling Rose $9.99<br />MAC Fix + Setting Spray $31<br />Pacifica Stellar Gaze Length &amp; Strength Mascara $14<br />Ellis Brooklyn SALT Eau de Parfum $105<br />Velour Lashes / Effortless $26<br /><br />▸ LET’S CONNECT<br />Instagram: @glamlifeguru<br /><a rel="nofollow" target="blank" href="http://instagram.com/glamlifeguru">http://instagram.com/glamlifeguru</a><br />Twitter: @glamlifeguru <br /><a rel="nofollow" target="blank" href="http://twitter.com/#!/glamlifeguru">http://twitter.com/#!/glamlifeguru</a><br />Email: Tati@GlamLifeGuru.com<br /><br /><br /><br />FTC DISCLAIMER:  This video is Not Sponsored and there are no affiliate links.<br /><br /><br />▸﻿ PR Mailing Address<br />Tati Westbrook<br />1905 Wilcox Ave<br />Suite 111<br />Los Angeles, CA  90068<br /><br /><br />All Rights Reserved © 2022, Tati Westbrook <br /><br /><br /><br /><br /><br /><br /><br />Hi I'm Tati Westbrook, thank you for watching, please be sure to check out my collection of makeup review videos where you'll find my best beauty tips, tricks and favorites on everything from top luxury cosmetics to my favorite drugstore makeup. Whether you're looking for a new product review, tutorial, beauty tip, haul or perhaps even a giveaway, I hope you enjoy watching.{% endraw %}
