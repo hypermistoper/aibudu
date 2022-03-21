@@ -1,0 +1,15 @@
+---
+title: "Stardust really is that insufferable"
+image: "https:\/\/i.ytimg.com\/vi\/DUaXxyu_dCA\/hqdefault.jpg"
+vid_id: "DUaXxyu_dCA"
+categories: "Entertainment"
+tags: ["Stardust really is that insufferable","stardust","THE WORST DEBATER ON TWITCH"]
+date: "2022-03-21T16:27:53+03:00"
+vid_date: "2022-03-20T20:00:10Z"
+duration: "PT46M7S"
+viewcount: "868"
+likeCount: "105"
+dislikeCount: ""
+channel: "Craig Beckett"
+---
+{% raw %}Massive thank you once again to my Patreon Members making this video possible. If you'd like to support, head over to <a rel="nofollow" target="blank" href="http://patreon.com/craigbeckett">http://patreon.com/craigbeckett</a><br /><br />Join the discord: <a rel="nofollow" target="blank" href="https://discord.gg/NJean2nAPt">https://discord.gg/NJean2nAPt</a><br />Follow me on twitter <a rel="nofollow" target="blank" href="http://twitter.com/craigbeckett52">http://twitter.com/craigbeckett52</a><br /><br />Is this a bit late to the party? Yeah, probably. But there's only so much I could take of @Stardust at any one time without losing the will to live. Which in this instance, helped a whole lot! Because although I had more than enough to conclude that the rumour of Stardust being an insufferable bitch, is very accurate. But now we have her getting caught out in multiple instances, having an incredibly hypercritical stances, and being pro censorship, until she wants freedom of speech for her much more questionable friends.<br /><br />So sit back and try to enjoy watching a life lesson on thinking, before you speak.<br /><br />All resources referred to in the video<br /><br />@Tommy C's SFTP  - Reacting to Def Noodles Latest Meltdown<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=mVACJXeSnTc">https://www.youtube.com/watch?v=mVACJXeSnTc</a><br /><br />@Bunk - This Debate Happened Over a Word - Bunk Debates Stardust (ft. AugieRFC)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=91vnQ0A7C8Q">https://www.youtube.com/watch?v=91vnQ0A7C8Q</a><br /><br />@Thots And Opinions - Argument Analysis: Stardust vs Keemstar and Honking in Canada<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=EWYxS8BYJWw">https://www.youtube.com/watch?v=EWYxS8BYJWw</a><br /><br />@Stardust  - KEEMSTAR DEBATE - All he wants to do is HONK HIS HOG! AND HE'S MAD ABOUT IT!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=kDnrbqzMEJY">https://www.youtube.com/watch?v=kDnrbqzMEJY</a> <br /><br />@Lerix  - THE MOST ANNOYING GIRL ON YOUTUBE<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=absSd8XQsTg">https://www.youtube.com/watch?v=absSd8XQsTg</a><br />               - THE MOST ANNOYING GIRL RESPONDED<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=rtJ0_xQ5gXM">https://www.youtube.com/watch?v=rtJ0_xQ5gXM</a><br /><br />@Mayhem -  THE WORST DEBATER ON TWITCH | STARDUST<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=KUCBnU2xa8A">https://www.youtube.com/watch?v=KUCBnU2xa8A</a>{% endraw %}
