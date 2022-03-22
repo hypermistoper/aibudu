@@ -1,0 +1,15 @@
+---
+title: "Tech Sector Rises 7%: Why it’s Time to Start Buying Technology Stocks?"
+image: "https:\/\/i.ytimg.com\/vi\/LK-PNbQt3hY\/hqdefault.jpg"
+vid_id: "LK-PNbQt3hY"
+categories: "Education"
+tags: ["technology stocks","technology stocks to buy","tech sector"]
+date: "2022-03-22T07:01:26+03:00"
+vid_date: "2022-03-21T06:24:59Z"
+duration: "PT25M17S"
+viewcount: "2692"
+likeCount: "139"
+dislikeCount: ""
+channel: "Wealth Within"
+---
+{% raw %}In Australia, the technology sector fell 29 per cent between 1 January and 24 February, which would be considered a crash, while the All-Ordinaries Index has only fallen 2.67 per cent for the year to date. From 1 January to 14 March, the US technology sector fell over 19 per cent, while the Dow is only down 4.36 per cent and the S&amp;P500 is down 6.36 per cent for the year. So is not the time to start buying technology stocks?<br /><br /><br />RESOURCES &amp; LINKS: <br />____________________________________________<br />Playlist: Australian Stock Market Show - Wealth Within Live: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=B6RF8dr93Wk&amp;list=PLOGTDwqa-leKPYDx-_5QAoV-fAoa_BRlw&amp;index=1">https://www.youtube.com/watch?v=B6RF8dr93Wk&amp;list=PLOGTDwqa-leKPYDx-_5QAoV-fAoa_BRlw&amp;index=1</a><br /><br />Action Items: To purchase Dale’s award winning book, Accelerate Your Wealth, visit:<br /><a rel="nofollow" target="blank" href="https://www.wealthwithin.com.au/shop/books/accelerate-your-wealth">https://www.wealthwithin.com.au/shop/books/accelerate-your-wealth</a><br /><br />Do you have a question? Email us at: info@wealthwithin.com.au<br />____________________________________________<br />Subscribe: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/WealthWithin?sub_confirmation=1">https://www.youtube.com/c/WealthWithin?sub_confirmation=1</a> to stay up-to-date and to learn more tips and strategies for trading the stock market<br /><br />To learn how Wealth Within can support you to be consistently profitable in the stock market, visit: <a rel="nofollow" target="blank" href="https://www.wealthwithin.com.au">https://www.wealthwithin.com.au</a><br />Find us on FaceBook: <a rel="nofollow" target="blank" href="https://www.facebook.com/wealthwithin">https://www.facebook.com/wealthwithin</a><br />Learn More: Listen to our Talking Wealth Podcasts, Voted No.3 Globally:<br /><a rel="nofollow" target="blank" href="https://www.wealthwithin.com.au/learning-centre/talking-wealth-podcast">https://www.wealthwithin.com.au/learning-centre/talking-wealth-podcast</a><br />US Stock Market Reports: <a rel="nofollow" target="blank" href="https://flixx.net/">https://flixx.net/</a><br /><br />0:00 Intro<br />0:43 Tech Sector Rises 7%: Why it’s Time to Start Buying Technology Stocks?<br />2:49 Australian Market - Best and Worst Performers<br />4:15 Australian Market Analysis<br />9:48 Answering Your Questions<br />24:30 Outro<br /><br />#WealthWithinLive #DaleGillham #AustralianStockMarketShow{% endraw %}
