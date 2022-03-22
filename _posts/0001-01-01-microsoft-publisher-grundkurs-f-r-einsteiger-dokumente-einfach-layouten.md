@@ -1,0 +1,15 @@
+---
+title: "Microsoft Publisher (Grundkurs für Einsteiger) Dokumente einfach layouten"
+image: "https:\/\/i.ytimg.com\/vi\/0oLoZHkCW-4\/hqdefault.jpg"
+vid_id: "0oLoZHkCW-4"
+categories: "Education"
+tags: ["Tutorial","Anleitung","Erklärung"]
+date: "2022-03-22T23:46:56+03:00"
+vid_date: "2021-01-13T15:00:01Z"
+duration: "PT31M55S"
+viewcount: "17555"
+likeCount: "123"
+dislikeCount: ""
+channel: "Simon"
+---
+{% raw %}Jetzt Microsoft Publisher 30 Tage kostenlos testen:<br />► <a rel="nofollow" target="blank" href="http://bit.ly/3pOtktD">http://bit.ly/3pOtktD</a><br /><br />Sicher dir jetzt 50% Rabatt auf den vollständigen Microsoft 365 Kurs:<br />► <a rel="nofollow" target="blank" href="https://link.simontutorial.de/microsoft365kurs">https://link.simontutorial.de/microsoft365kurs</a><br /><br />Was ist Microsoft Publisher?<br />Du willst einen Flyer, Einladungen oder E-Mail Newsletter einfach erstellen? Dann ist Microsoft Publisher etwas für dich. In diesem Tutorial zeige ich dir die Grundlagen von dem Programm und wie du damit einfach solche Projekte layouten und umsetzen kannst. <br /><br />Jetzt das Video als Artikel lesen: <br /><a rel="nofollow" target="blank" href="http://www.simontutorial.de/mspublisher">http://www.simontutorial.de/mspublisher</a><br /><br />Inhaltsverzeichnis<br />00:00 - Einleitung<br />00:15 - Inhaltsverzeichnis<br />01:24 - Installation &amp; Preis<br />04:03 - Dokument erstellen<br />05:54 - Oberfläche<br />12:48 - Seiten erstellen &amp; verwalten<br />17:41 - Texte, Bilder &amp; andere Elemente einfügen<br />23:05 - Layouten (Design) und überprüfen<br />25:48 - Exportieren, drucken &amp; versenden<br />29:09 - Einstellungen<br /><br />Mehr Inhalte findest du auf unserem Instagram:<br />► <a rel="nofollow" target="blank" href="https://www.instagram.com/simontutorial">https://www.instagram.com/simontutorial</a><br /><br />Sicher dir jetzt 50% Rabatt auf den vollständigen Kurs: <br />► <a rel="nofollow" target="blank" href="https://link.simontutorial.de/microsoft365kurs">https://link.simontutorial.de/microsoft365kurs</a><br /><br />Jetzt das Video als Artikel lesen: <br /><a rel="nofollow" target="blank" href="http://www.simontutorial.de/mspublisher">http://www.simontutorial.de/mspublisher</a><br /><br />Alle Links aus dem Video:<br />► Kostenlos testen: <a rel="nofollow" target="blank" href="http://bit.ly/3pOtktD">http://bit.ly/3pOtktD</a><br />► Preisübersicht: <a rel="nofollow" target="blank" href="https://bit.ly/3fVEmcF">https://bit.ly/3fVEmcF</a><br />► Udemy-Kurs: <a rel="nofollow" target="blank" href="https://link.simontutorial.de/microsoft365kurs">https://link.simontutorial.de/microsoft365kurs</a><br /><br />Hast du noch irgendwelche Fragen? Dann stell Sie doch gerne in den Kommentaren<br /><br />Dieses Video enthält Werbung in Form für Eigenwerbung zu meinem Microsoft 365 Udemy-Kurs.<br />(Mehr Infos auf: <a rel="nofollow" target="blank" href="https://simontutorial.de/kooperationen)">https://simontutorial.de/kooperationen)</a><br /><br />© Produziert von Simon Voppmann. Alle Rechte vorbehalten.{% endraw %}
