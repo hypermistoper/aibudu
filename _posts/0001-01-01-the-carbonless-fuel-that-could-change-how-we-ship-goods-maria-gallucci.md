@@ -1,0 +1,15 @@
+---
+title: "The Carbonless Fuel That Could Change How We Ship Goods | Maria Gallucci | TED"
+image: "https:\/\/i.ytimg.com\/vi\/dvxmn_6o8g0\/hqdefault.jpg"
+vid_id: "dvxmn_6o8g0"
+categories: "Science-Technology"
+tags: ["TEDTalk","TEDTalks","TED Talk"]
+date: "2022-03-22T23:26:29+03:00"
+vid_date: "2022-03-22T15:00:17Z"
+duration: "PT7M28S"
+viewcount: "10756"
+likeCount: ""
+dislikeCount: ""
+channel: "TED"
+---
+{% raw %}Every day, tens of thousands of cargo ships, filled to the brim with goods, release heavy pollution into the air as they make their way across the ocean. In this eye-opening talk, reporter Maria Gallucci introduces a planet-friendly alternative that could fuel these globe-trotting vessels: green ammonia. Listen as she makes the case for this game-changing solution that has the potential to clean up the world's dirtiest ships.<br /><br />If you love watching TED Talks like this one, become a TED Member to support our mission of spreading ideas: <a rel="nofollow" target="blank" href="http://ted.com/membership">http://ted.com/membership</a><br /><br />Follow TED! <br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/TEDTalks">http://twitter.com/TEDTalks</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/ted/">https://www.instagram.com/ted/</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/TED">http://facebook.com/TED</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/ted-conferences/">https://www.linkedin.com/company/ted-conferences/</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@tedtoks">https://www.tiktok.com/@tedtoks</a><br /><br />The TED Talks channel features talks, performances and original series from the world's leading thinkers and doers. Subscribe to our channel for videos on Technology, Entertainment and Design — plus science, business, global issues, the arts and more. Visit <a rel="nofollow" target="blank" href="http://TED.com">http://TED.com</a> to get our entire library of TED Talks, transcripts, translations, personalized talk recommendations and more.<br /><br />Watch more: <a rel="nofollow" target="blank" href="https://go.ted.com/mariagallucci">https://go.ted.com/mariagallucci</a><br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/dvxmn_6o8g0">https://youtu.be/dvxmn_6o8g0</a><br /><br />TED's videos may be used for non-commercial purposes under a Creative Commons License, Attribution–Non Commercial–No Derivatives (or the CC BY – NC – ND 4.0 International) and in accordance with our TED Talks Usage Policy (<a rel="nofollow" target="blank" href="https://www.ted.com/about/our-organization/our-policies-terms/ted-talks-usage-policy).">https://www.ted.com/about/our-organization/our-policies-terms/ted-talks-usage-policy).</a> For more information on using TED for commercial purposes (e.g. employee learning, in a film or online course), please submit a Media Request at <a rel="nofollow" target="blank" href="https://media-requests.ted.com">https://media-requests.ted.com</a><br /><br />#TED #MariaGallucci{% endraw %}
