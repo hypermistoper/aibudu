@@ -1,0 +1,15 @@
+---
+title: "PALESTRA 13  VITAL FROSI || FAÇA ISSO AGORA (PERDOE)"
+image: "https:\/\/i.ytimg.com\/vi\/_HiS5WPphGc\/hqdefault.jpg"
+vid_id: "_HiS5WPphGc"
+categories: "People-Blogs"
+tags: ["chakras","centrosdeforça","universo"]
+date: "2022-03-22T07:27:31+03:00"
+vid_date: "2022-03-20T22:00:12Z"
+duration: "PT31M31S"
+viewcount: "13752"
+likeCount: "3469"
+dislikeCount: ""
+channel: "Quantic Despert by Paula Cabral"
+---
+{% raw %}<a rel="nofollow" target="blank" href="https://www.facebook.com/vital.frosi">https://www.facebook.com/vital.frosi</a><br />Meu outro canal de Desenvolvimento Humano: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCSyErLXUN8HVKjlwAk1PLRw">https://www.youtube.com/channel/UCSyErLXUN8HVKjlwAk1PLRw</a><br />Canal de #shorts da Quantic Despert Se inscrevam: <a rel="nofollow" target="blank" href="https://youtube.com/shorts/K1PRsNY7brk?feature=share">https://youtube.com/shorts/K1PRsNY7brk?feature=share</a><br /><br />Chave pix para quem tiver interesse em ajudar os projetos da Quantic Despert e Quantic Love:<br />Você pode transferir de qualquer banco para minha chave Pix Itaú: <br />60f72915-368f-40d1-82fb-acff6ca602f6<br /><br />Seja membro deste canal e ganhe benefícios:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCLOiJH1nWKMRLx4nmhSVGHg/join">https://www.youtube.com/channel/UCLOiJH1nWKMRLx4nmhSVGHg/join</a><br /><br />APOIE A QUANTIC DESPERT E TENHA ACESSO A CURSOS E DESCONTOS EXCLUSIVOS: <a rel="nofollow" target="blank" href="https://apoia.se/cursosgratuitos">https://apoia.se/cursosgratuitos</a><br /><br />Seja membro deste canal e ganhe benefícios:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCLOiJH1nWKMRLx4nmhSVGHg/join">https://www.youtube.com/channel/UCLOiJH1nWKMRLx4nmhSVGHg/join</a><br /><br />CONHEÇA A QUANTIC ACADEMY.<br />Cursos voltados a expansão da consciência através de ferramentas como: neurociência, coaching, psicologia transpessoal e muito mais.<br /><br />Temos cursos gratuitos.<br /><a rel="nofollow" target="blank" href="https://www.quanticdespert.com/quantic-academy/">https://www.quanticdespert.com/quantic-academy/</a><br /><br />Acesse sua missão de alma<br /><a rel="nofollow" target="blank" href="https://www.quanticdespert.com/inscritos-youtube/">https://www.quanticdespert.com/inscritos-youtube/</a><br /><br />Nos siga nas redes sociais:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/quanticdespert/">https://www.instagram.com/quanticdespert/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/quanticdespert/">https://www.facebook.com/quanticdespert/</a><br />Grupo Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/440649010129417/?ref=bookmarks">https://www.facebook.com/groups/440649010129417/?ref=bookmarks</a><br />Grupo Telegram: <a rel="nofollow" target="blank" href="https://t.me/quanticdespert">https://t.me/quanticdespert</a><br /><br />Contato para Palestras, Treinamentos e Eventos.<br />contato@quanticdespert.com<br />#perdao #perdoe #vitalfrosi{% endraw %}
