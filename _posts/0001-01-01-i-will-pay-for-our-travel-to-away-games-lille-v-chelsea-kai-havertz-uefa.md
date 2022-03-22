@@ -1,0 +1,15 @@
+---
+title: "I will PAY for our travel to away games | Lille v Chelsea | Kai Havertz"
+image: "https:\/\/i.ytimg.com\/vi\/39CSQWe86d8\/hqdefault.jpg"
+vid_id: "39CSQWe86d8"
+categories: "Sports"
+tags: ["Football","Soccer","Hayters TV"]
+date: "2022-03-22T04:30:30+03:00"
+vid_date: "2022-03-15T14:22:06Z"
+duration: "PT7M48S"
+viewcount: "147283"
+likeCount: "3578"
+dislikeCount: ""
+channel: "HaytersTV"
+---
+{% raw %}©️UEFA 2022<br /><br />-TIMESTAMPS-<br />0:00 Intro<br /><br />00:20 I've played some good matches in the past. I am happy about my performance in the last few matches but as a footballer, you're always hungry and want more. So I want to play with more consistency and I hope I can play like this<br /><br />00:50 Off-pitch uncertainty?<br />We are all professionals. Everyone knows it's a strange situation for everyone at the club. We are the players and have to focus on the matches. That's all we can do. The other stuff the club has to sort out themselves. It's not for the players.<br /><br />1:40 We are professionals and sometimes situation like this can happen. It's not easy for us, for the whole club and the fans. What we can do is to play good football and try to give the fans a smile in this situation. As we showed at the weekend, we can handle these situations<br /><br />3:00 Will the players pay their own way for travel? I would pay it, it's not a problem. That isn't a big deal. For us to come to the games is the most important thing. There are harder things in the world right now than if we have to take the bus or plane to an away game. I would pay, no problem<br /><br />4:00 You see these images and think these things happening are not possible. It's the worst thing that can happen on the planet. We all stand for peace. It is difficult for me to talk about it. People ask us because we are public people and they want to know what we think. But it's hard to answer these questions.<br /><br />6:00 he arrival of Thomas Tuchel was good for us. We won some titles and me personally, I think I've grown as a player. As a player, there will be negative moments and I've had this in the last two years as well. Personally, I think I've grown from these situations where you don't have a good moment. I am young and I can learn a lot. A career doesn't always go up and up. Sometimes you fall down a bit, sit on the bench and learn from it. People don't always see it helps me, or young players<br /><br />HaytersTV – Football Up Close. We go behind the scenes with the biggest names in football to bring you interviews, training, news, live coverage, fans’ voices and funniest moments. If you love football, you’ll love Hayters TV. Subscribe now!<br />Follow HaytersTV on social media 🔥<br />www.instagram.com/HaytersTV <br />www.facebook.com/HaytersTV<br />www.twitter.com/HaytersTV<br />www.tiktok.com/@hayterstv<br />-------<br />Subscribe on YouTube - <a rel="nofollow" target="blank" href="https://www.youtube.com/hayterstv">https://www.youtube.com/hayterstv</a><br />#Havertz #Chelsea #UCL{% endraw %}
