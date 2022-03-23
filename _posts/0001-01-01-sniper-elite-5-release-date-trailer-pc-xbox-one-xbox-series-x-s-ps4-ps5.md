@@ -1,0 +1,15 @@
+---
+title: "Sniper Elite 5 – Release Date Trailer | PC, Xbox One, Xbox Series X\/S, PS4, PS5"
+image: "https:\/\/i.ytimg.com\/vi\/s_AeRULyTnU\/hqdefault.jpg"
+vid_id: "s_AeRULyTnU"
+categories: "Gaming"
+tags: ["Rebellion","Rebellion Developments","Gaming"]
+date: "2022-03-23T13:36:05+03:00"
+vid_date: "2022-03-16T15:00:34Z"
+duration: "PT1M25S"
+viewcount: "31216"
+likeCount: "1409"
+dislikeCount: ""
+channel: "Rebellion"
+---
+{% raw %}Pre-order Sniper Elite 5 NOW at <a rel="nofollow" target="blank" href="http://reb.to/PreOrder">http://reb.to/PreOrder</a> <br /><br />Sniper Elite 5 will launch on the 26th May 2022 on Xbox Game Pass, Xbox One, Xbox Series X|S and PlayStation 4 &amp; 5, Epic Games Store, Steam, and Windows Store.<br /><br />Pre-order Sniper Elite 5 and you will receive the latest mission of the much-heralded ‘Target Führer’ campaign entitled “Wolf Mountain”. You will get to infiltrate the Berghof, Hitler’s private mountain retreat in the Bavarian Alps, which is crawling with heavily armed personal guard, and a slew of collectibles for eagle-eyed snipers. <br /><br />Additionally, those who pre-order the Deluxe Edition will receive the P.1938 Suppressed Pistol. Based on a Special Forces experimental prototype, this powerful handgun is a must have for covert operations.<br /><br />Deluxe Edition<br />The Sniper Elite 5 Deluxe Edition, which will not only include the pre-order content but also the Season Pass. This will give you access to a post-release two-part campaign on extensive maps where you can arm yourselves with an expanded armoury of authentic World War II weapons and customise your sniper with new character packs and weapon skins. <br /><br />The Season Pass comes fully loaded with:<br />• 2 Campaign Missions<br />• 2 Weapon skin packs<br />• 2 Character Packs<br />• 6 Weapon Packs<br /><br />Follow us on:<br />Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/rebellion_official/">https://www.twitch.tv/rebellion_official/</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/sniperelitegame/">https://www.facebook.com/sniperelitegame/</a>  <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/SniperElite">https://twitter.com/SniperElite</a> <br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/rebellion">https://discord.gg/rebellion</a> <br />Rebellion Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/rebelliondevelopments/">https://www.instagram.com/rebelliondevelopments/</a><br />Sniper Elite Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/snipereliteofficial/">https://www.instagram.com/snipereliteofficial/</a> <br /><br />Find out more about Rebellion at <a rel="nofollow" target="blank" href="https://rebellion.com/">https://rebellion.com/</a><br /><br />Find out more about Sniper Elite at <a rel="nofollow" target="blank" href="https://sniperelitegames.com/">https://sniperelitegames.com/</a> <br /><br />#Rebellion #SniperElite5 #SniperElite5ReleaseDate{% endraw %}
