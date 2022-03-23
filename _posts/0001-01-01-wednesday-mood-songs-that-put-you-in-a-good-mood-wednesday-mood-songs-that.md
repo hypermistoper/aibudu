@@ -1,0 +1,15 @@
+---
+title: "Wednesday Mood ~ Songs that put you in a good mood ⛅"
+image: "https:\/\/i.ytimg.com\/vi\/pvBg3d0xDbU\/hqdefault.jpg"
+vid_id: "pvBg3d0xDbU"
+categories: "Music"
+tags: ["morning vibes","morning vibes songs","chill music"]
+date: "2022-03-23T21:53:20+03:00"
+vid_date: "2022-03-23T07:28:49Z"
+duration: "PT1H59M12S"
+viewcount: "5438"
+likeCount: "487"
+dislikeCount: ""
+channel: "Something old, something new"
+---
+{% raw %}Wednesday Mood ~ Songs that put you in a good mood ⛅<br /><br />#usuk #wednesdaymood #goodmood<br /><br />🔔 Be sure to subscribe for more videos!<br /><br />✨ You deserve to be happy and we're here to make that happen! We've got the most positive videos on the planet to help you see life in a whole new light. Subscribe now and feel the positivity! 💖<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/Somethingoldsomethingnew">https://www.youtube.com/c/Somethingoldsomethingnew</a><br /><br />🎙️ Tracklist:<br />00:00 - 03:39 01 - Ed Sheeran - I Don't Care (with Justin Bieber)<br />03:39 - 07:12 02 - Clean Bandit - Symphony (feat. Zara Larsson)<br />07:12 - 11:54 03 - Ed Sheeran - Thinking out Loud<br />11:54 - 14:08 04 - Bazzi - Mine<br />14:08 - 16:57 05 - Pink Sweat$ - At My Worst (feat. Kehlani)<br />16:57 - 21:20 06 - Ed Sheeran - Perfect<br />21:20 - 25:22 07 - Bruno Mars - Leave The Door Open<br />25:22 - 28:30 08 - Charlie Puth - Marvin Gaye (feat. Meghan Trainor)<br />28:30 - 32:28 09 - Jaymes Young - Infinity<br />32:28 - 36:09 10 - Bruno Mars - Just the Way You Are<br />36:09 - 39:16 11 - Anne-Marie - 2002<br />39:16 - 42:34 12 - Ed Sheeran - Beautiful People (feat. Khalid)<br />42:34 - 45:46 13 - Charlie Puth - One Call Away<br />45:46 - 48:37 14 - Ed Sheeran - Galway Girl<br />48:37 - 51:26 15 - Bazzi - Paradise<br />51:26 - 54:24 16 - Wallows - Are You Bored Yet_ (feat. Clairo)<br />54:24 - 57:04 17 - The Walters - I Love You So<br />57:04 - 1:00:37 18 - Dan + Shay - Speechless<br />1:00:37 - 1:03:51 19 - Jess Glynne - I'll Be There<br />1:03:51 - 1:07:19 20 - Ed Sheeran - Shivers<br />1:07:19 - 1:10:29 21 - Marteen - Left to Right<br />1:10:29 - 1:13:52 22 - Wallows - These Days<br />1:13:52 - 1:17:21 23 - Melanie Martinez - Soap<br />1:17:21 - 1:20:37 24 - Pink Sweat$ - Real Thing (feat. Tori Kelly)<br />1:20:37 - 1:23:47 25 - Charlie Puth - Patient<br />1:23:47 - 1:27:50 26 - Jason Mraz - I'm Yours<br />1:27:50 - 1:29:46 27 - PinkPantheress - Just for me<br />1:29:46 - 1:34:14 28 - B.o.B - Nothin' on You (feat. Bruno Mars)<br />1:34:14 - 1:36:55 29 - Charlie Puth - Hard On Yourself<br />1:36:55 - 1:41:22 30 - Coldplay - Yellow<br />1:41:22 - 1:44:10 31 - Bryce Vine - Miss You a Little (feat. lovelytheband)<br />1:44:10 - 1:47:47 32 - Jaymes Young - Moondust (Stripped; EP Version)<br />1:47:47 - 1:53:15 33 - HONNE - Location Unknown ◐ (feat. BEKA) (Brooklyn Session)<br />1:53:15 - 1:57:08 34 - Jasmine Thompson - Like I'm Gonna Lose You<br />1:57:08 - 2:00:55 35 - Sara Kays - Remember That Night_<br /><br />© Copyright by WMG.<br /> All copyright issues, please contact by mail: channel@chilledlab.com<br />☛ Do not reup.{% endraw %}
