@@ -1,0 +1,15 @@
+---
+title: "What's different between Flash and Continuous Light?"
+image: "https:\/\/i.ytimg.com\/vi\/vdlL2hF-Jlo\/hqdefault.jpg"
+vid_id: "vdlL2hF-Jlo"
+categories: "Education"
+tags: ["continuous lighting photography","continuous lighting for food photography","continuous lighting for food"]
+date: "2022-03-23T05:39:43+03:00"
+vid_date: "2020-01-08T15:30:04Z"
+duration: "PT6M44S"
+viewcount: "38205"
+likeCount: "1505"
+dislikeCount: ""
+channel: "figandlight"
+---
+{% raw %}This video is one of three in a series that will explore continuous lighting for food photography. One of fundamental lessons I've learned in artificial lighting is understanding the differences between flash and continuous lighting and in this video, I explore 4 main ways these two types of lighting differ. <br /><br />Stay tuned for the next video where I discuss what to look for in a continuous light so that you are sure to get the best possible quality light that fits your needs.<br /><br />Hope this helps!<br />______________________________________<br />I answer your questions LIVE on Patreon: <br /><a rel="nofollow" target="blank" href="http://www.patreon.com/brandonfigueroa">http://www.patreon.com/brandonfigueroa</a><br /><br />Sign up for UPDATES on my Food Photography Lighting Course!: <br /><a rel="nofollow" target="blank" href="https://www.figandlight.com">https://www.figandlight.com</a><br /><br />INSTAGRAM:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/figandlight">https://www.instagram.com/figandlight</a><br /><br />Tools highlighted in this video:<br />Rosco Diffusion Material - (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/Bqjkb">https://geni.us/Bqjkb</a><br />Godox Sl-60W - (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/ZEM1RBJ">https://geni.us/ZEM1RBJ</a><br /><br />MY MAIN TOOLS:<br />Main camera: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/iC8ze">https://geni.us/iC8ze</a><br />All around lens for my videos: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/hSE2vR">https://geni.us/hSE2vR</a><br />My favorite lens for food photography: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/V8deG">https://geni.us/V8deG</a><br />The tripod I use and recommend: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/KYUiWBR">https://geni.us/KYUiWBR</a><br />My choice speedlight: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/gJ4NE">https://geni.us/gJ4NE</a><br />Profoto Air Remote for Canon: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/8AysuMI">https://geni.us/8AysuMI</a><br />Best budget speedlight: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/iaHoEU">https://geni.us/iaHoEU</a><br />Stripbox with grid: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/6UqJFU">https://geni.us/6UqJFU</a><br />MagBox: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/sf9cAcN">https://geni.us/sf9cAcN</a><br />My Main Video Light: (Amazon) <a rel="nofollow" target="blank" href="https://geni.us/0CnRc3g">https://geni.us/0CnRc3g</a>{% endraw %}
