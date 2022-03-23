@@ -1,0 +1,15 @@
+---
+title: "Pups Rescue All The Dinosaurs! | PAW Patrol | Cartoons for Kids Compilation"
+image: "https:\/\/i.ytimg.com\/vi\/X3Un82FWHvI\/hqdefault.jpg"
+vid_id: "X3Un82FWHvI"
+categories: "Entertainment"
+tags: ["paw patrol","cartoons for kids","kids cartoons"]
+date: "2022-03-24T01:25:37+03:00"
+vid_date: "2022-02-05T11:00:14Z"
+duration: "PT26M59S"
+viewcount: "482035"
+likeCount: "1335"
+dislikeCount: ""
+channel: "PAW Patrol Official & Friends"
+---
+{% raw %}In this cartoons for kids compilation, Watch Chase, Rubble, Rex and the rest of the Pups pull off the most daring dino rescues! <br /><br />PAW Patrol is now available in more languages!<br />SPANISH: <a rel="nofollow" target="blank" href="https://www.youtube.com/PAWPatrolEspanol">https://www.youtube.com/PAWPatrolEspanol</a><br />ITALIAN: <a rel="nofollow" target="blank" href="https://www.youtube.com/PAWPatrolItaliano">https://www.youtube.com/PAWPatrolItaliano</a><br />PORTUGUESE: <a rel="nofollow" target="blank" href="https://www.youtube.com/PAWPatrolPortugues">https://www.youtube.com/PAWPatrolPortugues</a><br />POLISH: <a rel="nofollow" target="blank" href="https://www.youtube.com/PAWPatrolPolski">https://www.youtube.com/PAWPatrolPolski</a><br />DUTCH: <a rel="nofollow" target="blank" href="https://www.youtube.com/PAWPatrolNederlands">https://www.youtube.com/PAWPatrolNederlands</a><br /><br />When trouble strikes in Adventure Bay, PAW Patrol is there to save the day! Why? Because no job is too big, no pup is too small! Watch as PAW Patrol works together to keep Adventure Bay safe – whether it’s a cat in a tree, a chicken running free, or a train off the tracks, they always find a way to help those in need! Don’t miss all the fun with PAW Patrol Official &amp; Friends! <br /><br />Check out full episodes of PAW Patrol on Nickelodeon! <br />For more information on PAW Patrol, visit: <a rel="nofollow" target="blank" href="http://www.pawpatrolandfriends.com">http://www.pawpatrolandfriends.com</a> <br /><br />Keep up with the latest PAW news! <br /><br />FACEBOOK: <a rel="nofollow" target="blank" href="http://www.facebook.com/PAWpatrol">http://www.facebook.com/PAWpatrol</a> <br />INSTAGRAM: <a rel="nofollow" target="blank" href="http://www.instagram.com/PAWpatrol">http://www.instagram.com/PAWpatrol</a> <br />TWITTER: <a rel="nofollow" target="blank" href="http://www.twitter.com/PAWpatrol">http://www.twitter.com/PAWpatrol</a> <br /><br />Subscribe to the OFFICIAL Mighty Express YouTube Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/officialmightyexpress">https://www.youtube.com/officialmightyexpress</a> <br />Website: <a rel="nofollow" target="blank" href="http://mightyexpress.com/en_us">http://mightyexpress.com/en_us</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/mightyexpressofficial/">https://www.facebook.com/mightyexpressofficial/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/mightyexpressofficial/?hl=en">https://www.instagram.com/mightyexpressofficial/?hl=en</a>  <br /><br />#PAWPatrol #CartoonsForKids #RescueEpisode{% endraw %}
