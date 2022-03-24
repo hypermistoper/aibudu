@@ -1,0 +1,15 @@
+---
+title: "How To Prepare Beds Before Sowing & Planting Crops | Outside & Undercover"
+image: "https:\/\/i.ytimg.com\/vi\/xIeY1MgP_A8\/hqdefault.jpg"
+vid_id: "xIeY1MgP_A8"
+categories: "Howto-Style"
+tags: ["Prepare","Before","Sowing"]
+date: "2022-03-24T04:30:15+03:00"
+vid_date: "2022-03-23T13:04:36Z"
+duration: "PT11M2S"
+viewcount: "24199"
+likeCount: "1412"
+dislikeCount: ""
+channel: "Huw Richards"
+---
+{% raw %}Today's video is all about the simple steps needed to prepare your garden beds, both outside and in the polytunnel, before direct sowing or transplanting. Now is the perfect time to implement these steps on the run-up to a busy spring, and I also include advice on how to start dealing with slugs ahead of time if they are something you have to often battle against.<br /><br />Rocketgro Compost <a rel="nofollow" target="blank" href="https://rocketgro.co.uk/products">https://rocketgro.co.uk/products</a><br /><br />MY NEW BOOK IS OUT! <a rel="nofollow" target="blank" href="https://geni.us/Veg-Grower-Handbook">https://geni.us/Veg-Grower-Handbook</a><br /><br />-📷Patreon-<br />Exclusive content for gardeners wanting more from their space: <a rel="nofollow" target="blank" href="https://www.patreon.com/huwrichards">https://www.patreon.com/huwrichards</a> <br /><br />-✒️Online Courses-<br />Planting Plan Short Course: <a rel="nofollow" target="blank" href="https://abundanceacademy.online/p/the...">https://abundanceacademy.online/p/the...</a><br />More Food Less Effort Course: <a rel="nofollow" target="blank" href="http://morefoodlesseffort.com/">http://morefoodlesseffort.com/</a><br />Kitchen Garden Fermentation: <a rel="nofollow" target="blank" href="https://abundanceacademy.online/p/hom...">https://abundanceacademy.online/p/hom...</a><br /><br />Use code PLAN20 for 20% off the Productive Planting Plan Course: <a rel="nofollow" target="blank" href="https://abundanceacademy.online/p/the...">https://abundanceacademy.online/p/the...</a><br /><br />-🔗Social-<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/HuwRichardsO...">https://www.facebook.com/HuwRichardsO...</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/huwsgarden/">https://www.instagram.com/huwsgarden/</a><br /><br />-🧵Clothing-<br />Awesome clothing designed for vegetable gardeners: <a rel="nofollow" target="blank" href="https://huwrichards.teemill.com/">https://huwrichards.teemill.com/</a><br /><br />-🍴Delicious Garden Recipes<br />Farmer &amp; Chef <a rel="nofollow" target="blank" href="https://instagram.com/farmer.and.chef">https://instagram.com/farmer.and.chef</a><br /><br />Introduction 0:00<br />3 Bed Questions Before Spring 0:29<br />Intro to Direct Sowing Prep 2:13<br />Undercover Bed Prep 2:51<br />Creating a Tilth 4:59<br />Prep for Transplanting 6:55<br />Dealing With Slugs in Advance 8:30<br />Prepping When Succession Planting 9:30<br /><br />#vegetablegardening #gardeningtips #growyourownfood{% endraw %}
