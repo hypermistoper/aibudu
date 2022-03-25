@@ -1,0 +1,15 @@
+---
+title: "FIXING THE WORST DASH I'VE EVER SEEN [2]"
+image: "https:\/\/i.ytimg.com\/vi\/t_VLGYpVVX8\/hqdefault.jpg"
+vid_id: "t_VLGYpVVX8"
+categories: "Autos-Vehicles"
+tags: ["Copart","IAA","Salvage"]
+date: "2022-03-25T04:47:21+03:00"
+vid_date: "2022-03-25T00:00:13Z"
+duration: "PT54M29S"
+viewcount: "3887"
+likeCount: "1026"
+dislikeCount: ""
+channel: "Weird Beard"
+---
+{% raw %}Follow me on IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/weirdbeardautosales/?hl=en">https://www.instagram.com/weirdbeardautosales/?hl=en</a>                                                          .                                                                                                                                                                                                In this video we'll be getting the dash straightened out.                                                                                                       .                                                                                                                                                                                                    Drop us a line sometime at                                                                                                                                                WEIRD BEARD AUTO SALES                                                                                                                                                24536 Macarthur Ave.                                                                                                                                                               Blanchard OK 73010                                                                                                                                                              .                                                                                                                                                                                                       If you like the video please consider hitting the subscribe button to help the channel grow.                                                                                                                          .                                                                                                                                                                                                  If you'd like to become a Patreon member here's the Link <a rel="nofollow" target="blank" href="https://www.patreon.com/weirdbeardauto">https://www.patreon.com/weirdbeardauto</a>                                                                                  .                                                                                                                                                                                         THANKS FOR ALL THE SUPPORT<br /><br /><br /><br />#WeirdBeard #PlymouthFury #DIYdashrepair{% endraw %}
