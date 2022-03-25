@@ -1,0 +1,15 @@
+---
+title: "Why being BRITISH in ITALY is DIFFICULT"
+image: "https:\/\/i.ytimg.com\/vi\/tiOCjDTbI1A\/hqdefault.jpg"
+vid_id: "tiOCjDTbI1A"
+categories: "People-Blogs"
+tags: ["WHY BEING BRITISH IN ITALY IS DIFFICULT","BRITISH IN ITALY","BRIT LIVING IN ITALY"]
+date: "2022-03-25T23:07:45+03:00"
+vid_date: "2022-03-25T13:18:23Z"
+duration: "PT14M41S"
+viewcount: "152"
+likeCount: "28"
+dislikeCount: ""
+channel: "Ms Britaly"
+---
+{% raw %}In this video, I share 5 reasons why being British in Italy is difficult.<br /><br />Us Brits have certain characteristics and traits that are really tested, when it comes to living in Italy. So if you're a Brit thinking of moving to Italy or you're curious to know why life in Italy can be difficult for a British person - then watch this video!<br /><br />NEW VIDEOS EVERY WEEK, SUBSCRIBE! <a rel="nofollow" target="blank" href="http://bit.ly/MsBritaly">http://bit.ly/MsBritaly</a><br /><br />* VIDEO CHAPTERS *<br />0:00 Intro<br />1:58 Brit in Italy Difficulty 1<br />3:58 Brit in Italy Difficulty 2<br />8:18 Brit in Italy Difficulty 3<br />10:18 Brit in Italy Difficulty 4<br />12:27 Brit in Italy Difficulty 5<br /><br />* VIDEOS I MENTION *<br />Can you really live in Italy and not speak the language? -<br /><a rel="nofollow" target="blank" href="https://youtu.be/0FXFVYSXOrg">https://youtu.be/0FXFVYSXOrg</a><br /><br />Italy winds me up - Real Talk -<br /><a rel="nofollow" target="blank" href="https://youtu.be/SDnIffNwKho">https://youtu.be/SDnIffNwKho</a><br /><br />* FREEBIE *<br />MOVE TO ITALY IN 5 STEPS TEMPLATE -<br /><br /><a rel="nofollow" target="blank" href="https://exceptional-originator-9001.ck.page/315849bbc9">https://exceptional-originator-9001.ck.page/315849bbc9</a><br /><br /><br />*MY BOOK*<br />Wake up to your worth -<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/Wake-Your-Worth-Life-Changing-Breakthrough/dp/B089M59YYR">https://www.amazon.com/Wake-Your-Worth-Life-Changing-Breakthrough/dp/B089M59YYR</a><br /><br />* FOLLOW ME ON INSTAGRAM*<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/msbritaly">https://www.instagram.com/msbritaly</a><br />* BUSINESS EMAILS *<br />ciao@msbritaly.com<br />* READ MY BLOG *  <br /><a rel="nofollow" target="blank" href="https://www.msbritaly.com">https://www.msbritaly.com</a><br /><br />----------<br /><br />ABOUT ME:<br /><br />In 2018, I decided I wanted to change my life and relocate to Italy. I didn't know anyone there, I didn't speak the language and I had only visited the country twice before. Just eight months after I had made this decision, I packed up my suitcases and moved solo from London to Italy, embarking on my very first Expat experience. On paper it sounds completely bonkers but in reality it was the making of me. <br /><br />On this channel I serve up a slice of real Italian life through weekly vlogs and videos. I also share tips on how to navigate life as an Expat in Italy, coping strategies, lessons learnt and my unique insight into life as a Brit in Italy.<br />#movingtoitaly #livinginitaly #britinitaly{% endraw %}
