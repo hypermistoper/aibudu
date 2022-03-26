@@ -1,0 +1,15 @@
+---
+title: "There Are No Good Or Bad Habits | Sadhguru #shorts"
+image: "https:\/\/i.ytimg.com\/vi\/eOhNhY_vVrk\/hqdefault.jpg"
+vid_id: "eOhNhY_vVrk"
+categories: "Howto-Style"
+tags: ["Sadhguru","sadhguru 2020","wisdom"]
+date: "2022-03-26T07:27:58+03:00"
+vid_date: "2022-03-24T04:15:01Z"
+duration: "PT59S"
+viewcount: "81028"
+likeCount: "8215"
+dislikeCount: ""
+channel: "Sadhguru"
+---
+{% raw %}#Sadhguru<br />Yogi, mystic and visionary, Sadhguru is a spiritual master with a difference. An arresting blend of profundity and pragmatism, his life and work serves as a reminder that yoga is a contemporary science, vitally relevant to our times. <br /><br />Inner Engineering Online Program<br />🌼 <a rel="nofollow" target="blank" href="http://isha.co/IEO-YT">http://isha.co/IEO-YT</a> (Register Now)<br /><br />⚡ Sadhguru Exclusive<br />Start Your 7 Day Trial for Free*<br /> Only On Sadhguru App<br />*T&amp;C Applied<br /><a rel="nofollow" target="blank" href="http://isha.co/ex-yt">http://isha.co/ex-yt</a> (Register Now)<br /><br />'Karma: A Yogi's Guide to Crafting Destiny.' - A book by Sadhguru<br />The New York Times Best Seller<br />Order Now: <a rel="nofollow" target="blank" href="https://sadhguru.org/karma">https://sadhguru.org/karma</a><br /><br />🙏 Isha Life products for everyday health and well-being. Buy online at <a rel="nofollow" target="blank" href="http://ishalife.com">http://ishalife.com</a><br /><br />Sadhguru App (Download)<br />📱 <a rel="nofollow" target="blank" href="http://onelink.to/sadhguru__app">http://onelink.to/sadhguru__app</a><br /><br />Official Sadhguru Website <br />🌎 <a rel="nofollow" target="blank" href="http://isha.sadhguru.org">http://isha.sadhguru.org</a> <br /><br />Offerings from Sadhguru in Challenging Times <br />🌼 <a rel="nofollow" target="blank" href="https://isha.sadhguru.org/sadhana-support">https://isha.sadhguru.org/sadhana-support</a><br /><br />Guided Yoga &amp; Meditations by Sadhguru (Free Online)<br />🌼 <a rel="nofollow" target="blank" href="http://isha.sadhguru.org/5-min-practices">http://isha.sadhguru.org/5-min-practices</a><br />🌼 <a rel="nofollow" target="blank" href="http://isha.sadhguru.org/IshaKriya">http://isha.sadhguru.org/IshaKriya</a><br /><br />Official Social Profiles of Sadhguru  (Subscribe)<br />🌐 <a rel="nofollow" target="blank" href="https://youtube.com/sadhguru?sub_confirmation=1">https://youtube.com/sadhguru?sub_confirmation=1</a><br />🌐 <a rel="nofollow" target="blank" href="https://facebook.com/sadhguru">https://facebook.com/sadhguru</a><br />🌐 <a rel="nofollow" target="blank" href="https://instagram.com/sadhguru">https://instagram.com/sadhguru</a><br />🌐 <a rel="nofollow" target="blank" href="https://twitter.com/SadhguruJV">https://twitter.com/SadhguruJV</a><br />🌐 <a rel="nofollow" target="blank" href="https://www.kooapp.com/profile/SadhguruJV">https://www.kooapp.com/profile/SadhguruJV</a><br />🌐 <a rel="nofollow" target="blank" href="https://t.me/Sadhguru">https://t.me/Sadhguru</a><br />🌐<a rel="nofollow" target="blank" href="https://www.quora.com/q/sadhguru">https://www.quora.com/q/sadhguru</a>{% endraw %}
