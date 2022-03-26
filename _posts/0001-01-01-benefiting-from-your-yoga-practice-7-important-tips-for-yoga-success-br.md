@@ -1,0 +1,15 @@
+---
+title: "Benefiting from your Yoga Practice"
+image: "https:\/\/i.ytimg.com\/vi\/EPfIvH3XjnU\/hqdefault.jpg"
+vid_id: "EPfIvH3XjnU"
+categories: "Sports"
+tags: ["yoga fitness","yoga for women","yoga"]
+date: "2022-03-27T00:59:07+03:00"
+vid_date: "2022-03-04T05:49:27Z"
+duration: "PT3M16S"
+viewcount: "2098"
+likeCount: "45"
+dislikeCount: ""
+channel: "Yoga & Relaxation"
+---
+{% raw %}7 Important Tips for Yoga Success <br />by: Yoga &amp; Relaxation   <br /> <br />Yoga has been proven to relieve stress by using exercises that unify the mind, body, and spirit. If you are new to yoga, these seven tips will start you on the road to a more centered life. <br /><br />1. Talk to your doctor and explain what type of yoga poses you intend to practice. Show your doctor pictures of the poses for illustration. Your doctor may rule out specific poses if you have high blood pressure, glaucoma, a history of retinal detachment, or heart disease. Make sure you follow your doctor’s recommendations. <br />2. Find a yoga class that best fits your abilities. Talk to prospective teachers, and decide whether of not you can handle a program before you sign up. It’s very important to take it one step at a time. Try a few beginner classes before you attempt more vigerous classes. Don’t move ahead too quickly. Allow your body to adjust to your exercises.<br /><br />3. Listen to your body and be aware of your physical abilities. You don't want to hurt yourself. Make sure the instructor understands your level of experience and any limitations you may have. Don’t allow anyone to push you ahead too quickly. Remember, this is supposed to be fun and relaxing.<br /><br />4. If you can’t find a class that meets your needs, you can always practice yoga at home. There are many books, programs, and tapes available to help you get started. Search for the best products on the Internet and read reviews. Talk to others for recommenations.<br /><br />5. Why not try private lessons? You can book some one-on-one sessions with a teacher in your area. Most yoga instructors offer private classes or can help you design your own program. This is a good way to get started. You can always take group lessons or practice at home after you’ve had private lessons and learned the basics.<br /><br />6. Find a yoga buddy. It’s nice to practice with someone and it will help reduce injuries. It’s also a great way to keep up your enthusiasm and interest.<br /><br />7. Eat lightly before practice. Wait at least two hours after meals before yoga class or practice. An empty stomach is best, but don’t let yourself get too hungry to think. You won't be able to focus on the poses or enjoy yourself during the relaxation or meditation exercises.<br /><br />Now it's time to grab your mat and a towel and get the most out of your yoga exercises. <br /> <br />please like, comment, and share,  <br />Yoga &amp; Relaxation channel<br /><br />#yoga <br />#yogafitness <br />#yogachair<br />#yogaforwomen{% endraw %}
