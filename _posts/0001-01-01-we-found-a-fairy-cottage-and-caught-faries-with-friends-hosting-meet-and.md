@@ -1,0 +1,15 @@
+---
+title: "We Found a Fairy Cottage and Caught Faries With Friends!!!"
+image: "https:\/\/i.ytimg.com\/vi\/1KpIwqWbuTM\/hqdefault.jpg"
+vid_id: "1KpIwqWbuTM"
+categories: "People-Blogs"
+tags: ["beyond family","beyond family vlogs","trinity and beyond"]
+date: "2022-03-26T20:44:20+03:00"
+vid_date: "2022-03-23T16:26:09Z"
+duration: "PT11M35S"
+viewcount: "87305"
+likeCount: "1212"
+dislikeCount: ""
+channel: "Beyond Family"
+---
+{% raw %}Hosting Meet and Greet at Fairy Finding Event in LA!!!<br />Thanks to Wowwee for sponsoring this video<br />The girls had so much fun finding fairies with their Got2Glow Fairy Finders! Shop now at Target: <br /><a rel="nofollow" target="blank" href="https://bit.ly/Got2GlowAtTarget">https://bit.ly/Got2GlowAtTarget</a><br /><br />Beyond Family Vlogs: <a rel="nofollow" target="blank" href="https://tinyurl.com/beyondfamily">https://tinyurl.com/beyondfamily</a><br />Watch our Newest Video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=gUUK2rgpyxM&amp;list=PLL5ucNnbou07jsOZP7od1t9ucoTR__nhR">https://www.youtube.com/watch?v=gUUK2rgpyxM&amp;list=PLL5ucNnbou07jsOZP7od1t9ucoTR__nhR</a> <br /><br />Check out our other channels!!!<br />Madison &amp; Beyond: <a rel="nofollow" target="blank" href="https://tinyurl.com/madisonsub">https://tinyurl.com/madisonsub</a><br />Trinity &amp; Beyond: <a rel="nofollow" target="blank" href="http://tinyurl.com/trinitysub">http://tinyurl.com/trinitysub</a><br /><br />Catching Fairies!! Today we got to host a fun pop up event for the Got2glow Fairy Finder! Not only did we get to spend the day catching fairies, but we got to hang out with lots of our amazing fans decorating fairy wings, getting our hair done, having our faces painted and eating yummy snacks! We were able to catch all different kinds of fairies including upside down ones and even glow in the dark fairies!<br /><br />Follow the Beyond Family:<br />FaceBook: <a rel="nofollow" target="blank" href="https://facebook.com/trinityandbeyond">https://facebook.com/trinityandbeyond</a><br />IG: <a rel="nofollow" target="blank" href="https://instagram.com/trinityandbeyond.yt/">https://instagram.com/trinityandbeyond.yt/</a><br />TikTok: <a rel="nofollow" target="blank" href="http://tiktok.com/@johnbeyond">http://tiktok.com/@johnbeyond</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TrinityBeyondYT">https://twitter.com/TrinityBeyondYT</a><br /><br />About Beyond Family:<br />Hey everyone! Thanks for visiting our family vlog channel! We usually post twice a week! We originally started &quot;Trinity and Beyond&quot; for fun and do lots of skits and challenges. Since then our audience has grown so much with parents and whole families watching, so we decided to start this separate channels for vlogs.<br /><br />Thanks again for visiting. Please be sure to subscribe and turn on notifications to never miss a video!<br /><br />#beyondfamily #trinityandmadison #trinityandbeyond #ad #Got2GlowFairyFinder #Got2Glow{% endraw %}
