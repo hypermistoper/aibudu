@@ -1,0 +1,15 @@
+---
+title: "Bingo Players - Rattle (Original Mix)"
+image: "https:\/\/i.ytimg.com\/vi\/XYgSHOWNE0M\/hqdefault.jpg"
+vid_id: "XYgSHOWNE0M"
+categories: "Music"
+tags: ["Bingo","Players","Rattle"]
+date: "2022-03-26T18:16:34+03:00"
+vid_date: "2011-10-18T11:07:20Z"
+duration: "PT4M49S"
+viewcount: "57665168"
+likeCount: "426478"
+dislikeCount: ""
+channel: "Spinnin' Records"
+---
+{% raw %}The original extended mix of Bingo Players' massive hit 'Rattle' in high quality! Subscribe to Spinnin' TV : <a rel="nofollow" target="blank" href="http://bit.ly/Subscribe2YT">http://bit.ly/Subscribe2YT</a><br /><br />Spotify: <a rel="nofollow" target="blank" href="http://bit.ly/SpinninSpotify">http://bit.ly/SpinninSpotify</a><br />G+ : <a rel="nofollow" target="blank" href="https://www.google.com/+spinninrecords">https://www.google.com/+spinninrecords</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/SpinninRecords">http://facebook.com/SpinninRecords</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/SpinninRecords">http://twitter.com/SpinninRecords</a><br /><br />Download on Beatport: <a rel="nofollow" target="blank" href="http://bit.ly/RATTLE">http://bit.ly/RATTLE</a><br /><br />After top 3 record 'Cry (Just A Little)' Bingo Players are back with a BANGER! 'Rattle' is ready to rush into the charts as it will break every self respecting dancefloor into pieces. Play out loud!<br />Supported by David Guetta, Diplo, Steve Aoki, Andi Durrant / Riley &amp; Durrant, Thomas Gold among others!<br />---<br /><br />The Spinnin’ Records YouTube channel is the home for all music videos of the world’s leading dance record label!<br /><br />We feature the latest music videos by Spinnin’ artists like Oliver Heldens, Sam Feldt, KSHMR, Ummet Ozcan, Blasterjaxx, Merk &amp; Kremont, Timmy Trumpet, Tujamo, Alok, Curbi, Mike Williams, Lucas &amp; Steve and many, many more! Expect daily uploads of official music videos, lyric videos and artwork videos across genres like dance, house, electro house, future house, deep house, big room and trap.<br /><br />Make sure to subscribe to Spinnin' Records: <a rel="nofollow" target="blank" href="http://bit.do/spinnintv">http://bit.do/spinnintv</a> <br />..and turn on notifications to stay updated with all new uploads!🔔<br /><br />Follow Spinnin’ Records:<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/user/spinninrecordsofficial">https://open.spotify.com/user/spinninrecordsofficial</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/spinninrecords">https://soundcloud.com/spinninrecords</a><br /><a rel="nofollow" target="blank" href="https://facebook.com/SpinninRecords">https://facebook.com/SpinninRecords</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/spinninrecords">https://instagram.com/spinninrecords</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/SpinninRecords">https://twitter.com/SpinninRecords</a><br /><a rel="nofollow" target="blank" href="https://spinninrecords.com">https://spinninrecords.com</a>{% endraw %}
