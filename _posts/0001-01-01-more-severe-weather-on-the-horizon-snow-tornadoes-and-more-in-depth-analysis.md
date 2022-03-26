@@ -1,0 +1,15 @@
+---
+title: "More Severe Weather on the Horizon? Snow, Tornadoes, and More In-Depth Analysis......"
+image: "https:\/\/i.ytimg.com\/vi\/eEM4QHkKNpw\/hqdefault.jpg"
+vid_id: "eEM4QHkKNpw"
+categories: "Entertainment"
+tags: ["weather","extreme","intense"]
+date: "2022-03-26T23:46:13+03:00"
+vid_date: "2022-03-25T01:43:59Z"
+duration: "PT11M55S"
+viewcount: "6098"
+likeCount: "502"
+dislikeCount: ""
+channel: "N8 Snyder"
+---
+{% raw %}Things are now starting to get real interesting as we move closer and closer to the most active time of year. What could be some of the impacts from this event? Stay tuned to the entire video to see the specifics as to what could be coming! Stay safe out there! I do live weather analysis as well as forecasts for mainly the USA, so feel free to ask questions about any weather activity and weather near you. I am committed to providing accurate information and keeping people safe. I also am human, so I'll be the first to admit that I am not perfect. However, nevertheless I do have fun creating these streams! Please be sure to like, share with friends and family, and subscribe as this does help me in the long run.  I am trying to get to 30,000 subscribers by the end of March so if you would, please help me achieve my goal! That would be greatly appreciated, thank you for your cooperation, and enjoy the video. Also, I have bloopers and stuff for this video so if you wanna see it then become a channel member today! I'm gonna post bloopers of my stuff whenever I can so you can have a laugh at me being human so feel free to become a member! The other thing that is exclusive to members is that they get a podcast that I conduct earlier than the general public! Thank you for your cooperation, and enjoy the video.<br /><br />March 21st Live Stream: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=z6O5ENJ2_kA&amp;t=5s">https://www.youtube.com/watch?v=z6O5ENJ2_kA&amp;t=5s</a><br />March 22nd Live Stream: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Iz1LKGk_L6A&amp;t=26299s">https://www.youtube.com/watch?v=Iz1LKGk_L6A&amp;t=26299s</a><br />March 23rd Live Stream: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=jIV2qSPiRRw">https://www.youtube.com/watch?v=jIV2qSPiRRw</a> <br /><br />DO NOT CLICK THIS LINK - <a rel="nofollow" target="blank" href="https://bit.ly/2T2sn1H​​​​​​​​​​​​​​​...">https://bit.ly/2T2sn1H​​​​​​​​​​​​​​​...</a><br />Twitch:  <a rel="nofollow" target="blank" href="https://www.twitch.tv/n8_snyder">https://www.twitch.tv/n8_snyder</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/N8_Snyder/​...">https://www.instagram.com/N8_Snyder/​...</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/N8_Snyder">https://twitter.com/N8_Snyder</a><br />Discord account: n8 (YT) (TTV)     (6243​)<br />Discord Server: <a rel="nofollow" target="blank" href="https://discord.gg/GjeFq7C3kQ">https://discord.gg/GjeFq7C3kQ</a>{% endraw %}
