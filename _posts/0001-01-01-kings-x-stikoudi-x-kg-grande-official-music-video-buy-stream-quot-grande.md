@@ -1,0 +1,15 @@
+---
+title: "KINGS x STIKOUDI x KG - GRANDE | Official Music Video"
+image: "https:\/\/i.ytimg.com\/vi\/uxjBi-s6HPA\/hqdefault.jpg"
+vid_id: "uxjBi-s6HPA"
+categories: "Music"
+tags: ["KINGS x STIKOUDI x KG GRANDE","kings κατερινα στικουδη kg grande","grande kings κατερινα στικουδη kg"]
+date: "2022-03-27T12:40:00+03:00"
+vid_date: "2021-03-27T13:00:14Z"
+duration: "PT3M9S"
+viewcount: "4273438"
+likeCount: "34168"
+dislikeCount: ""
+channel: "KingsBandTv"
+---
+{% raw %}Buy-Stream &quot;GRANDE&quot; : <a rel="nofollow" target="blank" href="https://KingsxStikoudixKG.lnk.to/Grande">https://KingsxStikoudixKG.lnk.to/Grande</a><br />Join The Kings Subscribe YouTube: <a rel="nofollow" target="blank" href="http://bit.ly/2LHtxy2​">http://bit.ly/2LHtxy2​</a><br />KINGS x STIKOUDI x KG - GRANDE | Official Music Video<br /><br />Music: Teo Tzimas - KG<br />Lyrics: Johnny King - KG<br />Produced by: Teo Tzimas &amp; Paris Kalpos<br />Mix-Master: Paris Kalpos<br />Directed by: Danny Ntarlas &amp; Jim Georgantis<br />D.O.P.: Κωνσταντίνος Πριόβολος<br />Styling: Φιλιώ Νικολαίδου<br />Hair-Styling: Αγγελική Κανδυλάκη<br />Make-up Artist: Καίτη Κουτσογιαννακοπούλου<br />Special Thanks: Kandia's Castle Resort &amp; Thalasso [Nafplio]<br />Οργάνωση Παραγωγής: Teo Tzimas &amp; Βαγγέλης Σερίφης<br /><br />Find KINGS on instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/johnny.king16/">https://www.instagram.com/johnny.king16/</a><br />Find STIKOUDI on instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/stikoudikaterin/">https://www.instagram.com/stikoudikaterin/</a><br />Find KG on instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/yourkgbaby/">https://www.instagram.com/yourkgbaby/</a><br /><br />Contact Us: <a rel="nofollow" target="blank" href="https://www.facebook.com/kingsofficialpage/">https://www.facebook.com/kingsofficialpage/</a><br />Tweet Us: <a rel="nofollow" target="blank" href="http://www.twitter.com/Kings_band">http://www.twitter.com/Kings_band</a><br />Mail Us: kings_band@hotmail.gr<br /><br />#grande #lemonmusic<br /><br />KINGS x STIKOUDI x KG - GRANDE | LYRICS<br /><br />Θολά είναι τα μάτια μου κοίτα, σκάω movie star μέσα στη σουίτα<br />το άρωμά της on air στο κρεβάτι belair είναι πάνω μου σα sexy mamacita.<br />Διαμάντια στο λαιμό της φοράει, γυμνή και το κρεβάτι κουνάει<br />συνέχισε μου λέει κι ας πονάει, ιδρώτας κυλάει, πόσο της πάει.<br /><br />Ariana...γιατί η bella είναι GRANDE<br />Σκέτη φωτιά...δίπλα μου δεν κοιμάται<br />Μαύρα λεφτά...στο κρεβάτι μετράμε<br />Τώρα για μας μιλάνε.<br /><br />Μη μου μιλάς γενικά, ξέρω τι θέλω από πριν<br />όσο λύνω τα μαλλιά βγάλε το τζιν.<br />Baby με παίζεις στο δίνω, το στυλ σου Robert de Niro<br />τα φώτα θες ανοιχτά γι'αυτή τη σκηνή.<br />Μη σταματάς no no...θολά είναι τα τζάμια όχι όμως το μυαλό μου.<br />Yeah...100% ότι νιώθω real, σαν τα καινούρια μου Dior.<br /><br />KINGS x STIKOUDI x KG - GRANDE | Official Music Video{% endraw %}
