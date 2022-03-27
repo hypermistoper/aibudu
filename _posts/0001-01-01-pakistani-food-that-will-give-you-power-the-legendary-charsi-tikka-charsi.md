@@ -1,0 +1,15 @@
+---
+title: "Pakistani Food that will Give you POWER!! | The LEGENDARY Charsi Tikka 🇵🇰"
+image: "https:\/\/i.ytimg.com\/vi\/S6l79JHKT5Y\/hqdefault.jpg"
+vid_id: "S6l79JHKT5Y"
+categories: "People-Blogs"
+tags: ["charsi tikka","nisar charsi tikka","pakistani street food"]
+date: "2022-03-28T02:49:49+03:00"
+vid_date: "2022-01-27T09:00:20Z"
+duration: "PT15M17S"
+viewcount: "422127"
+likeCount: "7478"
+dislikeCount: ""
+channel: "Max McFarlin"
+---
+{% raw %}Charsi Tikka- You know, you probably didn’t need this video to know about Charsi Tikka, but I just do not know how you could go to Peshawar and not experience this. It is one of the most memorable meals of my life. These people deserve the constant fame and recognition. If in Pakistan, come eat here. Simple as that. <br /><br />Nisar Charsi Tikka<br />Address: Shop No 40، Shah Qabool colony Namak Mandi, Peshawar, Khyber Pakhtunkhwa 25000, Pakistan<br />12pm-12am daily <br />-------------------------------------------------------------------------------------------------------------<br />Just a guy from Arkansas chasing his dreams of traveling the world, meeting amazing people, and trying all the delicious food I can find! <br /><br />I am from a small farm in the states, I am now taking advantage of the opportunities I have to travel the world in search of some of the most delicious foods, unique places, and friendliest people. <br /><br />A lover of street food, good laughs, and learning about other cultures. I hope to indulge in all these things and more as I bring you along with me on my epic journeys. <br /><br />#Pakistan<br /><br />Help support my channel:<br /><a rel="nofollow" target="blank" href="https://maxmcfarlin.gumroad.com/l/MyBCH">https://maxmcfarlin.gumroad.com/l/MyBCH</a><br /><br />CONNECT WITH ME<br /><br />Instagram: @maxmcfarlin<br />Website: <a rel="nofollow" target="blank" href="https://www.maxmcfarlin.com">https://www.maxmcfarlin.com</a><br /><br /><br />Music:<br /><br /><a rel="nofollow" target="blank" href="https://artlist.io/">https://artlist.io/</a><br /><br />My Equipment:<br /><br />My Camera: <a rel="nofollow" target="blank" href="https://amzn.to/3CkO5UM">https://amzn.to/3CkO5UM</a><br />Favorite Lens: <a rel="nofollow" target="blank" href="https://amzn.to/3CiOSpn">https://amzn.to/3CiOSpn</a> <br />Second Lens: <a rel="nofollow" target="blank" href="https://amzn.to/37lKoA1">https://amzn.to/37lKoA1</a> <br />Mic: <a rel="nofollow" target="blank" href="https://amzn.to/3yqWLH5">https://amzn.to/3yqWLH5</a> <br />Batteries: <a rel="nofollow" target="blank" href="https://amzn.to/2TWrLQ9">https://amzn.to/2TWrLQ9</a> <br />Main Tripod: <a rel="nofollow" target="blank" href="https://amzn.to/3joXL8j">https://amzn.to/3joXL8j</a> <br />Tripod: <a rel="nofollow" target="blank" href="https://amzn.to/37mxXUC">https://amzn.to/37mxXUC</a> <br />Light: <a rel="nofollow" target="blank" href="https://amzn.to/3xpWFOo">https://amzn.to/3xpWFOo</a> <br />Extra Mic: <a rel="nofollow" target="blank" href="https://amzn.to/3fxKgCa">https://amzn.to/3fxKgCa</a>{% endraw %}
