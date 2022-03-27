@@ -1,0 +1,15 @@
+---
+title: "Our Daughter's Birth (Emotional Labor & Delivery Vlog)"
+image: "https:\/\/i.ytimg.com\/vi\/H69gXNNmDfE\/hqdefault.jpg"
+vid_id: "H69gXNNmDfE"
+categories: "People-Blogs"
+tags: ["birth announcement","birth vlog","labor and delivery vlog"]
+date: "2022-03-27T09:16:04+03:00"
+vid_date: "2022-03-25T21:30:58Z"
+duration: "PT15M52S"
+viewcount: "517133"
+likeCount: "40401"
+dislikeCount: ""
+channel: "Nabela Noor"
+---
+{% raw %}We're so excited to introduce our daughter and share our labor &amp; delivery vlog. Posting this video feels so surreal, and it wouldn't have been possible without the continued love and prayers from you all. <br /><br />If you'd like to see a video sharing our Birth Story, give this video a thumbs up and let us know in the comments. <br /><br />We can't wait to share more of our journey in parenthood ahead. <br /><br />With love, <br />Nabela, Seth and Baby A <br /><br />BUY MY BOOK &quot;BEAUTIFULLY ME&quot;: <a rel="nofollow" target="blank" href="https://www.amazon.com/Beautifully-Me...">https://www.amazon.com/Beautifully-Me...</a> <br /><br />Join the family &amp; subscribe:  <a rel="nofollow" target="blank" href="http://bit.ly/NABELANOOR​​">http://bit.ly/NABELANOOR​​</a> <br /><br />❋ follow me on IG // <a rel="nofollow" target="blank" href="https://www.instagram.com/nabela/​​">https://www.instagram.com/nabela/​​</a><br />❋ follow me on  IG // <a rel="nofollow" target="blank" href="https://www.instagram.com/nabelanoorh...">https://www.instagram.com/nabelanoorh...</a><br />❋ follow me on tiktok // <a rel="nofollow" target="blank" href="https://www.tiktok.com/nabela​​">https://www.tiktok.com/nabela​​</a><br />❋ follow Seth on  IG // <a rel="nofollow" target="blank" href="https://www.instagram.com/itssethmar/​​">https://www.instagram.com/itssethmar/​​</a> <br />❋ follow Zeba on  IG // <a rel="nofollow" target="blank" href="https://www.instagram.com/zeba/​​">https://www.instagram.com/zeba/​​</a><br />❋ follow Noor House on  IG // <a rel="nofollow" target="blank" href="https://www.instagram.com/noorhouse/​​">https://www.instagram.com/noorhouse/​​</a> <br /><br />----<br /><br />Hi! My name is Nabela Noor and welcome to my channel! I am a plus sized, Muslim, Bangladeshi-American entrepreneur, self-love advocate and self-care expert. I post content surrounding self-love and self-care with the hopes to encourage you to prioritize both in a way that feels authentic to you. I love all things beauty, activism and aesthetics. <br /><br />If you're interested in diving into my everyday, have important conversations surrounding self-love, body celebration, self-care, representation and diversity --  this is a place for you. <br /><br />Welcome to the family. I'm so happy you're here.<br /><br />FTC: This video is not sponsored! Please note that all content, sponsored or not, is made with thoughtful consideration, love and intention. I am thankful for every opportunity and will bring partnerships to you that I am proud of every time. Thank you for making this possible.{% endraw %}
