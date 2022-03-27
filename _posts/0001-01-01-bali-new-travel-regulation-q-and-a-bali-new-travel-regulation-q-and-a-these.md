@@ -1,0 +1,15 @@
+---
+title: "Bali New Travel Regulation Q and A"
+image: "https:\/\/i.ytimg.com\/vi\/mAUMPfAme88\/hqdefault.jpg"
+vid_id: "mAUMPfAme88"
+categories: "Travel-Events"
+tags: ["bali travel update","bali travel","bali travel guide"]
+date: "2022-03-27T13:42:32+03:00"
+vid_date: "2022-03-27T10:34:58Z"
+duration: "PT9M15S"
+viewcount: "36"
+likeCount: "7"
+dislikeCount: ""
+channel: "Whats Up Bali"
+---
+{% raw %}Bali New Travel Regulation Q and A. These are the most question that I got from comment and email regarding the New Bali travel regulation which just issued on 23 March 2022. Now travel to Bali is easy. This Q&amp;A covers the vaccine, bali quarantines policy, and any other requirement such as the health insurances, the visa on arrival, etc. <br />By the Way, as i typed this, Qatar airways just landed in Bali joining the rest of airlines which already re opened their route : KLM, Jetstar, Singapore airlines, Malaysian airlines and Tiger<br />You can say this video as Bali travel information. Bali now, Bali travel updates, Bali travel info based on condition in Bali now<br /><br />Reviewing the newest signed Bali Travel regulation <a rel="nofollow" target="blank" href="https://youtu.be/ya7iHxz3eSg">https://youtu.be/ya7iHxz3eSg</a><br /><br />tutorial How to Register Peduli Lindungi apps - just go straight to where i talke about peduli lindungi app., becuase the rest of tutorial may no more relevant to current travel regulation<br /><a rel="nofollow" target="blank" href="https://youtu.be/hpDGxKL0pzo">https://youtu.be/hpDGxKL0pzo</a><br /><br />Vaccine Registration before download and register the Peduli Lindungi app <a rel="nofollow" target="blank" href="https://vaksinln.dto.kemkes.go.id/">https://vaksinln.dto.kemkes.go.id/</a><br /><br />If you can not find the app in your appstore, go to Peduli Lindungi page first and scroll down to find the appstore and googleplaystore button <a rel="nofollow" target="blank" href="https://www.pedulilindungi.id/">https://www.pedulilindungi.id/</a><br /><br />Safety Wing Insurance, and american company suitable for traveler and digital nomad <a rel="nofollow" target="blank" href="https://safetywing.com?referenceID=ockymisa&amp;utm_source=ockymisa&amp;utm_medium=Ambassador">https://safetywing.com?referenceID=ockymisa&amp;utm_source=ockymisa&amp;utm_medium=Ambassador</a><br /><br />Jaga Wisata, an Indonesian Insurance <a rel="nofollow" target="blank" href="https://www.jagawisata.com">https://www.jagawisata.com</a><br /><br />Custom Dec. <a rel="nofollow" target="blank" href="https://bcngurahrai.beacukai.go.id/ecd/?h=beranda">https://bcngurahrai.beacukai.go.id/ecd/?h=beranda</a><br /><br />2 reliable Visa Agencies to apply the B211A e-visa <br /><a rel="nofollow" target="blank" href="http://www.letsmoveindonesia.com">http://www.letsmoveindonesia.com</a><br /><a rel="nofollow" target="blank" href="http://www.balivisas.com">http://www.balivisas.com</a><br /><br />My email: info.whatsupbali@gmail.co<br />To book in my resort <a rel="nofollow" target="blank" href="http://www.instagram.com/tamansaktiresort">http://www.instagram.com/tamansaktiresort</a>{% endraw %}
