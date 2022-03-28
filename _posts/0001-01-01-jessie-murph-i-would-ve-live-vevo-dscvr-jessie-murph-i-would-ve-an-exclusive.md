@@ -1,0 +1,15 @@
+---
+title: "Jessie Murph - I Would’ve (Live) | Vevo DSCVR"
+image: "https:\/\/i.ytimg.com\/vi\/9RV5-YFxV_M\/hqdefault.jpg"
+vid_id: "9RV5-YFxV_M"
+categories: "Music"
+tags: ["Jessie","Murph","Would’ve"]
+date: "2022-03-28T09:07:31+03:00"
+vid_date: "2022-02-14T17:00:54Z"
+duration: "PT2M43S"
+viewcount: "108900"
+likeCount: "3941"
+dislikeCount: ""
+channel: "VevoDSCVR"
+---
+{% raw %}Jessie Murph - I Would’ve. An exclusive performance for Vevo DSCVR, the channel for the best in new music. <br /><br />Jessie Murph radiates a prickly wisdom beyond her 17 years. 2020’s “Upgrade” introduced the pop-R&amp;B newcomer as a foul-mouthed pixie ready to throw punches. “Ya’ll gone have some ugly ass babies” is a fantastic way to tell an ex his new girl is whack. Biting lines like that are also a great way to earn fans who crave unfiltered realness. Follow up singles “Look Who’s Crying Now” and “When I’m Not Around,” both of which have videos with more than 3 million views, only bolstered the Alabama native’s reputation as the new bad girl on the block. So what fuels the teen singer’s fire? It all traces back to her days growing up in an uptight Southern small town. The worst of it came when her high school discovered Murph’s dreams of being a singer. Relentless bullying ensued, and eventually Murph and her mom - who is also her biggest supporter - relocated. But the singer is getting the last laugh, or in her case, the last sneer - fans and critics regularly sing her praises. “I hope to show all different sides of myself,” she said recently. These DSCVR performances of “I Would’ve” and “Always Been You” definitely found Murph tapping into some deep emotion. And if you know her story, you know it’s 100% real.<br /><br />Watch Jessie Murph videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCOu-8cNd_UZV0VTUPgPpGsg">https://www.youtube.com/channel/UCOu-8cNd_UZV0VTUPgPpGsg</a><br /><br />Follow Jessie Murph<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jessiemurphhh/">https://www.instagram.com/jessiemurphhh/</a><br /><a rel="nofollow" target="blank" href="https://mobile.twitter.com/jessiemurphhh">https://mobile.twitter.com/jessiemurphhh</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/jessiemurphhh/">https://www.facebook.com/jessiemurphhh/</a><br /><br />Follow Vevo<br /><a rel="nofollow" target="blank" href="http://facebook.com/vevo">http://facebook.com/vevo</a><br /><a rel="nofollow" target="blank" href="http://twitter.com/vevo">http://twitter.com/vevo</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/vevo">http://instagram.com/vevo</a><br /><br />Executive Producer: Micah Bickham<br />Director: Tomas Alvear<br />Producer: Jen Bates<br />Producer: Maddy Schmidt<br />Director of Photography: Skyler Brown<br />Editor: Andrew Ros<br />Music &amp; Talent: Gabby Prisciandaro + Sam Mackoff<br /><br />#JessieMurph #IWouldve #DSCVR<br /><br /><a rel="nofollow" target="blank" href="http://vevo.ly/l9zDyy">http://vevo.ly/l9zDyy</a>{% endraw %}
