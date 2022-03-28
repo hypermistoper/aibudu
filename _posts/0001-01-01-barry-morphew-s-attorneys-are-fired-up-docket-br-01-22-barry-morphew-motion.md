@@ -1,0 +1,15 @@
+---
+title: "Barry Morphew’s Attorneys are FIRED UP!!!"
+image: "https:\/\/i.ytimg.com\/vi\/L07sKrXB4ms\/hqdefault.jpg"
+vid_id: "L07sKrXB4ms"
+categories: "Entertainment"
+tags: ["ScottReisch","ScottReisch.com","legal"]
+date: "2022-03-28T13:35:06+03:00"
+vid_date: "2022-03-25T21:00:12Z"
+duration: "PT29M36S"
+viewcount: "17831"
+likeCount: "1713"
+dislikeCount: ""
+channel: "Crime Talk"
+---
+{% raw %}Docket:<br />01:22 Barry Morphew Motion to Dismiss<br />19:02 Lauren Pazienza Update<br />23:37 ‘Two utes’<br />27:10 Dumb criminals<br /><br />Welcome to the most fact-driven and unbiased true crime and crime news channel on YouTube! <br /><br />Miss Winnie's CBD dog &amp; cat treats: <a rel="nofollow" target="blank" href="https://bakedincolorado.com/">https://bakedincolorado.com/</a><br />Emergency Food Supply: <a rel="nofollow" target="blank" href="http://crimetalkprep.com">http://crimetalkprep.com</a><br />Background Check: <a rel="nofollow" target="blank" href="https://crimetalksearch.com/">https://crimetalksearch.com/</a><br /><br />🆕🆕🆕 t-shirts: bit.ly/crimetalkshop <br /><br />Crime Talk is now sponsored by Trusted Housesitters<br />Net a pet sitter? <a rel="nofollow" target="blank" href="https://bit.ly/crimetalktrustedhousesitters">https://bit.ly/crimetalktrustedhousesitters</a><br /><br />Amazon Store: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/crimetalk">https://www.amazon.com/shop/crimetalk</a> <br /><br />Follow Crime Talk on Facebook:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/crimetalk.aficionado">https://www.facebook.com/crimetalk.aficionado</a><br /><br />Join Patreon for exclusive content and bonus episodes:<br /> <a rel="nofollow" target="blank" href="https://www.patreon.com/CrimeTalk">https://www.patreon.com/CrimeTalk</a><br /><br />Twitter: CrimeTalkPod<br />Instagram: CrimeTalkWithScottReisch<br />Website: scottreisch.com<br />TikTok: CrimeTalkWithScottReisch<br />Miss Winnie on Instagram and TikTok: MissWinnieTheBulldog<br /> <br />Crime Talk Merch: <a rel="nofollow" target="blank" href="https://teespring.com/stores/scottreischcom-3">https://teespring.com/stores/scottreischcom-3</a><br /><br />Business Inquiries:<br />CrimeTalk@ReischLawFirm.com     <br />   <br />            <br />All clips are used for fair use commentary, criticism, and educational purposes.  See Hosseinzadeh v. Klein, 276 F.Supp.3d 34 (S.D.N.Y. 2017) Equals Three, LLC v. Jukin Media, Inc., 139 F. Supp. 3d 1094 (C.D. Cal. 2015). <br /><br />Typical legal disclaimer from a lawyer<br />(occupational hazard):  This is not legal advice, nor can I give you legal advice.  Sorry!  Everything here is for informational purposes only and not for the purpose of providing legal advice. You should contact your attorney to obtain advice with respect to any particular issue or problem.  Nothing here should be construed to form an attorney-client relationship.  <br /><br /><br />Mailing address:<br />1490 West 121st Ave., Suite 202<br />Denver, CO 80234<br /><br />#BarryMorphew #SuzanneMorphew #LaurenPazienza{% endraw %}
