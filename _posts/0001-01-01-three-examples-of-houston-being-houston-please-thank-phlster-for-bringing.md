@@ -1,0 +1,15 @@
+---
+title: "Three Examples of Houston Being Houston"
+image: "https:\/\/i.ytimg.com\/vi\/DgjRM6ZHZHk\/hqdefault.jpg"
+vid_id: "DgjRM6ZHZHk"
+categories: "Education"
+tags: ["self defense","self protection","active self"]
+date: "2022-03-29T02:09:56+03:00"
+vid_date: "2022-03-25T14:00:04Z"
+duration: "PT8M30S"
+viewcount: "338836"
+likeCount: "11329"
+dislikeCount: ""
+channel: "Active Self Protection"
+---
+{% raw %}Please thank PHLster for bringing us today’s video of Three Examples of Houston Being Houston!  PHLster is a member of our holster consortium. Check out their website at <a rel="nofollow" target="blank" href="https://get-asp.com/phlster.">https://get-asp.com/phlster.</a>  Their mission is to provide essential, reliable, considered, purpose-built solutions for concealed-carry which set the trend for minimalist design, maximum functionality, and attention to detail.  We appreciate their sponsorship of Active Self Protection.<br /><br />If you value what we do at ASP, would you consider becoming a patron member and help support the work it takes to bring you videos like Three Examples of Houston Being Houston? <a rel="nofollow" target="blank" href="https://get-asp.com/patron">https://get-asp.com/patron</a> or <a rel="nofollow" target="blank" href="https://get-asp.com/patron-annual">https://get-asp.com/patron-annual</a> gives the details and benefits.  You can also become a GOLD Patron member by clicking here for the monthly subscription and get our monthly online seminars for free: <a rel="nofollow" target="blank" href="https://get-asp.com/ellk">https://get-asp.com/ellk</a><br /><br />Source Video 1:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=JM0be3QPq14">https://www.youtube.com/watch?v=JM0be3QPq14</a><br /><br />Source Video 2:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=_KM137ArDUY">https://www.youtube.com/watch?v=_KM137ArDUY</a><br /><br />Source Video 3:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Xq3ahHBLJic">https://www.youtube.com/watch?v=Xq3ahHBLJic</a><br /><br />Attitude. Skills. Plan.<br /><br />If you’re looking for a quality holster for your every-day carry, the ASP Holster Consortium stands ready to provide you with high quality, clueful holsters that meet our standards with excellence.  Our entire staff carries in these products, and we highly recommend them to you.  Find out more here: <a rel="nofollow" target="blank" href="https://get-asp.com/9ybs">https://get-asp.com/9ybs</a><br /><br />ASP Sponsors and Recommended Products: <a rel="nofollow" target="blank" href="https://activeselfprotection.com/recommended-products-and-sponsors/">https://activeselfprotection.com/recommended-products-and-sponsors/</a><br /><br />Copyright Disclaimer. Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.{% endraw %}
