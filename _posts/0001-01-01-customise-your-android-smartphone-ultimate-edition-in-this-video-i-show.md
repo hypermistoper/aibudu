@@ -1,0 +1,15 @@
+---
+title: "Customise your Android Smartphone - ULTIMATE Edition."
+image: "https:\/\/i.ytimg.com\/vi\/RPYml8UMAgU\/hqdefault.jpg"
+vid_id: "RPYml8UMAgU"
+categories: "Science-Technology"
+tags: ["android","launcher","nova launcher"]
+date: "2022-03-28T06:24:23+03:00"
+vid_date: "2018-12-07T12:45:01Z"
+duration: "PT5M34S"
+viewcount: "1192022"
+likeCount: "31499"
+dislikeCount: ""
+channel: "Mrwhosetheboss"
+---
+{% raw %}In this video I show you ways you can customise your Android phone with themes, launchers, icon packs, and widgets in 2018! Android app links for the themes, wallpapers and widgets are below (2018):<br /><br />Amazon Play &amp; Shop: <a rel="nofollow" target="blank" href="http://lrd.to/PlayandShopBoss">http://lrd.to/PlayandShopBoss</a><br /><br />Fluid Nav Gestures: <a rel="nofollow" target="blank" href="http://bit.ly/2BFCdzB">http://bit.ly/2BFCdzB</a><br />KLWP: <a rel="nofollow" target="blank" href="http://bit.ly/2DCZN1SMaterializedHome:">http://bit.ly/2DCZN1SMaterializedHome:</a> <a rel="nofollow" target="blank" href="http://bit.ly/2DVAqIj">http://bit.ly/2DVAqIj</a><br />Tidy: <a rel="nofollow" target="blank" href="http://bit.ly/2Shg2VR">http://bit.ly/2Shg2VR</a><br />KWGT: <a rel="nofollow" target="blank" href="http://bit.ly/2RsH3Wt">http://bit.ly/2RsH3Wt</a><br />Pixelicious: <a rel="nofollow" target="blank" href="http://bit.ly/2zvOLrO">http://bit.ly/2zvOLrO</a><br />Tropical: <a rel="nofollow" target="blank" href="http://bit.ly/2BGI9YQ">http://bit.ly/2BGI9YQ</a><br />Gradfire: <a rel="nofollow" target="blank" href="http://bit.ly/2BEGS4z">http://bit.ly/2BEGS4z</a><br />KLCK: <a rel="nofollow" target="blank" href="http://bit.ly/2Q01c9w">http://bit.ly/2Q01c9w</a><br />Pixel 3 Live Wallpapers: <a rel="nofollow" target="blank" href="http://bit.ly/2zw4O8S">http://bit.ly/2zw4O8S</a><br />CPL: <a rel="nofollow" target="blank" href="http://bit.ly/2AxiakZ">http://bit.ly/2AxiakZ</a><br />Wonderwall: <a rel="nofollow" target="blank" href="http://bit.ly/2rbsCu3">http://bit.ly/2rbsCu3</a><br />Boom: <a rel="nofollow" target="blank" href="http://bit.ly/2E1aKKU">http://bit.ly/2E1aKKU</a><br />Pixel Vintage: <a rel="nofollow" target="blank" href="http://bit.ly/2Axf6Fz">http://bit.ly/2Axf6Fz</a><br /><br />😄 Subscribe for more  content (IT'S FREE) 😄 : <a rel="nofollow" target="blank" href="https://goo.gl/pLg6fE">https://goo.gl/pLg6fE</a><br /><br />It would make my day if you could also follow me on:<br />🌈 Instagram: <a rel="nofollow" target="blank" href="https://goo.gl/OUqBBa">https://goo.gl/OUqBBa</a><br />🐦 Twitter: <a rel="nofollow" target="blank" href="https://goo.gl/EFhwqL">https://goo.gl/EFhwqL</a><br />😊 Facebook: <a rel="nofollow" target="blank" href="https://goo.gl/Aluzl1">https://goo.gl/Aluzl1</a><br /><br /><br /><br />My Filming Gear:<br /><a rel="nofollow" target="blank" href="https://goo.gl/5HKrBp">https://goo.gl/5HKrBp</a><br /><br />Music is from Epidemic sound, and HomageBeats:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/homage253">https://www.youtube.com/user/homage253</a><br /><br />#LikeaBoss{% endraw %}
