@@ -1,0 +1,15 @@
+---
+title: "YOU ARE \\NOT\\ ALONE  | HARDSTYLE MIX | Сборник Хард Треков [AESTHETICS LIFE]"
+image: "https:\/\/i.ytimg.com\/vi\/ITdwRAc9CyY\/hqdefault.jpg"
+vid_id: "ITdwRAc9CyY"
+categories: "Music"
+tags: ["сборник треков","треки под блекхол","malo malo malo tebya"]
+date: "2022-03-29T11:40:20+03:00"
+vid_date: "2022-02-04T14:06:55Z"
+duration: "PT39M57S"
+viewcount: "257948"
+likeCount: "15696"
+dislikeCount: ""
+channel: "CURSEDEVIL"
+---
+{% raw %}ТЕ САМЫЕ треки под блекхол и не только // В конце бонус)<br />Плейлист в вк: <a rel="nofollow" target="blank" href="https://vk.com/music/playlist/297590285_239">https://vk.com/music/playlist/297590285_239</a><br />Spotify ELECTRONIC playlist: <a rel="nofollow" target="blank" href="https://open.spotify.com/playlist/34FUSiw8Zeuw7qQsBZVfUI?si=69b4ba0eb976475a">https://open.spotify.com/playlist/34FUSiw8Zeuw7qQsBZVfUI?si=69b4ba0eb976475a</a><br />SoundCloud playlist: <a rel="nofollow" target="blank" href="https://soundcloud.com/user-439533048-822296794/sets">https://soundcloud.com/user-439533048-822296794/sets</a><br />-----------------------------------------------------------<br />Submits/Contacts: IG: @cvrsedplaylist // cvrsedplaylist@gmail.com <br />Группа вк(там картинки и плейлисты для вк): <a rel="nofollow" target="blank" href="https://vk.com/cursedsbaby">https://vk.com/cursedsbaby</a><br />Telegram группа(сюда заливаю треки) <a rel="nofollow" target="blank" href="https://t.me/cursedevi">https://t.me/cursedevi</a><br /><br />My other playlists:<br />HYPERPOP <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLT5wNGe-2JSyScdBgrutfD1U5L20BWGvl">https://www.youtube.com/playlist?list=PLT5wNGe-2JSyScdBgrutfD1U5L20BWGvl</a><br /><br />AGGRESSIVE ZXC <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLT5wNGe-2JSxRb3peiBt3rC0E3QShyDKM">https://www.youtube.com/playlist?list=PLT5wNGe-2JSxRb3peiBt3rC0E3QShyDKM</a><br /><br />1/2 pos ghoul: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=2cA_mzUXXF0&amp;list=PLT5wNGe-2JSwYiRviFyKboC7wNbbfxT4C">https://www.youtube.com/watch?v=2cA_mzUXXF0&amp;list=PLT5wNGe-2JSwYiRviFyKboC7wNbbfxT4C</a><br /><br />Phonk playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=8edZVkacijA&amp;list=PLT5wNGe-2JSxcLv4gkPLnVYpg-AKasxDh">https://www.youtube.com/watch?v=8edZVkacijA&amp;list=PLT5wNGe-2JSxcLv4gkPLnVYpg-AKasxDh</a><br /><br />#Hardstyle #Remix #хардкор<br />00:00:00 Serebro - Мало тебя (DJ Spizdil Remix)<br />00:02:45 Mr. Credo - Медляк (Kemortan Remix)<br />00:06:14 SEREBRO - Отпусти меня (gerc3w remix)<br />00:09:04 MAGAZ - ЕСЛИ В СЕРДЦЕ ЖИВЕТ ХАРДКОР<br />00:13:22 DJ SPIZDIL - DJ SPIZDIL - Нас не догонят (Extended Remix)<br />00:16:39 Максим (Torn Remix) - Отпускаю<br />00:22:35 DJ SPIZDIL - Я ТЕБЯ НЕ ОТДАМ<br />00:26:17 Баста ft. Алена Омаргалиева - Я поднимаюсь над землеи (Krot Remix)<br />00:31:44 t.A.T.u. - Я сошла с ума (Amin Khani Remix Edit) [NXC]<br />00:34:25 Вирус - Мой нулевой (Hardstyle Remix) [NXC]<br />00:37:14 MX$HPiT BEATZz. - fem.love - фотографирую закат(hardstyle remix by MX$HPiT){% endraw %}
