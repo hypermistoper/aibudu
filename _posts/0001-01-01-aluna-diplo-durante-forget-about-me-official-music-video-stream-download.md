@@ -1,0 +1,15 @@
+---
+title: "Aluna, Diplo & Durante - Forget About Me (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/dS17Es9RADo\/hqdefault.jpg"
+vid_id: "dS17Es9RADo"
+categories: "People-Blogs"
+tags: ["aluna","diplo","durante"]
+date: "2022-03-29T12:22:42+03:00"
+vid_date: "2022-01-14T05:00:10Z"
+duration: "PT3M10S"
+viewcount: "1227198"
+likeCount: "14126"
+dislikeCount: ""
+channel: "Aluna"
+---
+{% raw %}Stream/Download: <a rel="nofollow" target="blank" href="https://maddecent.ffm.to/forgetaboutme">https://maddecent.ffm.to/forgetaboutme</a><br />Follow Mad Decent Weekly on Spotify: <a rel="nofollow" target="blank" href="http://maddecent.fm/mdweekly">http://maddecent.fm/mdweekly</a> <br />Subscribe to Mad Decent on YouTube: <a rel="nofollow" target="blank" href="http://www.maddecent.fm/youtube">http://www.maddecent.fm/youtube</a> <br /><br />Credits: <br />Director - Reggie.<br />Producer - Noelle DeAngelis<br />Executive Producer - Darrius Medina<br />Prod Co &amp; Concept - Lit Creative<br />VFX - Ryan Zumallen<br />CGI Artist - Nick Holiday<br />Editor - Karl Jungquist<br />Colorist - Abdullah Ghazal <br />Production Designer &amp; Art Direction - Lulu Brown &amp; Genevieve Andrews<br />DP - Ava Rikki<br />1st AC - Alex Han<br />BTS - Carter Juncal<br />KG - Bevis Tran<br />Gaffer - Kay Zhou<br />BBG - Rob Padilla<br />BBE - Chris Ginnaven<br />Swing - Kyle Thor<br />Makeup - Fara Conley<br />Hair - Windy Braille<br />Nails - RaRa Nails<br />1st AD - Daniel Bennaiem<br />PA - Samone Kidane<br />Art PA - Kathryn Yu<br />Truck PA - Asad Khan<br />PA Lit Creative - Jennifer Montes De Oca<br />PA Lit Creative - Silan Fadlallah<br /><br />FOLLOW ALUNA:<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/alunaaa">https://twitter.com/alunaaa</a><br />SoundCloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/aluna">https://soundcloud.com/aluna</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/aluna/">https://www.instagram.com/aluna/</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCobFqQJej43yF4C48mhXMBA">https://www.youtube.com/channel/UCobFqQJej43yF4C48mhXMBA</a><br /><br />FOLLOW MAD DECENT <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/maddecent">https://www.facebook.com/maddecent</a><br />Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/maddecent">https://www.twitter.com/maddecent</a><br />SoundCloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/maddecent">https://soundcloud.com/maddecent</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/maddecent">https://www.instagram.com/maddecent</a><br />Web: <a rel="nofollow" target="blank" href="https://www.maddecent.com">https://www.maddecent.com</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.maddecent.lnk.to/YouTube">https://www.maddecent.lnk.to/YouTube</a>{% endraw %}
