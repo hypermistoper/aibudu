@@ -1,0 +1,15 @@
+---
+title: "How Traditional French Camembert Is Made | Regional Eats"
+image: "https:\/\/i.ytimg.com\/vi\/atOpLj-q5nA\/hqdefault.jpg"
+vid_id: "atOpLj-q5nA"
+categories: "Travel-Events"
+tags: ["cheese","France","Normandy"]
+date: "2022-03-29T12:43:50+03:00"
+vid_date: "2019-11-06T17:00:00Z"
+duration: "PT7M57S"
+viewcount: "3599376"
+likeCount: "53001"
+dislikeCount: ""
+channel: "Food Insider"
+---
+{% raw %}Sweet and creamy, Camembert holds a special place in the heart of cheese lovers. The iconic cheese originated in the northern French region of Normandy, where it has been made for centuries. Today, France makes 360 million wheels of Camembert each year. We visited Le 5 Frères, a family-run farm in the village of Bermonville that makes Camembert following the traditional recipe using raw milk and ladles it into molds by hand.<br /><br />MORE REGIONAL EATS:<br />How Swiss Emmentaler Cheese Is Made <a rel="nofollow" target="blank" href="https://youtu.be/1a7f9wzOfWk">https://youtu.be/1a7f9wzOfWk</a><br />Why Traditional English Cheddar Is Aged In Caves <a rel="nofollow" target="blank" href="https://youtu.be/fbSUvsgJgBs">https://youtu.be/fbSUvsgJgBs</a><br />How Dutch Gouda Is Made At A 100-Year-Old Family Farm <a rel="nofollow" target="blank" href="https://youtu.be/ImpROVueIcE">https://youtu.be/ImpROVueIcE</a><br /><br />------------------------------------------------------<br /><br />#Camembert #Cheese #FoodInsider<br /><br />Insider is great journalism about what passionate people actually want to know. That’s everything from news to food, celebrity to science, politics to sports and all the rest. It’s smart. It’s fearless. It’s fun. We push the boundaries of digital storytelling. Our mission is to inform and inspire.<br /><br />Subscribe to our channel and visit us at: <a rel="nofollow" target="blank" href="https://www.insider.com">https://www.insider.com</a><br />Food Insider on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/foodinsider/">https://www.facebook.com/foodinsider/</a><br />Food Insider on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/thisisinsiderfood/">https://www.instagram.com/thisisinsiderfood/</a><br />Food Insider on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/InsiderFood">https://twitter.com/InsiderFood</a><br />Insider on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Insider/4020934530">https://www.snapchat.com/discover/Insider/4020934530</a><br />Insider on Amazon Prime: <a rel="nofollow" target="blank" href="https://www.amazon.com/v/thisisinsider">https://www.amazon.com/v/thisisinsider</a><br />Insider on TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@insider">https://www.tiktok.com/@insider</a><br />Food Insider on Dailymotion: <a rel="nofollow" target="blank" href="https://www.dailymotion.com/foodinsider">https://www.dailymotion.com/foodinsider</a><br /><br />How Traditional French Camembert Is Made | Regional Eats{% endraw %}
