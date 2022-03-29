@@ -1,0 +1,15 @@
+---
+title: "Naughty Boy, Mike Posner - Live Before I Die"
+image: "https:\/\/i.ytimg.com\/vi\/uXeZNXdu-gs\/hqdefault.jpg"
+vid_id: "uXeZNXdu-gs"
+categories: "Music"
+tags: ["Mike Posner","Naughty Boy","Live Before Die"]
+date: "2022-03-29T10:58:13+03:00"
+vid_date: "2019-11-15T05:00:14Z"
+duration: "PT4M3S"
+viewcount: "16603946"
+likeCount: "443993"
+dislikeCount: ""
+channel: "MikePosnerVEVO"
+---
+{% raw %}Listen to ‘Live Before I Die’, out now: <a rel="nofollow" target="blank" href="https://NaughtyBoyMikePosner.lnk.to/LiveBeforeIDie">https://NaughtyBoyMikePosner.lnk.to/LiveBeforeIDie</a> <br /><br />Follow Mike Posner: <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/mikeposner">https://www.instagram.com/mikeposner</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/mikeposner">https://www.twitter.com/mikeposner</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/therealmikep...">https://www.facebook.com/therealmikep...</a><br /><br />Follow Naughty Boy:<br /><a rel="nofollow" target="blank" href="https://NaughtyBoy.lnk.to/Follow">https://NaughtyBoy.lnk.to/Follow</a> <br /><br />Lyrics: <br />I stopped smoking weed a year ago<br />Maybe I’m less cool now, I don’t know<br />But I talk to pretty girls now, instead of sitting there all stoned<br />I stopped smoking weed a year ago<br />And I stopped drinking Hennessy on ice<br />I thought it made my fans think I was tight<br />I’m still up in that night club on way too many nights<br />But I stopped drinking Hennessy on ice<br /><br />See I’ve been running from my past<br />But my future’s just too fast<br />He don’t stop for no one that’s no lie<br />So dear Lord won’t you please gimme wisdom grant me peace<br />Cuz I just want to live before I <br /><br />Live before I die, die<br />Live before I die<br />Yeah, I just wanna live before I <br />I just wanna live before I<br />I just wanna live before I<br />I just wanna live before I<br /><br />Yeah I stopped thinking ‘bout the girls back home<br />Even though I spend my nights alone<br />I button up that shirt and spray on that cologne<br />Yeah, I stopped thinking ‘bout the girls back home<br /><br />See I’ve been running from my past<br />But my future’s just too fast<br />He don’t stop for no one that’s no lie<br />So dear Lord won’t you please gimme wisdom grant me peace<br />Cuz I just want to live before I <br /><br />Live before I die, die<br />Live before I die<br />Yeah, I just wanna live before I<br />Live before I <br />I just wanna live before I<br />I just wanna live before I<br />I just wanna live before I<br /><br />I stopped smoking weed a year ago<br />Maybe I’m less cool now, I don’t know<br />But I got two more albums done<br />Instead of sitting there all stoned<br />Yeah, I stopped smoking weed a year ago<br /><br />Director: Mike Posner<br />Producer / Prod Co: Logan Meis<br /><br />#NaughtyBoy #MikePosner #LiveBeforeIDie{% endraw %}
