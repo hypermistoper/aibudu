@@ -1,0 +1,15 @@
+---
+title: "This Could Put Plastic Surgeons Out Of Business | Ross Smith"
+image: "https:\/\/i.ytimg.com\/vi\/mLgnjkxvV-0\/hqdefault.jpg"
+vid_id: "mLgnjkxvV-0"
+categories: "Entertainment"
+tags: ["ross smith","ross smith grandma","ross smith and grandma"]
+date: "2022-03-30T22:46:26+03:00"
+vid_date: "2022-03-24T22:00:17Z"
+duration: "PT4M49S"
+viewcount: "91553"
+likeCount: "1735"
+dislikeCount: ""
+channel: "Ross Smith"
+---
+{% raw %}Granny is a serious shopaholic... Today she runs a speakeasy out of her purse, finds a product that could put plastic surgeons out of business and even gets a little juicy in this review.<br /><br />Subscribe to my channel! <a rel="nofollow" target="blank" href="http://bit.ly/SubRossSmith">http://bit.ly/SubRossSmith</a><br /><br /><br /><br />👍 LIKE this video &amp; TURN ON NOTIFICATIONS!!! 🔔<br /><br /><br /><br />🎃 Don't Steal Grandma's Halloween Candy! ➜ <a rel="nofollow" target="blank" href="https://youtu.be/tL3c7ewdGIo">https://youtu.be/tL3c7ewdGIo</a><br /><br /><br /><br />👹 Chucky Scares People In Public Prank ➜  <a rel="nofollow" target="blank" href="https://youtu.be/4oZ9Qt26UVA">https://youtu.be/4oZ9Qt26UVA</a><br /><br /><br /><br />💪 Grandma Heckles Bodybuilders ➜ <a rel="nofollow" target="blank" href="https://youtu.be/gJtIAnhtMSs">https://youtu.be/gJtIAnhtMSs</a><br /><br /><br /><br />💪 Grandma Heckles Bodybuilders Part 2 ➜ <a rel="nofollow" target="blank" href="https://youtu.be/LrEYWCMzmGI">https://youtu.be/LrEYWCMzmGI</a><br /><br /><br /><br />📚 Grandma Pranks College Kids at Ohio State ➜ <a rel="nofollow" target="blank" href="https://youtu.be/952HNvABEzA">https://youtu.be/952HNvABEzA</a><br /><br /><br /><br />📚 Grandma Messes With College Students (Part: 2) ➜ <a rel="nofollow" target="blank" href="https://youtu.be/wRaElVOJELM">https://youtu.be/wRaElVOJELM</a><br /><br /><br /><br />🔪 Grandma Pepper Sprays Body Builder ➜ <a rel="nofollow" target="blank" href="https://youtu.be/yCC06BeIATc">https://youtu.be/yCC06BeIATc</a><br /><br /><br /><br />🔪 Grandma's Self Defense Class #2 ➜ <a rel="nofollow" target="blank" href="https://youtu.be/0qJkGRfrP4c">https://youtu.be/0qJkGRfrP4c</a><br /><br /><br /><br />🎯 TRICK SHOT BATTLE: GRANDMA VS. 3 YEAR-OLD ➜ <a rel="nofollow" target="blank" href="https://youtu.be/OztYhyFd2TU">https://youtu.be/OztYhyFd2TU</a><br /><br /><br /><br />🚓 GRANDMA GETS PULLED OVER BY THE COPS!! ➜ <a rel="nofollow" target="blank" href="https://youtu.be/4KV9KWXMENs">https://youtu.be/4KV9KWXMENs</a><br /><br /><br /><br />🧓🏻 Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/RossSmithvideos">https://www.facebook.com/RossSmithvideos</a><br /><br />📷 Instagram - @rosssmith<br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/smoothsmith8/">https://www.instagram.com/smoothsmith8/</a><br /><br />🐦 Twitter - @Smoothsmith8 <a rel="nofollow" target="blank" href="https://twitter.com/Smoothsmith8">https://twitter.com/Smoothsmith8</a><br /><br />👻 Snapchat - @pillowsweat<br /><br /><br /><br />#GrandmaSmith #RossSmith #Grandma{% endraw %}
