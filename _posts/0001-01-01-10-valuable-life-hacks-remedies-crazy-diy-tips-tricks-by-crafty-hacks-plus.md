@@ -1,0 +1,15 @@
+---
+title: "10 VALUABLE LIFE HACKS & REMEDIES | CRAZY DIY TIPS & TRICKS BY CRAFTY HACKS PLUS"
+image: "https:\/\/i.ytimg.com\/vi\/vfqB9lCk3hk\/hqdefault.jpg"
+vid_id: "vfqB9lCk3hk"
+categories: "Entertainment"
+tags: ["diy","do it yourself","prank"]
+date: "2022-03-30T17:12:59+03:00"
+vid_date: "2022-03-30T12:30:13Z"
+duration: "PT9M9S"
+viewcount: "11343"
+likeCount: "430"
+dislikeCount: ""
+channel: "Crafty Hacks Plus"
+---
+{% raw %}Hey Crafty Hack Fans!<br />Do you ever need a quick hack or remedy to solve your problems?!<br />These are 10 fun and crazy life hacks and remedies to help you out! <br />Cool and fun life hacks by Crafty Hacks<br />Share and enjoy this video with your friends!<br />Which hack was your favorite?<br /><br />00:00 - 00:58 dusty blinds hack<br />00:59 - 01:49 spinach for headaches<br />01:50 – 02:54 oranges for bruises<br />02:55 – 03:52 cooling food hack<br />03:53 – 04:44 scrape fix<br />04:45 – 05:36 easy mopping<br />05:37 – 06:21 cucumbers for dehydration<br />06:22 – 07:22 clean painting<br />07:23 – 08:44 sunburn remedy <br />08:45 - 09:08 outro<br /><br />Subscribe for notifications to new videos:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYEfYqdpJdgNxuPWV1Erxeg?sub_confirmation=1">https://www.youtube.com/channel/UCYEfYqdpJdgNxuPWV1Erxeg?sub_confirmation=1</a><br /><br />Check out our latest videos playlist:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=3AOMHi4akpg&amp;list=PL1Xl9g8DGoVbhuvC-JFRNMZ3nl87C4GQm">https://www.youtube.com/watch?v=3AOMHi4akpg&amp;list=PL1Xl9g8DGoVbhuvC-JFRNMZ3nl87C4GQm</a><br /> <br />Check out Crafty Hacks Plus: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCD5BJYvR9yTPB7n46DK1wRA?sub_confirmation=1">https://www.youtube.com/channel/UCD5BJYvR9yTPB7n46DK1wRA?sub_confirmation=1</a><br /> <br />Check out Crafty Hacks ES:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCBn0INB-A36iBvcpcxfAKKg?sub_confirmation=1">https://www.youtube.com/channel/UCBn0INB-A36iBvcpcxfAKKg?sub_confirmation=1</a><br /><br />Check out Crafty Crafts: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCVBqGZrGmtCwks54PMyQQMA?sub_confirmation=1">https://www.youtube.com/channel/UCVBqGZrGmtCwks54PMyQQMA?sub_confirmation=1</a><br /><br />Check out Sweedee: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCMPQD9gyyH0hj_-t9CNwRaw">https://www.youtube.com/channel/UCMPQD9gyyH0hj_-t9CNwRaw</a> <br /> <br />This video is made for entertainment purposes. We do not make any warranties about the completeness, safety, and reliability. Any action you take upon the information on this video is strictly at your own risk, and we will not be liable for any damages or losses. It is the viewer's responsibility to use judgment, care, and precautions if one plans to replicate. The following video might feature activity performed by our actors within a controlled environment - please use judgment, care, and precaution if you plan to replicate.{% endraw %}
