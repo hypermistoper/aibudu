@@ -1,0 +1,15 @@
+---
+title: "Present with CONFIDENCE with THESE 3 PowerPoint Tips"
+image: "https:\/\/i.ytimg.com\/vi\/XA1o5rvy8r4\/hqdefault.jpg"
+vid_id: "XA1o5rvy8r4"
+categories: "Education"
+tags: ["PowerPoint","slide presentation","powerpoint tutorial"]
+date: "2022-03-31T23:08:35+03:00"
+vid_date: "2019-03-28T11:05:28Z"
+duration: "PT5M34S"
+viewcount: "830962"
+likeCount: "12774"
+dislikeCount: ""
+channel: "Leila Gharani"
+---
+{% raw %}Sign Up to Simple Slides to make BETTER slides FAST: <a rel="nofollow" target="blank" href="https://www.simpleslides.co/a/45563/yoW5RmAU">https://www.simpleslides.co/a/45563/yoW5RmAU</a><br /><br />How can you make a great PowerPoint presentation? Make sure you follow these 3 tips to inform, impress and captivate your audience. How much should you fit on a slide? What if you have a lot of information and you can't fit it on one slide? Do I need the logo on every single slide?<br /><br />★ My Online Excel Courses ► <a rel="nofollow" target="blank" href="https://www.xelplus.com/courses/">https://www.xelplus.com/courses/</a><br /><br />Make sure you don't make the same mistakes I've made in the past when creating PowerPoint presentations. These 3 tips help you design professional, impressive slides. You can apply these concepts to all versions of PowerPoint, such as PowerPoint 2010, 2013 and PowerPoint 2016.<br /><br />★ Get the Official XelPlus MERCH: <a rel="nofollow" target="blank" href="https://xelplus.creator-spring.com/">https://xelplus.creator-spring.com/</a><br /><br />00:00 How to Make a Great PowerPoint Presentation<br />00:34 Your Slides Shouldn't Make Sense Without You<br />02:41 Be Careful With Acronyms<br />03:58 Do You Need Branding On Every Slide?<br />05:02 Wrap Up<br /><br />Link to blog post: <a rel="nofollow" target="blank" href="https://www.xelplus.com/powerpoint-presentation-tips/">https://www.xelplus.com/powerpoint-presentation-tips/</a><br /><br />Top 3 PowerPoint Hacks Video: <a rel="nofollow" target="blank" href="https://youtu.be/s7jbBLJZ6a0">https://youtu.be/s7jbBLJZ6a0</a><br /><br />✉ Subscribe &amp; get my TOP 10 Excel formulas e-book for free<br /><a rel="nofollow" target="blank" href="https://www.xelplus.com/free-ebook/">https://www.xelplus.com/free-ebook/</a><br /><br />EXCEL RESOURCES I Recommend: <a rel="nofollow" target="blank" href="https://www.xelplus.com/resources/">https://www.xelplus.com/resources/</a><br /><br />GEAR I Use: <a rel="nofollow" target="blank" href="https://www.xelplus.com/resources/#gear">https://www.xelplus.com/resources/#gear</a><br /><br />More resources on my Amazon page: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/leilagharani">https://www.amazon.com/shop/leilagharani</a><br /><br />Note: This description contains affiliate links, which means at no additional cost to you, we will receive a small commission if you make a purchase using the links. This helps support the channel and allows us to continue to make videos like this. Thank you for your support!<br /><br />#PowerPoint{% endraw %}
