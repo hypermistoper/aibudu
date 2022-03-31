@@ -1,0 +1,15 @@
+---
+title: "Pink Floyd - \" 1:32:49 \"  Live"
+image: "https:\/\/i.ytimg.com\/vi\/Ofr7MWVAReo\/hqdefault.jpg"
+vid_id: "Ofr7MWVAReo"
+categories: "Music"
+tags: ["Pink Floyd"]
+date: "2022-03-31T11:31:12+03:00"
+vid_date: "2020-07-25T13:21:24Z"
+duration: "PT1H32M50S"
+viewcount: "572416"
+likeCount: ""
+dislikeCount: ""
+channel: "HDPinkFloyd"
+---
+{% raw %}Delicate Sound of Thunder / Pulse<br />Live at  Nassau Coliseum in Uniondale, New York 1988<br />Live at Earls Court London PULSE 1994<br />Tracks<br />1.   00:00:00  &quot; High Hopes &quot; Live at Earls Court London PULSE 1994<br />2.   00:08:05  &quot; Sorrow&quot;          Live at  Nassau Coliseum in Uniondale, New York 1988<br />3.   00:18:30  &quot; Coming Back to Life &quot;  Live at Earls Court London PULSE 1994<br />4.   00:25:10  &quot; On The Turning Away &quot;  Live at  Nassau Coliseum in Uniondale, New York 1988<br />5.   00:34:02  &quot; Another Brick in The Wall &quot;    Live at Earls Court London PULSE 1994<br />6.   00:40:33  &quot; &quot;One of These Days&quot;   Live at  Nassau Coliseum in Uniondale, New York 1988<br />7.   00:46:28  &quot; TIME &quot;   Live at Earls Court London PULSE 1994<br />8.   00:53:03  &quot; US and Them &quot;   Live at  Nassau Coliseum in Uniondale, New York 1988<br />9.   01:00:36   &quot;Brain Damage&quot; / &quot;Eclipse&quot; Live at Earls Court London PULSE 1994<br />10. 01:06:08  &quot; Money &quot;  Live at  Nassau Coliseum in Uniondale, New York 1988<br />11. 01:14:30  &quot; Comfortably Numb &quot; Live at Earls Court London PULSE 1994<br />12. 01:23:45   &quot; Run Like Hell &quot;   Live at  Nassau Coliseum in Uniondale, New York 1988<br /><br />Delicate Sound of Thunder <br />David Gilmour - guitars, console steel guitar, vocals<br />Nick Mason - drums<br />Richard Wright – keyboards, piano, Hammond organ, vocals<br />with:<br />Tim Renwick – guitars, vocals<br />Jon Carin – keyboards, piano, programming, vocals<br />Scott Page – saxophones, guitar<br />Guy Pratt – bass, vocals<br />Gary Wallis – percussion, <br />Margret Taylor – backing vocals<br />Rachel Fury – backing vocals<br />Durga McBroom – backing vocals<br /><br /> Earls Court London PULSE <br />David Gilmour – lead vocals, guitars, lap steel guitar, talk box<br />Richard Wright – keyboards, backing vocals, lead vocals on &quot;Time&quot; and &quot;Comfortably Numb&quot; (verses)<br />Nick Mason – drums, gong, roto-toms<br />Additional personnel<br />Guy Pratt – bass guitar, backing vocals, lead vocals on &quot;Comfortably Numb&quot;<br />Jon Carin – keyboards, programming, backing vocals, lead vocals on &quot;Comfortably Numb&quot; <br />Sam Brown – backing vocals, first lead vocalist on &quot;The Great Gig in the Sky&quot;<br />Durga McBroom – backing vocals, second lead vocalist on &quot;The Great Gig in the Sky&quot;<br />Claudia Fontaine – backing vocals, third lead vocalist on &quot;The Great Gig in the Sky&quot;<br />Tim Renwick – guitars, backing vocals<br />Dick Parry – saxophones<br />Gary Wallis – percussion, additional drums (played and programmed){% endraw %}
