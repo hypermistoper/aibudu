@@ -1,0 +1,15 @@
+---
+title: "Maren Morris - Nervous (Audio)"
+image: "https:\/\/i.ytimg.com\/vi\/uwT6uSFLW8M\/hqdefault.jpg"
+vid_id: "uwT6uSFLW8M"
+categories: "Music"
+tags: ["maren morris new song","maren morris tiktok song","maren morris teaser"]
+date: "2022-03-31T14:23:32+03:00"
+vid_date: "2022-03-11T05:00:21Z"
+duration: "PT2M56S"
+viewcount: "132427"
+likeCount: "2927"
+dislikeCount: ""
+channel: "MarenMorrisVEVO"
+---
+{% raw %}Listen to “Nervous” out now, from Maren’s new album “Humble Quest” Available Now: <a rel="nofollow" target="blank" href="https://mm.lnk.to/HumbleQuestAY">https://mm.lnk.to/HumbleQuestAY</a><br /><br /><br />Chorus:<br />You make me<br />Out of control<br />Out of our clothes<br />Motion in slow, yeah<br />You take me<br />You take me<br />In my feelings<br />Through the ceiling<br />Leaving my inhibitions exposed<br /><br /><br />Listen On:<br />Apple Music: <a rel="nofollow" target="blank" href="https://mm.lnk.to/HumbleQuestAY/applemusic">https://mm.lnk.to/HumbleQuestAY/applemusic</a><br />iTunes: <a rel="nofollow" target="blank" href="https://mm.lnk.to/HumbleQuestAY/itunes">https://mm.lnk.to/HumbleQuestAY/itunes</a><br />Spotify: <a rel="nofollow" target="blank" href="https://mm.lnk.to/HumbleQuestAY/spotify">https://mm.lnk.to/HumbleQuestAY/spotify</a><br />Amazon Music: <a rel="nofollow" target="blank" href="https://mm.lnk.to/HumbleQuestAY/amazonmusic">https://mm.lnk.to/HumbleQuestAY/amazonmusic</a><br />YouTube Music: <a rel="nofollow" target="blank" href="https://mm.lnk.to/HumbleQuestAY/youtubemusic">https://mm.lnk.to/HumbleQuestAY/youtubemusic</a><br />Pandora: <a rel="nofollow" target="blank" href="https://mm.lnk.to/HumbleQuestAY/pandora">https://mm.lnk.to/HumbleQuestAY/pandora</a><br /><br />Follow Maren Morris:<br />Instagram: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/instagram">https://mm.lnk.to/ProfileAY/instagram</a>  <br />Twitter: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/twitter">https://mm.lnk.to/ProfileAY/twitter</a><br />Facebook: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/facebook">https://mm.lnk.to/ProfileAY/facebook</a><br />TikTok: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/tiktok">https://mm.lnk.to/ProfileAY/tiktok</a><br />Subscribe to her channel: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/youtube">https://mm.lnk.to/ProfileAY/youtube</a>  <br />Official website: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/officialsite">https://mm.lnk.to/ProfileAY/officialsite</a><br />Join The HEROES Fan Club: <a rel="nofollow" target="blank" href="http://smarturl.it/TheHEROESfanclub?I...">http://smarturl.it/TheHEROESfanclub?I...</a><br />Shop: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/artiststore">https://mm.lnk.to/ProfileAY/artiststore</a><br />HQ Hotline: <a rel="nofollow" target="blank" href="https://mm.lnk.to/ProfileAY/text-me">https://mm.lnk.to/ProfileAY/text-me</a><br /><br />#MarenMorris #Nervous #Audio{% endraw %}
