@@ -1,0 +1,15 @@
+---
+title: "God is Great | Luke Null | Don't Tell Comedy Secret"
+image: "https:\/\/i.ytimg.com\/vi\/vl2rc2N3_NY\/hqdefault.jpg"
+vid_id: "vl2rc2N3_NY"
+categories: "Comedy"
+tags: ["Great","Don't","Comedy"]
+date: "2022-03-31T08:13:45+03:00"
+vid_date: "2022-03-30T19:00:31Z"
+duration: "PT6M13S"
+viewcount: "767"
+likeCount: "108"
+dislikeCount: ""
+channel: "Don't Tell Comedy"
+---
+{% raw %}Don’t Tell Comedy produces weekly shows in over 45 cities in the US by transforming unique spaces like backyards, surf shops, and warehouses into locations for a one-of-a-kind comedy experience! The location is kept a secret until the day of the show and the performers are a secret until they hit the stage!<br /><br />Get on our secret email list at the bottom of our homepage:<br /><a rel="nofollow" target="blank" href="https://www.donttellcomedy.com/">https://www.donttellcomedy.com/</a><br /><br />Subscribe to Don’t Tell Comedy for more videos like this:<br /><a rel="nofollow" target="blank" href="http://bit.ly/dtcyoutube">http://bit.ly/dtcyoutube</a><br /><br />#LukeNull<br />#StandUpComedy<br />#DontTellComedy<br />------------------------------------------------------------------------ <br />Follow us on Instagram, TikTok, and Facebook for more stand-up clips!<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/donttellcomedy">https://www.instagram.com/donttellcomedy</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@donttellcomedy">https://www.tiktok.com/@donttellcomedy</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/donttellcomedy">https://www.facebook.com/donttellcomedy</a><br />------------------------------------------------------------------------ <br /><br />Luke Null is a hilarious LA based comedian that performs all over the country. Follow Luke on Instagram to find out where he’s performing next: <a rel="nofollow" target="blank" href="https://www.instagram.com/luke_null">https://www.instagram.com/luke_null</a><br /><br />------------------------------------------------------------------------ <br /><br />Don’t Tell Comedy Secret Sets is a YouTube Series featuring short sets from the best of the next generation of stand up comedians filmed at the most unique Don’t Tell Comedy locations. As is tradition with DTC events, the location isn’t revealed to ticket purchasers and the lineup is kept a complete secret.<br /><br />Credits:<br />Written and Performed by Luke Null<br /><br />Executive Producers: Kyle Kazanjian-Amory and Brett Kushner<br />Directed By: Gordie Earle III and Brad Silnutzer<br />Director of Photography: Mark I. Davis<br />Gaffer and Cam Operator: Michael Tellup<br /><br />Cam Operators:<br />Gordie Earle III<br />Mark I. Davis<br />Kyle Kazanjian-Amory<br /><br />Editor: Gordie Earle III<br />Color Correction: Mark Davis<br />Sound Recording: Alex Gilroy<br />Sound Mix: Ryan Meadows<br /><br />Producers: Brad Silnutzer and Cole Garrett<br />Live Event Producers: Rachel Bershad and Isaac Chapin<br /><br />Special Thanks: Our gracious hosts, FemX Quarters in San Diego{% endraw %}
