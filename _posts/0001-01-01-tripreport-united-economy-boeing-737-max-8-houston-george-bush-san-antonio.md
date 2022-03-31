@@ -1,0 +1,15 @@
+---
+title: "TRIPREPORT | United (ECONOMY) | Boeing 737 MAX 8 | Houston George Bush - San Antonio"
+image: "https:\/\/i.ytimg.com\/vi\/FXOHq9vGTeo\/hqdefault.jpg"
+vid_id: "FXOHq9vGTeo"
+categories: "Travel-Events"
+tags: ["united","air","lines"]
+date: "2022-03-31T04:57:50+03:00"
+vid_date: "2022-03-27T10:30:03Z"
+duration: "PT10M31S"
+viewcount: "37462"
+likeCount: "1364"
+dislikeCount: ""
+channel: "Simply Aviation"
+---
+{% raw %}With the introduction of the Boeing 737MAX United made a surprisingly large leap forward when it comes to cabin quality. Not just is it equipped with personal IFE screens, but now you can use your own bluetooth headphones for them!<br /><br />FOLLOW US ON INSTAGRAM FOR LIVE STORIES OF OUR FLIGHTS:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/Simply_Aviation">https://www.instagram.com/Simply_Aviation</a><br /><br />--- SOCIAL MEDIA ---<br />TWITTER: <a rel="nofollow" target="blank" href="https://www.twitter.com/simply_aviation">https://www.twitter.com/simply_aviation</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/Simply_Aviation">https://www.instagram.com/Simply_Aviation</a><br /><br />--- FLIGHT INFORMATION ---<br />Airline: United Airlines<br />Aircraft: Boeing 737 MAX 8<br />Registration: N17254<br />Flight Time: 0h 35min<br />Seat: 32F<br />From: Houston George Bush Intercontinental<br />To: San Antonio International<br />Date: September 2021<br /><br />--- EQUIPMENT INFORMATION ---<br />Cameras used: Canon G7X Mark III, GoPro Hero 8 Black, DJI Osmo Pocket<br />Additional equipment used: GoPro Suction Cup<br /><br />--- PRICE BREAKDOWN ---<br />Total Price: EUR 131.57<br />Total Routing: IAH-SAT<br />Booked through: United Airlines Website<br />Cost includes: Economy Class Ticket including one checked bag and free seat reservation<br />Booking made: August 2021<br /><br />--- VIDEO BREAKDOWN --- <br />00:00 - Intro and Map<br />00:22 - George Bush Intercontinental<br />01:57 - Boarding<br />02:48 - Cabin and Seat<br />03:50 - Inflight Entertainment<br />04:34 - Taxi and Take Off<br />06:26 - Buy-On-Board Menu<br />07:06 - Approach and Landing<br />08:31 - Deboarding<br />09:08 - San Antonio Airport<br />09:56 - Outro<br /><br />--- COLLABORATION DISCLAIMER ---<br />This video does not contain product placements. The airline was neither involved nor informed about the production of this Tripreport. The ticket fare was paid by ourselves.<br /><br />--- ANIMATED MAP ---<br />Created with: GeoLayers 3 for Adobe After Effects - <a rel="nofollow" target="blank" href="https://aescripts.com/geolayers/">https://aescripts.com/geolayers/</a><br />Map Data by: OpenStreetMap<br />Compiled with: Map Tiler - <a rel="nofollow" target="blank" href="https://www.maptiler.com/cloud/geolayers/">https://www.maptiler.com/cloud/geolayers/</a><br />Created: March 2022<br /><br />--- CONTACT US ---<br />info(at)simply-aviation.com<br /><br />COPYRIGHT 2022<br />www.simply-aviation.com<br /><br />#united #737max #iah{% endraw %}
