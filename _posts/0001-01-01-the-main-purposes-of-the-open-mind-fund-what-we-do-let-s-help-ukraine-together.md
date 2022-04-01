@@ -1,0 +1,15 @@
+---
+title: "The main purposes of the Open Mind Fund \/ What we do \/ Let's help Ukraine together.  Open Mind Fund"
+image: "https:\/\/i.ytimg.com\/vi\/bC56a1BV-O4\/hqdefault.jpg"
+vid_id: "bC56a1BV-O4"
+categories: "Nonprofits-Activism"
+tags: ["the open mind","war in ukraine 2022","war in ukraine"]
+date: "2022-04-01T08:29:52+03:00"
+vid_date: "2022-03-31T09:29:49Z"
+duration: "PT3M16S"
+viewcount: "23"
+likeCount: "3"
+dislikeCount: ""
+channel: "Open Mind Fund"
+---
+{% raw %}Support Ukraine through our links:<br /><a rel="nofollow" target="blank" href="https://openmind.fund/#about">https://openmind.fund/#about</a><br /><a rel="nofollow" target="blank" href="https://openmind.fund/#what-we-need">https://openmind.fund/#what-we-need</a><br /><br />Visit our website: <br /><a rel="nofollow" target="blank" href="https://openmind.fund/">https://openmind.fund/</a><br /><br />━━━━━━━━━━━━━━<br />Open Mind Fund is a charitable fund-organization that helps the people of Ukraine who have suffered from the military actions of the Russian Federation. <br /><br />Open Mind Fund places before itself three crucial tasks:<br />✅ The first task is to provide the citizens of Ukraine with food, medicine and first necessities, who for specific reasons cannot leave destroyed cities and territories due to the hostilities of the Russian army. We are solving the problem of shortage of products in perspective providing help to the victims on routine basis over a long period of time. In such a way we decrease people’s anxiety that they can be left without means to survive in the days to come.<br /><br />✅ The second task is providing refugees with temporary shelter. The quantity of people searching for shelter is increasing in geometric progression every day. We have organized a shelter to refugees across Ukraine.<br /><br />✅ The third task is software development with the assistance of the Transcarpathian Regional Administration and government agencies. Due to the fact that there is currently no unified system for organizing humanitarian aid and understanding the needs of the affected residents, the development of the software will help in maintaining transparent accounting of humanitarian aid (arrival, accounting, sorting, distribution in Ukraine). <br /><br />The Open Mind Fund invites you to join us in our goal to help the people of Ukraine who suffered during this tragic war. To do this, please fill in the donor form:<br /><a rel="nofollow" target="blank" href="https://openmind.fund/donors/">https://openmind.fund/donors/</a><br /><br />We believe in a bright and peaceful future for the whole world!<br />Together we can achieve this!<br /><br />━━━━━━━━━━━━━━<br />Facebook page <a rel="nofollow" target="blank" href="https://bit.ly/3iNwQTy">https://bit.ly/3iNwQTy</a><br />Instagram page <a rel="nofollow" target="blank" href="https://www.instagram.com/open.mindfund/">https://www.instagram.com/open.mindfund/</a><br /><br />#openmindfund #standwithukraine #warinukraine{% endraw %}
