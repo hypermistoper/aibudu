@@ -1,0 +1,15 @@
+---
+title: "How a SOLOKILLING ALISTAR TOP got MASTER"
+image: "https:\/\/i.ytimg.com\/vi\/GG8Ks0DHjLs\/hqdefault.jpg"
+vid_id: "GG8Ks0DHjLs"
+categories: "Gaming"
+tags: ["Alistar","Alistar lol","League of Legends"]
+date: "2022-04-01T19:21:15+03:00"
+vid_date: "2022-04-01T12:00:30Z"
+duration: "PT13M46S"
+viewcount: "34896"
+likeCount: "2755"
+dislikeCount: ""
+channel: "HappyChimeNoises"
+---
+{% raw %}Try Blockchain.com - The Easiest and Most Powerful Crypto Wallet Here:  <a rel="nofollow" target="blank" href="https://www.blockchain.com/wallet?utm_source=HappyChimeNoises&amp;utm_medium=Affiliate&amp;utm_campaign=HappyChimeNoises_Acq_WALLET_q1test_en">https://www.blockchain.com/wallet?utm_source=HappyChimeNoises&amp;utm_medium=Affiliate&amp;utm_campaign=HappyChimeNoises_Acq_WALLET_q1test_en</a> (AD)<br /><br />One of the MOST Dedicated Alistar Top Lane Players in LoL - having played it since season 3 has now hit MASTER Tier. <br />I interviewed him to find out his story  and how he did it!<br />Including a Master Alistar Top Guide, Alistar Season 12 Build and Runes!<br /><br /><br />His Twitch Stream: <a rel="nofollow" target="blank" href="https://www.twitch.tv/lordofcowtime">https://www.twitch.tv/lordofcowtime</a><br />His Master Main Account: <a rel="nofollow" target="blank" href="https://www.leagueofgraphs.com/summoner/na/LordofCowTime">https://www.leagueofgraphs.com/summoner/na/LordofCowTime</a><br /><br /><br />Discord - Join the Community - <a rel="nofollow" target="blank" href="https://discord.gg/NqEfsG3VMT">https://discord.gg/NqEfsG3VMT</a><br /><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/HappyChimeNoise">https://twitter.com/HappyChimeNoise</a><br />Twitch - <a rel="nofollow" target="blank" href="https://www.twitch.tv/happychimenoises">https://www.twitch.tv/happychimenoises</a><br /><br />Business Enquiries: happychimenoises@gmail.com<br /><br /><br />00:00 Alistar Top?<br />00:54 A Special Surprise<br />01:58 Story of 'LordOfCowTime' <br />03:09 How Does Alistar Top Work?<br />03:25 Super Low CS - But Not Roaming<br />03:45 Special XP Scaling<br />04:05 His Terrible Early LANING<br />04:14 LVL 1<br />04:32 LVL 2<br />04:44 Healing Passive<br />05:17 Getting Stronger<br />05:25 Mana Issues? + Fixing Them<br />06:10 1v1 Kills In Lane<br />06:35 Split Push Alistar<br />06:54 Low Risk 1v1s<br />07:24 Leave Lane - NO<br />08:01 High Damage Tank Item?<br />08:12 BURN Tank Alistar<br />08:50 Making Plays - Incredibly Tanky<br />09:09 Teamfights<br />09:13 SECRET XP Scaling - Hidden High Damage<br />09:48 Dive Carries + Tank Everyone Else<br />10:15 Spamming Abilities + Burning Enemies<br />10:28 Easy Fights<br />10:46 Making the most of Freedom from Bot Lane<br />11:28 If it is GOOD - Why Isn't He Picked?<br />11:45 Alistar Top BUILD <br />12:08 Alistar Top RUNES<br />12:20 RATING - How good is it Really?<br />12:44 The Reality of Picking Alistar Top<br />13:20 LordOfCowTime Is Really Impressive<br /><br /><br /><br /><br /><br />#Alistar #Top #Guide{% endraw %}
