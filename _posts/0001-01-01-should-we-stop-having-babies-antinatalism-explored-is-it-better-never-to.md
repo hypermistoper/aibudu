@@ -1,0 +1,15 @@
+---
+title: "Should We Stop Having Babies? | Antinatalism Explored"
+image: "https:\/\/i.ytimg.com\/vi\/hJ_8fw6-S8A\/hqdefault.jpg"
+vid_id: "hJ_8fw6-S8A"
+categories: "Education"
+tags: ["david benatar","having children","antinatalism david benatar"]
+date: "2022-04-01T07:58:58+03:00"
+vid_date: "2022-03-31T14:00:14Z"
+duration: "PT18M31S"
+viewcount: "22454"
+likeCount: "1954"
+dislikeCount: ""
+channel: "Einzelgänger"
+---
+{% raw %}Is it better never to have been? Some people believe it would indeed be better if no sentient life came into existence. Antinatalism is the philosophical viewpoint that procreation is morally wrong. And therefore, we should avoid it. Some antinatalists think only humans should stop having children; others believe that all sentient beings would be better off if they’d never existed. But isn’t it wrong to oppose the birth of children? Why would anybody be against the creation of new life? So, is having children bad? This video explores the philosophy of antinatalism (Should We Stop Having Babies? | Antinatalism Explored)<br /><br />Support the channel:<br />✔️ PayPal: <a rel="nofollow" target="blank" href="https://www.paypal.me/einzelgangerco">https://www.paypal.me/einzelgangerco</a><br />✔️ Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/einzelgangster">https://www.patreon.com/einzelgangster</a><br />✔️ Bitcoin: 3HQnEz1LQ4G6dqN2LdZgzc7qoJjJCyWjTC<br />(Donated BTC and want in the credits? Send me an email with the amount/address)<br /><br />🎞️ Animations and thumbnail art by Munkaa:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/jus7y">https://www.youtube.com/user/jus7y</a><br /><br />Purchase Stoicism for Inner Peace (affiliate links):<br />📘 Paperback: <a rel="nofollow" target="blank" href="https://amzn.to/3wB9iHb">https://amzn.to/3wB9iHb</a><br />💻 Ebook: <a rel="nofollow" target="blank" href="https://amzn.to/2RdjbKV">https://amzn.to/2RdjbKV</a><br /><br />Purchase Unoffendable (affiliate links):<br />📘 Paperback: <a rel="nofollow" target="blank" href="https://amzn.to/2RJYfti">https://amzn.to/2RJYfti</a><br />💻 Ebook: <a rel="nofollow" target="blank" href="https://amzn.to/35e23a5">https://amzn.to/35e23a5</a><br /><br />Merchandise:<br />🛍️ Shop: teespring.com/stores/einzelgangerstore<br />🛍️ Merchandise design by Punksthetic Art:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/JRStoneart">https://www.youtube.com/user/JRStoneart</a><br /><br />Creative Commons (attributions):<br /><br />Schopenhauer bust: <a rel="nofollow" target="blank" href="https://commons.wikimedia.org/wiki/File:Arthur_Schopenhauer_Ney.jpg">https://commons.wikimedia.org/wiki/File:Arthur_Schopenhauer_Ney.jpg</a><br /><br />00:00 - Intro<br />01:38 - Asymmetry of good and bad<br />06:21 - How dreadful life is<br />09:55 - Ongoing dissatisfaction<br />13:18 - So, is it bad to have children?<br />16:40 - But what should we do?<br /><br />#ANTINATALISM #SCHOPENHAUER #DAVIDBENATAR{% endraw %}
