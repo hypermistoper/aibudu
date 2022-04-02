@@ -1,0 +1,15 @@
+---
+title: "LMEN PRALA-LIFESTYLE | OFFICIAL MUSIC VIDEO | PROD. BY SMITHMUSIX |"
+image: "https:\/\/i.ytimg.com\/vi\/2XljvRdPJnY\/hqdefault.jpg"
+vid_id: "2XljvRdPJnY"
+categories: "Music"
+tags: ["LMEN PRALA","polizei","lifestyle"]
+date: "2022-04-02T22:57:42+03:00"
+vid_date: "2022-02-18T13:57:45Z"
+duration: "PT2M29S"
+viewcount: "982154"
+likeCount: "21378"
+dislikeCount: ""
+channel: "Lmen Prala"
+---
+{% raw %}FELLÉPÉSSZERVEZÉS: 06306309791 (VARGA DÁNIEL)<br />KÖVESS INSTÁN: <a rel="nofollow" target="blank" href="https://www.instagram.com/lmen_prala_the_rapper/">https://www.instagram.com/lmen_prala_the_rapper/</a><br />KÖVKÖVESS FACEBOOKON: <a rel="nofollow" target="blank" href="https://www.facebook.com/lmenpralatherapper">https://www.facebook.com/lmenpralatherapper</a><br />SPOTIFY: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/3IIFNhvPllMor8rcbecmSj">https://open.spotify.com/artist/3IIFNhvPllMor8rcbecmSj</a><br /><br />ZENE: SMITHMUSIX : <a rel="nofollow" target="blank" href="https://www.instagram.com/smithmusix/">https://www.instagram.com/smithmusix/</a><br />SZÖVEG: LMEN PRALA<br />MIX/MASTER: SMITHMUSIX<br />VIDEO: NAGY BENCE :  <a rel="nofollow" target="blank" href="https://www.instagram.com/nagybence_/">https://www.instagram.com/nagybence_/</a><br />SZERVEZTE: TÓTH ISTVÁN BELLATOR MANAGEMENT:    <a rel="nofollow" target="blank" href="https://www.instagram.com/tothistiii/">https://www.instagram.com/tothistiii/</a><br />GYM SULEIMAN:  <a rel="nofollow" target="blank" href="https://www.instagram.com/gymsuleiman/">https://www.instagram.com/gymsuleiman/</a><br />PIZZA KING: <a rel="nofollow" target="blank" href="https://www.pizza-king.hu">https://www.pizza-king.hu</a><br /><br />BODYBUILDING BÉLSZÍN LIFESTYLE<br />MINDEN ZENÉM MAINSTRIME BYE BYE<br />AZ ÉJSZAKÁBAN ÉLNI LIFESTYLE<br />REGGEL JÖVÖK BÉBI BYE BYE<br /><br />TYKOKOT CSO ROBIS <br />TYKOKOT CSO ROBIS<br />AZ ÉJSZAKÁBAN JÖNNEK SZEMBE KEMÉNY DROGOS IS<br />KÉRDEZD MEG YURIT,HOGY MI VAN ODAKINT<br />PÉCSEN A TÉGLÁBÓL RESZELIK A KOKAINT<br /><br />ALADIN,LMEN PRALADIN<br />EZEREGY ÉJSZAKÁM MINT EGY PORNO MAGAZIN<br />NAPOZIM,KELL A NAPOZIM<br />KIBASZOM MAGAM A LUPÁRA NAPOZNI<br /><br />BODYBUILDING BÉLSZÍN LIFESTYLE<br />MINDEN ZENÉM MAINSTRIME BYE BYE<br />AZ ÉJSZAKÁBAN ÉLNI LIFESTYLE<br />REGGEL JÖVÖK BÉBI BYE BYE<br /><br />LIFESTYLE LIFESTYLE LIFESTYLE LIFESTYLE<br />LIFESTYLE LIFESTYLE LIFESTYLE LIFESTYLE<br /><br />UNGARN UNGARN UNGARN<br />CASH CASH CASH CASH<br />BUDA BUDA BUDA<br />PEST PEST PEST PEST<br /><br />SEFT MEGY A SEFT<br />KAMIONRÓL LEESETT<br />TÖRÖKORSZÁGBÓL BEHOZOTT ADIDAS SZETT<br />FULLOS OROSZ PACEK VERSACE NAPSZEMÜVEG<br />KIBASZOM MAGAM HOGYHA BULIBA MEGYEK<br />KIBASZOM MAGAM TESTVÉREM EZT SZERETEM<br />HASZON HA VAN MINDENKINEK FIZETEM<br /><br />BODYBUILDING BÉLSZÍN LIFESTYLE<br />MINDEN ZENÉM MAINSTRIME BYE BYE<br />AZ ÉJSZAKÁBAN ÉLNI LIFESTYLE<br />REGGEL JÖVÖK BÉBI BYE BYE<br /><br />LIFESTYLE LIFESTYLE LIFESTYLE LIFESTYLE<br />LIFESTYLE LIFESTYLE LIFESTYLE LIFESTYLE{% endraw %}
