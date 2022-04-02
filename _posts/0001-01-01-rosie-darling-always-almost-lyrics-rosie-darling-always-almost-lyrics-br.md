@@ -1,0 +1,15 @@
+---
+title: "Rosie Darling - Always Almost (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/-ldP31i2PMY\/hqdefault.jpg"
+vid_id: "-ldP31i2PMY"
+categories: "Music"
+tags: ["ethereal music","em","ethereal"]
+date: "2022-04-02T11:31:45+03:00"
+vid_date: "2022-03-22T18:53:43Z"
+duration: "PT3M23S"
+viewcount: "20143"
+likeCount: "844"
+dislikeCount: ""
+channel: "Ethereal Music"
+---
+{% raw %}✘ Rosie Darling - Always Almost (Lyrics)<br />🔔 Click the bell to stay updated.<br /><br />✘ Stream/DL:<br /><a rel="nofollow" target="blank" href="https://rosiedarling.ffm.to/alwaysalmost">https://rosiedarling.ffm.to/alwaysalmost</a><br /><br />✘ Follow Rosie Darling:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/rosieldarling">https://www.instagram.com/rosieldarling</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@itsrosiedarling">https://www.tiktok.com/@itsrosiedarling</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/rosieldarling">https://twitter.com/rosieldarling</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/rosiedarlingmusic">https://www.facebook.com/rosiedarlingmusic</a><br /><br /><br />🎤 Lyrics:<br /><br />I notice red flags and stop signs before I see green lights<br />I try to slow down and think twice when it's alright<br />Finding new reasons it won't ever work<br />Avoiding the hurt so I always leave first<br />I never get past the start cause I break my own heart every time<br /><br />It's always almost<br />Always getting so close<br />I always have so much I wanna say<br />But I don't<br />It's always my fault<br />I never get to fall in love<br />By the time that I get brave enough<br />I miss out and it's too late for us<br />Could've been, should've been something good<br />But I guess we'll never know<br /><br />I do my best to pretend that we're friends and nothing else<br />I don't wanna be selfish so I hold back<br />Cause you look so happy with her on your shoulder<br />Baby we'll try this again when we're older<br />Promise I'll be right there when it's over<br />But right now<br /><br />It's always almost<br />Always getting so close<br />I always have so much I wanna say<br />But I don't<br />It's always my fault<br />I never get to fall in love<br />By the time that I get brave enough<br />I miss out and it's too late for us<br />Could've been, should've been something good<br />But I guess we'll never know<br /><br />It's always<br /><br />I'll always hold out for us<br />Hope that some day it's enough<br />You'll always be the one that got away<br /><br />It's always almost<br />Always getting so close<br />I always have so much I wanna say<br />But I don't<br />It's always my fault<br />I never get to fall in love<br />By the time that I get brave enough<br />I miss out and it's too late for us<br />Could've been, should've been something good<br />But I guess we'll never know<br /><br />I'll always hold out for us<br />Hope that some day it's enough<br />You'll always be the one that got away<br /><br /><br />#RosieDarling #AlwaysAlmost #EM{% endraw %}
