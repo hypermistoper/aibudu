@@ -1,0 +1,15 @@
+---
+title: "Vocal Coach Reacts -JOURNEY - Mother, Father-Live In Houston"
+image: "https:\/\/i.ytimg.com\/vi\/V5HSKF2pzus\/hqdefault.jpg"
+vid_id: "V5HSKF2pzus"
+categories: "Music"
+tags: ["rebecca vocal athlete","Reactor","Vocal Coach Reacts"]
+date: "2022-04-02T17:25:09+03:00"
+vid_date: "2020-01-30T14:00:23Z"
+duration: "PT10M44S"
+viewcount: "187518"
+likeCount: "3968"
+dislikeCount: ""
+channel: "Rebecca Vocal Athlete"
+---
+{% raw %}Goodness what a Passionate vocal display...<br /><br /><br />* Want to be inspired to be the best vocal athlete? <br />Check out my shop! <br /><a rel="nofollow" target="blank" href="https://amazon.co.uk/shop/rebeccavocalathlete">https://amazon.co.uk/shop/rebeccavocalathlete</a><br /><br />* Headphones used: <a rel="nofollow" target="blank" href="https://dro.ps/rebecca-hd58x">https://dro.ps/rebecca-hd58x</a><br /><br />* For your own Singing evaluation &amp; analysis, please go to:<br /><a rel="nofollow" target="blank" href="https://www.wisio.com/RebeccaVocalAthlete">https://www.wisio.com/RebeccaVocalAthlete</a><br /><br />* For online Vocal coaching visit my website: <br /><a rel="nofollow" target="blank" href="https://www.rebeccavocalathlete.com">https://www.rebeccavocalathlete.com</a><br /><br />* For V.I.P treatment go to; <br /><a rel="nofollow" target="blank" href="https://www.patreon.com/RebeccaVocalAthlete">https://www.patreon.com/RebeccaVocalAthlete</a><br /><br />* Email for business enquiries only (reacts suggestions comment in comment section): RVA@rebeccavocalathlete.com<br /><br />#neverstopsinging #rva #journey<br /><br />OG VIDEO: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9IsAdOXDGAU">https://www.youtube.com/watch?v=9IsAdOXDGAU</a><br /><br /><br />ABOUT…<br />I am Rebecca and I am one heck of a passionate vocal coach/singer/songwriter/impressionist/health/fitness/self- improvement/anything that makes me smile!!  I love anything vocal/singing related and geek out on it every day.  I want to motivate and inspire others to follow their dreams…corny? Well maybe but it’s true. So what’s motivating me?? I had a huge tumour removed summer 2017 and my ovaries and fallopian tubes. The tumour was the size of a 20 week baby!!  However, despite not being able to walk for a couple of weeks, and feeling generally awful…. It has made me create and do what I love! It wasn’t an easy time but I won’t let fear dictate my life. I didn’t think ‘why me’, there are plenty of horrific issues people have to deal with…it’s not always smooth sailing.  It’s true when you hear, ‘Life is short’, the crazy thing is, I am glad it happened…I appreciate life even more and practice gratitude everyday…It’s so easy to get caught up with the little things…and I do sometimes, but look at the bigger picture, will it matter in a year or two…? <br /><br />Also thank you for all your support. It means a lot. <br /><br />Subscribe to Rebecca Vocal Athlete to get inspired by new videos!<br /><br />Have a great day!!<br /><br />Rebecca <br />Xx{% endraw %}
