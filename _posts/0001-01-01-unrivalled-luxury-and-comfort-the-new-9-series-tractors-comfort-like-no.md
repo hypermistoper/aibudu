@@ -1,0 +1,15 @@
+---
+title: "Unrivalled luxury and COMFORT: the NEW 9 Series tractors."
+image: "https:\/\/i.ytimg.com\/vi\/GOtCmcDqs54\/hqdefault.jpg"
+vid_id: "GOtCmcDqs54"
+categories: "Autos-Vehicles"
+tags: ["9 Series","Agriculture","Contractor"]
+date: "2022-04-02T18:58:33+03:00"
+vid_date: "2022-03-28T11:00:33Z"
+duration: "PT1M11S"
+viewcount: "1420"
+likeCount: "36"
+dislikeCount: ""
+channel: "John Deere UK IE"
+---
+{% raw %}Comfort like no other, the 9 Series tractors have the same refinement and equipment as a premium luxury car.<br /><br />As soon as you step inside the cab of the new 9 Series tractors it s clear you are in a very different space. First impressions are of massive space and a bright interior with panoramic views. You'll find we've thought of everything including lots of places to store all your gear and we've even added an extra 5 cm headroom to meet the needs of the tallest drivers.<br />The super comfortable seat feels amazing and keeps you relaxed and alert all day. It's specially designed to reduce back muscle stress and provide better posture with easier breathing. Air circulates<br />through small perforations in the leather to keep you cool throughout the day. You'll feel relaxed and comfortable no matter how hot it gets outside. It s also the first ever tractor seat with a built-in massage function. It'll soothe those aching joints and keep you relaxed and refreshed even after a long day behind the wheel. Mozart, Motorhead or Madonna? Whatever your choice in music you'll enjoy it just as much in the 9 Series as if you would sitting at home. That s partly a result of the super quiet cab with its passive noise reduction system that reduces sound from the outside world. It s also down to a high quality audio system that s more familiar to drivers of premium luxury cars. The 6.5 high resolution touchscreen infotainment systems adds a new dimension to your working day. Conveniently mounted in the headlining it gives you a massive choice of entertainment options. The multi-function touchscreen system includes a radio with DAB+, aux input, Bluetooth® with voice control and is business band ready. You can use it as a standalone system or pair it with your<br />smartphone to make handsfree calls, listen to your favourite music or read text messages. It also includes Apple Carplay, a smarter, safer way to use your iPhone when driving that includes Siri voice control. The large, 11 litre fridge has ample storage to keep your snacks and drinks fresh during long days in the field. The interior is removable so you can load it up in your kitchen and then just drop it in when you start work. We've not forgotten the smaller details either. Often it s the small thoughtful features that make the difference when you re spending long hours in the field. For instance, you'll find a pair of footrests either side of the steering column and another one to the right side of the cab. They're perfect for when you are cruising with AutoTrac and checking the work of your implement. Isn't it time the new 9 Series joined your team? To find out more, visit our webpage: deere.co.uk{% endraw %}
