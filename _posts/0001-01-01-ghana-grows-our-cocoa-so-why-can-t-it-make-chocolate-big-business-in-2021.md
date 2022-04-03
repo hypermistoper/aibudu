@@ -1,0 +1,15 @@
+---
+title: "Ghana Grows Our Cocoa, So Why Can’t It Make Chocolate? | Big Business"
+image: "https:\/\/i.ytimg.com\/vi\/5X7wAKMNBXI\/hqdefault.jpg"
+vid_id: "5X7wAKMNBXI"
+categories: "People-Blogs"
+tags: ["Business Insider","Business News","Cocoa"]
+date: "2022-04-03T23:04:50+03:00"
+vid_date: "2022-03-20T15:00:03Z"
+duration: "PT12M31S"
+viewcount: "1448351"
+likeCount: "18313"
+dislikeCount: ""
+channel: "Business Insider"
+---
+{% raw %}In 2021, Ghana grew 1 million tons of cocoa. But it exported most of that to Europe and North America, where it was turned into chocolate. And the big bucks are in chocolate. Trapped in a trade relationship with Europe and struggling to process chocolate itself, Ghana sees little of the industry's profits. So as chocolate companies rake in billions, cocoa farmers struggle to make a living income. We went to Ghana to see the impact on farmers and learn how local entrepreneurs are trying to keep chocolate dollars inside their country.<br /><br />MORE BIG BUSINESS VIDEOS:<br /><br />Why We Kill So Many Houseplants, But Spend Billions On Them Anyway | Big Business<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=bNtxbb52eE0">https://www.youtube.com/watch?v=bNtxbb52eE0</a><br />Why Kombucha Makers Spend Millions to Make the Drink Less Boozy | Big Business<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=7o2dILl8Fhc">https://www.youtube.com/watch?v=7o2dILl8Fhc</a><br />Why Fake Saffron Trafficking Is Destroying The 'Red Gold' Industry | Big Business<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=cF9rRr-tLi4">https://www.youtube.com/watch?v=cF9rRr-tLi4</a><br /><br />------------------------------------------------------<br /><br />#BusinessInsider #BigBusiness #Cocoa<br /><br />Business Insider tells you all you need to know about business, finance, tech, retail, and more.<br /><br />Visit us at: <a rel="nofollow" target="blank" href="https://www.businessinsider.com">https://www.businessinsider.com</a><br />Subscribe: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/businessinsider">https://www.youtube.com/user/businessinsider</a><br />BI on Facebook: <a rel="nofollow" target="blank" href="https://read.bi/2xOcEcj">https://read.bi/2xOcEcj</a><br />BI on Instagram: <a rel="nofollow" target="blank" href="https://read.bi/2Q2D29T">https://read.bi/2Q2D29T</a><br />BI on Twitter: <a rel="nofollow" target="blank" href="https://read.bi/2xCnzGF">https://read.bi/2xCnzGF</a><br />BI on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Business_Insider/5319643143">https://www.snapchat.com/discover/Business_Insider/5319643143</a><br />Boot Camp on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Boot_Camp/3383377771">https://www.snapchat.com/discover/Boot_Camp/3383377771</a><br /><br />Ghana Grows Our Cocoa, So Why Can’t It Make Chocolate? | Big Business{% endraw %}
