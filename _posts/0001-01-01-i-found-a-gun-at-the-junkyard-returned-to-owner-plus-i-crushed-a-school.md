@@ -1,0 +1,15 @@
+---
+title: "I Found a GUN at the Junkyard!!! Returned to Owner! Plus I CRUSHED a SCHOOL BUS with the Loader!"
+image: "https:\/\/i.ytimg.com\/vi\/c3KSH6wXYVo\/hqdefault.jpg"
+vid_id: "c3KSH6wXYVo"
+categories: "People-Blogs"
+tags: ["Found","Junkyard!!!","Returned"]
+date: "2022-04-03T10:33:20+03:00"
+vid_date: "2022-04-02T21:00:12Z"
+duration: "PT16M47S"
+viewcount: "12480"
+likeCount: "1736"
+dislikeCount: ""
+channel: "Adventures Made From Scratch"
+---
+{% raw %}I was not expecting that to be there! I'm glad I was able to locate the owner and get it back to them. Stay tuned for more content on the way!<br /><br />My eBay store: <a rel="nofollow" target="blank" href="https://ebay.com/usr/sjm_junktiques">https://ebay.com/usr/sjm_junktiques</a><br /><br />Check out our Adventures Made From Scratch merch! Here’s the link: <a rel="nofollow" target="blank" href="https://shopamfs.com">https://shopamfs.com</a><br /><br />Milwaukee Impact kit: <a rel="nofollow" target="blank" href="https://amzn.to/3HNOB05">https://amzn.to/3HNOB05</a><br />Milwaukee Inflator with bigger battery included: <a rel="nofollow" target="blank" href="https://amzn.to/3seE8nL">https://amzn.to/3seE8nL</a><br />Milwaukee Sawzall: <a rel="nofollow" target="blank" href="https://amzn.to/3urbOkL">https://amzn.to/3urbOkL</a><br />These are the best reciprocating saw blades I’ve ever used: <a rel="nofollow" target="blank" href="https://amzn.to/344HRwe">https://amzn.to/344HRwe</a><br />Affordable yet decent quality leather work gloves: <a rel="nofollow" target="blank" href="https://amzn.to/3IWQiZi">https://amzn.to/3IWQiZi</a><br />Here’s my phone clamp: <a rel="nofollow" target="blank" href="https://amzn.to/3qtJLPh">https://amzn.to/3qtJLPh</a><br />Here’s the tripod that I use for much of my filming: <a rel="nofollow" target="blank" href="https://amzn.to/3eYNHky">https://amzn.to/3eYNHky</a><br />Minelab Equinox 800 metal detector: <a rel="nofollow" target="blank" href="https://amzn.to/3M6aD0v">https://amzn.to/3M6aD0v</a><br /><br />Address for mail:<br />Adventures Made From Scratch<br />1441 E 30th Ave Box 321<br />Hutchinson, KS 67502-1257<br /><br />Follow me on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/profile.php?id=100063527734020">https://www.facebook.com/profile.php?id=100063527734020</a><br /><br />Follow me on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/adventures_made_from_scratch">https://www.instagram.com/adventures_made_from_scratch</a><br /><br />To purchase something in one of my videos please email buy.amfs@gmail.com<br /><br />For business inquiries ONLY please email business.amfs@gmail.com<br /><br />About Adventures Made From Scratch: I’m just a regular guy who likes to find adventure in day to day life. We may not be able to go travel the world, but there are plenty of opportunities at our door step. I do a mix of vintage car stuff, scrapyard stuff, nature hiking, and who knows what else?!? Come with me as I take you along for a ride in my world!<br /><br />#adventure #explore #youtuber #antique #junkyard #vlog #treasure #firearm #scrap #schoolie #vintage #scrapyard{% endraw %}
