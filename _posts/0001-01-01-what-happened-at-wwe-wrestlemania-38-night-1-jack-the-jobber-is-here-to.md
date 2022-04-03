@@ -1,0 +1,15 @@
+---
+title: "What Happened At WWE WrestleMania 38 Night 1?!"
+image: "https:\/\/i.ytimg.com\/vi\/Gub5PMkHDAo\/hqdefault.jpg"
+vid_id: "Gub5PMkHDAo"
+categories: "Sports"
+tags: ["wwe","wwe wrestlemania 38","wrestlemania 38"]
+date: "2022-04-03T15:54:28+03:00"
+vid_date: "2022-04-03T05:25:09Z"
+duration: "PT15M52S"
+viewcount: "45661"
+likeCount: "1823"
+dislikeCount: ""
+channel: "Cultaholic Wrestling"
+---
+{% raw %}Jack The Jobber is here to give his What Happened At WWE WrestleMania 38 Night 1 review as he runs down every match from tonight's WWE WrestleMania 38 Night 1 PPV.<br /><br />WWE WrestleMania 38 Night 1 Results/Highlights:<br />The Usos def. Shinsuke Nakamura &amp; Rick Boogs to retain the SmackDown Tag Team Titles<br />Drew McIntyre def. Happy Corbin<br />The Miz &amp; Logan Paul def. Rey &amp; Dominik Mysterio<br />Bianca Belair def. Becky Lynch to become Raw Women's Champion<br />Cody Rhodes def. Seth &quot;Freakin&quot; Rollins<br />Charlotte Flair def. Ronda Rousey to retain the SmackDown Women's Title<br />&quot;Stone Cold&quot; Steve Austin def. Kevin Owens (No Holds Barred Match)<br /><br />#WrestleMania #WWE #WrestleMania38<br /><br />JOIN US and hit SUBSCRIBE!<br /><br />Support Cultaholic on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/cultaholic">https://www.patreon.com/cultaholic</a><br />Unlock Cultaholic badges &amp; emojis on YouTube:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCjcPJbFDwVZZELGG38q2cLQ/join">https://www.youtube.com/channel/UCjcPJbFDwVZZELGG38q2cLQ/join</a><br />Website: <a rel="nofollow" target="blank" href="https://cultaholic.com/">https://cultaholic.com/</a><br />Merch: <a rel="nofollow" target="blank" href="https://www.cultaholicshop.com">https://www.cultaholicshop.com</a><br />Twitch: <a rel="nofollow" target="blank" href="https://twitch.tv/Cultaholic">https://twitch.tv/Cultaholic</a><br />Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/Cultaholic">https://www.twitter.com/Cultaholic</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Cultaholic">https://www.facebook.com/Cultaholic</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/cultaholicwrestling">https://www.instagram.com/cultaholicwrestling</a><br />Discord: <a rel="nofollow" target="blank" href="https://www.cultaholic.com/discord">https://www.cultaholic.com/discord</a><br /><br />Sign up to Wrestle Crate UK using code CULTAHOLIC and receive a free signed Ross Tweddell print with your first month's crate: <a rel="nofollow" target="blank" href="https://www.wrestlecrate.co.uk">https://www.wrestlecrate.co.uk</a><br /><br />Cultaholic provides video coverage of professional wrestling - including WWE (including WWE Raw, WWE SmackDown, NXT and 205 Live), AEW, IMPACT Wrestling (formerly TNA), NJPW, ROH, and more with daily news updates, reviews, lists, highlights, predictions, reactions, podcasts and much, much more.{% endraw %}
