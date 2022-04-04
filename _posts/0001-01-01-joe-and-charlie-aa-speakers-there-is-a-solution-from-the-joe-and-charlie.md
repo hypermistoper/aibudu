@@ -1,0 +1,15 @@
+---
+title: "Joe and Charlie AA Speakers \"There is a Solution\" from the Joe and Charlie Big Book Study"
+image: "https:\/\/i.ytimg.com\/vi\/G0JaTAV_pRU\/hqdefault.jpg"
+vid_id: "G0JaTAV_pRU"
+categories: "Education"
+tags: ["alcoholics anonymous","aa speaker","aa speakers"]
+date: "2022-04-04T20:33:18+03:00"
+vid_date: "2012-12-03T19:55:27Z"
+duration: "PT54M11S"
+viewcount: "166210"
+likeCount: "1107"
+dislikeCount: ""
+channel: "Odomtology 12-Step Recovery Media"
+---
+{% raw %}From the &quot;Big Book&quot; of Alcoholics Anonymous: &quot;In spite of the great increase in the size and span of this Fellowship, at its core it remains simple and personal. Each day, somewhere in the world, recovery begins when one alcoholic talks with another alcoholic, sharing experience, strength, and hope.&quot;<br /><br />Make sure to like us on facebook :) We'd love to have ya stop in and see us!  <a rel="nofollow" target="blank" href="http://www.facebook.com/odomtology">http://www.facebook.com/odomtology</a><br /><br />What is the Twelve Step Model? How is it a &quot;treatment for alcoholism&quot; or &quot;alcohol abuse?&quot;<br /><br />From Wikipedia: &quot;A twelve-step program is a set of guiding principles (accepted by members as 'spiritual principles,' based on the approved literature) outlining a course of action for recovery from addiction, compulsion, or other behavioral problems. Originally proposed by Alcoholics Anonymous (AA) as a method of recovery from alcoholism, the Twelve Steps were first published in the book Alcoholics Anonymous: The Story of How More Than One Hundred Men Have Recovered from Alcoholism in 1939. The method was then adapted and became the foundation of other twelve-step programs. Twelve-step methods have been adopted to address a wide range of substance-abuse and dependency problems.&quot;<br /><br />You can find out more at: <a rel="nofollow" target="blank" href="http://www.aa.org">http://www.aa.org</a> - Alcoholics Anonymous Official Site (And as should be blatantly obvious, we are in no way affiliated with them or any other 12 step program.  We are just looking to provide hope to those suffering from alcoholism or addiction.)<br /><br />It is important to note there are several ways for one to address his or her &quot;alcohol abuse treatment.&quot;  &quot;Substance abuse&quot; is a very serious condition.  Many need inpatient stays or counseling.  The importance and purpose of this video, and all our other videos, is to show that recovery IS possible and to give hope to those who are struggling with substance abuse issues.  Help IS out there! :)<br /><br />You can follow us on twitter too! <a rel="nofollow" target="blank" href="http://www.twitter.com/odomtology">http://www.twitter.com/odomtology</a><br /><br />From the Big Book of AA: &quot;Most of us feel we need look no further for Utopia. We have it with us right here and now. Each day my friend's simple talk in our kitchen multiplies itself in a widening circle of peace on earth and good will to men.&quot;<br /><br />Namaste, friends :){% endraw %}
