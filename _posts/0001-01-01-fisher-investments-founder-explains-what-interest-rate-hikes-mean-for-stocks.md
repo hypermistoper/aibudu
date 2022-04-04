@@ -1,0 +1,15 @@
+---
+title: "Fisher Investments' Founder Explains What Interest Rate Hikes Mean for Stocks"
+image: "https:\/\/i.ytimg.com\/vi\/HWqByU31GT4\/hqdefault.jpg"
+vid_id: "HWqByU31GT4"
+categories: "Education"
+tags: ["YT:CC=ON"]
+date: "2022-04-04T04:38:51+03:00"
+vid_date: "2022-04-01T19:15:01Z"
+duration: "PT4M43S"
+viewcount: "4067"
+likeCount: ""
+dislikeCount: ""
+channel: "Fisher Investments"
+---
+{% raw %}Fisher Investments’ founder, Executive Chairman and Co-Chief Investment Officer Ken Fisher explains why interest rate hikes from the US Federal Reserve (Fed) should likely not be a cause of panic for stocks. Markets take all widely known information and incorporate that knowledge into stock prices. For interest rates, the stock market closely monitors central banks and their policies, so this information is rapidly pre-priced into stocks. <br />Ken says that slight rate hikes, historically, have not negatively affected stocks long-term because of this pre-pricing action. Essentially, Ken explains, by the time the rate increase happens, its power to surprise markets over the long run has evaporated. With all of the information available, Ken believes the interest rate increases are likely not a cause for concern.<br />For more of Ken Fisher’s thoughts on the markets, visit us at <a rel="nofollow" target="blank" href="https://www.fisherinvestments.com/en-us.">https://www.fisherinvestments.com/en-us.</a> <br />Connect with Fisher Investments on:<br />• Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/FisherInvestments">https://www.facebook.com/FisherInvestments</a><br />• Twitter -  <a rel="nofollow" target="blank" href="https://twitter.com/fisherinvest">https://twitter.com/fisherinvest</a><br />• LinkedIn - <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/fisher-investments">https://www.linkedin.com/company/fisher-investments</a><br /><br />You can also follow Ken Fisher here: <br />• Facebook -  <a rel="nofollow" target="blank" href="https://www.facebook.com/KenFisher.FisherInvestments">https://www.facebook.com/KenFisher.FisherInvestments</a> <br />• Twitter -  <a rel="nofollow" target="blank" href="https://twitter.com/KennethLFisher">https://twitter.com/KennethLFisher</a><br />• LinkedIn - <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/ken-fisher/">https://www.linkedin.com/in/ken-fisher/</a><br />• Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/kenfisher_fisherinvestments/">https://www.instagram.com/kenfisher_fisherinvestments/</a><br /><br />Investing in securities involves a risk of loss. Past performance is never a guarantee of future returns. Investing in foreign stock markets involves additional risks, such as the risk of currency fluctuations. The foregoing constitutes the general views of Fisher Investments and should not be regarded as personalized investment advice. Nothing herein is intended to be a recommendation. The opinions expressed are subject to change without notice.{% endraw %}
