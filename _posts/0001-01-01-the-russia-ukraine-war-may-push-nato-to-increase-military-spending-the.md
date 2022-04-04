@@ -1,0 +1,15 @@
+---
+title: "The Russia-Ukraine War May Push NATO To Increase Military Spending"
+image: "https:\/\/i.ytimg.com\/vi\/JI7d4xrfUjI\/hqdefault.jpg"
+vid_id: "JI7d4xrfUjI"
+categories: "News-Politics"
+tags: ["government","United States","CNBC"]
+date: "2022-04-04T07:52:27+03:00"
+vid_date: "2022-04-01T16:00:19Z"
+duration: "PT8M48S"
+viewcount: "201902"
+likeCount: "2650"
+dislikeCount: ""
+channel: "CNBC"
+---
+{% raw %}The North Atlantic Treaty Organization, or NATO, has seen an increase in member country spending since Russia annexed Crimea in 2014. The Russian invasion of Ukraine has spurred some countries to even further action.<br /><br />The Russian invasion of Ukraine is unleashing a new era of military spending across Europe. Member countries of the North Atlantic Treaty Organization, such as Germany, have done an about-face on military spending in recent weeks. <br /><br />&quot;The Russian invasion of Ukraine was a wake-up call for a lot of Germans, for politicians, and for voters, who previously I think, would have been skeptical that military power could still be an important tool of influence in Europe today,&quot; said Sophia Besch, senior research fellow at the Center for European reform, in an interview with CNBC.<br /><br />Poland has moved to increase defense spending to 3% of GDP. Germany has signed a deal to buy F-35 fighter jets, and several NATO allies are looking to upgrade from Soviet-era equipment, such as Mig-29s and Russian-produced surface-to-air missile systems, to U.S.-made weapons. The United States, the top military spender in the NATO alliance by far, is looking at increasing its own defense budget while selling high-tech arms to friendly nations.<br /><br />» Subscribe to CNBC: <a rel="nofollow" target="blank" href="https://cnb.cx/SubscribeCNBC">https://cnb.cx/SubscribeCNBC</a><br />» Subscribe to CNBC TV: <a rel="nofollow" target="blank" href="https://cnb.cx/SubscribeCNBCtelevision">https://cnb.cx/SubscribeCNBCtelevision</a><br /><br />About CNBC: From 'Wall Street' to 'Main Street' to award winning original documentaries and Reality TV series, CNBC has you covered. Experience special sneak peeks of your favorite shows, exclusive video and more.<br /><br />Connect with CNBC News Online<br />Get the latest news: <a rel="nofollow" target="blank" href="https://www.cnbc.com/">https://www.cnbc.com/</a><br />Follow CNBC on LinkedIn: <a rel="nofollow" target="blank" href="https://cnb.cx/LinkedInCNBC">https://cnb.cx/LinkedInCNBC</a><br />Follow CNBC News on Facebook: <a rel="nofollow" target="blank" href="https://cnb.cx/LikeCNBC">https://cnb.cx/LikeCNBC</a><br />Follow CNBC News on Twitter: <a rel="nofollow" target="blank" href="https://cnb.cx/FollowCNBC">https://cnb.cx/FollowCNBC</a><br />Follow CNBC News on Instagram: <a rel="nofollow" target="blank" href="https://cnb.cx/InstagramCNBC">https://cnb.cx/InstagramCNBC</a><br /><br />#CNBC<br /><br />Why Russia's Invasion Of Ukraine Could Spark A NATO Defense Spending Spree{% endraw %}
