@@ -1,0 +1,15 @@
+---
+title: "ARIES ♈️❤️ WHY DO U LOVE ME? U COULD HAVE ANYONE U WANT, WHY ME? APOLOGIES COMING! + EXTENDEDDED🌹💔"
+image: "https:\/\/i.ytimg.com\/vi\/v_uJ9coalOM\/hqdefault.jpg"
+vid_id: "v_uJ9coalOM"
+categories: "Entertainment"
+tags: ["ARIES","♈️❤️","COULD"]
+date: "2022-04-04T08:13:03+03:00"
+vid_date: "2022-04-04T03:00:11Z"
+duration: "PT26M17S"
+viewcount: "1478"
+likeCount: "272"
+dislikeCount: ""
+channel: "Mirela' s Tarot"
+---
+{% raw %}🌹🌹🌹🌹🌹🌹!!!!PLEASE READ EVERYTHING!!!!!! 🌹🌹🌹🌹🌹🌹<br />I offer: <br />COUPLES LOVE READINGS &amp; <br />SINGLES FUTURE LOVE/CRUSH/EX READINGS<br />SPELLS &amp; CLEANSING, HEALING PROTECTION RITUALS<br />I DO NOT offer finances, career, legal  or health related readings. <br /><br />❤️ REGULAR READINGS (WAIT TIME 120HRS/5 BUSINESS DAYS/WEEKENDS EXCLUDED)❤️<br />$150 USD -❤️SKYPE AUDIO CALL READINGS 🌎<br />$105 USD -❤️PRE-RECORDED VIDEO READINGS 💌<br /><br />🚨EMERGENCY READINGS - SKIP THE LINE (GET YOUR <br />READING WITHIN THE NEXT 48HRS/2 DAYS/WEEKENDS INCLUDED)<br />$205 USD -❤️ 🚨EMERGENCY PRE-RECORDED READING <br />$250 USD -❤️ 🚨EMERGENCY SKYPE READING<br /><br />🧙‍♀️ FOR SPELLS &amp; CLEANSING RITUALS PRICING &amp; OPTIONS CLICK BELOW!<br /><br /><a rel="nofollow" target="blank" href="https://mirelastarot.com/spells-and-rituals">https://mirelastarot.com/spells-and-rituals</a><br /><br />Singles Readings Info &amp; Instructions: <a rel="nofollow" target="blank" href="https://mirelastarot.com/singles-readings">https://mirelastarot.com/singles-readings</a><br />Couples Readings Info &amp; Instructions: <a rel="nofollow" target="blank" href="https://mirelastarot.com/couples-readings">https://mirelastarot.com/couples-readings</a><br />Spells &amp; Rituals Info &amp; Instructions: <a rel="nofollow" target="blank" href="https://mirelastarot.com/spells-and-rituals">https://mirelastarot.com/spells-and-rituals</a> <br />FAQ: <a rel="nofollow" target="blank" href="https://mirelastarot.com/faq">https://mirelastarot.com/faq</a><br /><br />🌹CONTACT INFO/LINKS <br />WEB - <a rel="nofollow" target="blank" href="https://mirelastarot.com">https://mirelastarot.com</a> <br />E-MAIL: readings@mirelastarot.com<br />PATREON - <a rel="nofollow" target="blank" href="https://www.patreon.com/mirelastarot">https://www.patreon.com/mirelastarot</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/MirelasTarot">https://www.facebook.com/MirelasTarot</a><br />REVIEWS: <a rel="nofollow" target="blank" href="https://www.facebook.com/MirelasTarot/reviews/">https://www.facebook.com/MirelasTarot/reviews/</a><br /><br />All rights reserved to Mirela’s Tarot.<br />Content ID owner registered via YouTube! <br /><br /><br />❤️ DISCLAIMER!<br />It is the legal requirement that we include a disclaimer on this site. In accordance with the laws in several countries we must point out that all Tarot readings given here are  for entertainment purposes only and no guarantee can be given as to the accuracy of the reading. The user is responsible for his/her own life choices and decisions.{% endraw %}
