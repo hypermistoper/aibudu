@@ -1,0 +1,15 @@
+---
+title: "This is happening right now"
+image: "https:\/\/i.ytimg.com\/vi\/XuBL0m9sd5I\/hqdefault.jpg"
+vid_id: "XuBL0m9sd5I"
+categories: "News-Politics"
+tags: ["Clayton morris","morning invest","gold investing 2022"]
+date: "2022-04-04T06:50:04+03:00"
+vid_date: "2022-04-03T21:33:56Z"
+duration: "PT9M22S"
+viewcount: "6814"
+likeCount: "601"
+dislikeCount: ""
+channel: "Morning Invest"
+---
+{% raw %}The US dollar as a reserve currency is collapsing and gold is on the rise. In this video, we look at one of the hottest stocks to take advantage of this economic catastrophe unfolding. <br /><br />Check out this company right here: <a rel="nofollow" target="blank" href="https://bluelagoonresources.com">https://bluelagoonresources.com</a><br />Their ticker symbol is: BLAGF<br /><br />🔥 Get 5 Free Stocks and for a LIMITED TIME ONLY Deposit $1 and Get 3 Free Stocks Plus an Additional 1 Free Share of NIO on MooMoo. Sign up right here: <a rel="nofollow" target="blank" href="https://morninginvest.com/moomoo">https://morninginvest.com/moomoo</a> 🔥<br /><br />✅ Sign up for our Free DAILY newsletter delivered right to your inbox first thing in the morning. ➜ <a rel="nofollow" target="blank" href="https://morninginvest.com">https://morninginvest.com</a> <br /><br />🔥Open an amazing 9% interest savings account alternative and get free money in the process with our link: ➜ <a rel="nofollow" target="blank" href="https://morninginvest.com/outlet">https://morninginvest.com/outlet</a> 🔥<br /><br />📺 Become a Morning Invest Channel Member right here: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCoJhK5kMc4LjBKdiYrDtzlA/join">https://www.youtube.com/channel/UCoJhK5kMc4LjBKdiYrDtzlA/join</a><br /><br />🔥 Join our FREE Financial Freedom 90 Day Bootcamp. Totally Free. Download it here: ➜ <a rel="nofollow" target="blank" href="https://morninginvest.com/Bootcamp">https://morninginvest.com/Bootcamp</a> 🔥<br /><br />#morninginvest #gold #usdollar<br />-----<br /><br />DISCLAIMER: I am not a financial adviser. I only express my opinion based on my experience. Your experience may be different. These videos are for educational and inspirational purposes only. Investing of any kind involves risk. While it is possible to minimize risk, your investments are solely your responsibility. It is imperative that you conduct your own research. There is no guarantee of gains or losses on investments.<br /><br />AFFILIATE DISCLOSURE: Some of the links on this channel are affiliate links, meaning, at NO additional cost to you, I may earn a commission if you click through and make a purchase and/or subscribe. However, this does not impact my opinion. We recommend them because they are helpful and useful, not because of the small commissions we make if you decide to use their services. <a rel="nofollow" target="blank" href="https://portal.goldstandardir.com/disclaimer/BLLG-56">https://portal.goldstandardir.com/disclaimer/BLLG-56</a> Please do not spend any money on these products unless you feel you need them or that they will help you achieve your goals.{% endraw %}
