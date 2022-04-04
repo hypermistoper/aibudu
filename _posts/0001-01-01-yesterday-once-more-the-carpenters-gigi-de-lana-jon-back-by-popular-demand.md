@@ -1,0 +1,15 @@
+---
+title: "Yesterday Once More • The Carpenters | Gigi De Lana • Jon"
+image: "https:\/\/i.ytimg.com\/vi\/jmg6eymextU\/hqdefault.jpg"
+vid_id: "jmg6eymextU"
+categories: "Music"
+tags: ["the","carpenters","yesterday"]
+date: "2022-04-05T00:38:50+03:00"
+vid_date: "2021-08-06T13:00:10Z"
+duration: "PT4M2S"
+viewcount: "1000340"
+likeCount: "12311"
+dislikeCount: ""
+channel: "Gigi De Lana and The Gigi Vibes"
+---
+{% raw %}Back by Popular Demand! <br /><br />Live Cover by<br /><br />Gigi De Lana<br />Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/gigidelanagigivibes">https://www.facebook.com/gigidelanagigivibes</a><br />Instagram | <a rel="nofollow" target="blank" href="https://instagram.com/gigidelanaofficial">https://instagram.com/gigidelanaofficial</a><br />Kumu | <a rel="nofollow" target="blank" href="https://app.kumu.ph/gigidelana">https://app.kumu.ph/gigidelana</a><br />Twitter | <a rel="nofollow" target="blank" href="https://twitter.com/GigiDeLana">https://twitter.com/GigiDeLana</a><br />TikTok | <a rel="nofollow" target="blank" href="https://tiktok.com/@gigidelana">https://tiktok.com/@gigidelana</a><br /><br />Jon Cruz | Musical Director, Keys<br />Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/joncruz1920">https://facebook.com/joncruz1920</a><br /><br />LA Arquero | Guitars<br />Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/la.arquero">https://facebook.com/la.arquero</a><br /><br />Jake Manalo | Bass<br />Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/harvyjake.manalo">https://facebook.com/harvyjake.manalo</a> <br /><br />Romeo Marquez | Drums<br />Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/romeo.marquez.184">https://facebook.com/romeo.marquez.184</a><br /><br />Produced by Tritone Studios by Erwin Lacsa<br />Facebook | <a rel="nofollow" target="blank" href="https://facebook.com/tritonestudios55">https://facebook.com/tritonestudios55</a><br />--------------------<br /><br />Gear<br /><br />Audio:<br />• Shure SM7B<br />• Sennheiser e945<br />• Shure SM58<br />• IEM from SeeAudio <a rel="nofollow" target="blank" href="https://www.facebook.com/Seeaudio2020/">https://www.facebook.com/Seeaudio2020/</a><br />• KZ ZSX In-ear headphones<br />• KZ AS10 In-ear headphones<br />• Scarlett 18i20<br />• Behringer XR-18<br />• DBX 166XL<br />• Behringer Ultra Pro Vocal VX2000<br />• Behringer COM800<br /><br />Video:<br />• Sony a6400<br />• Sony a6000<br />• Sigma EF 35mm f1.4 DG Lens<br />• Sigma EF 24-70mm f2.8 DG Lens<br />• Canon EF 50mm f1.8 Lens<br />• Godox SL60W<br />• NiceFoto FD110 Fresnel Mount Light Focusing Adapter<br />• Godox SB-FW120 47&quot; 120cm Octagon Softbox Bowens Mount Ring with Grid Honeycomb<br />• Jojen LED Bar 08 Wall Washer Lights<br /><br /><br />Instruments<br />• Roland FA 06<br />• Roland TD-11<br />• Godin LGXT Guitar<br />• Fender American Elite Jazz Bass (5-String)<br /><br />--------------------<br /><br />#GGVibes<br />#GigiDeLana<br />#GigiVibes<br />#TritoneStudios{% endraw %}
