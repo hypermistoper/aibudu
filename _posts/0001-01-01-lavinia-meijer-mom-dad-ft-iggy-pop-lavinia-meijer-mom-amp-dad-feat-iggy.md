@@ -1,0 +1,15 @@
+---
+title: "Lavinia Meijer - Mom & Dad ft. Iggy Pop"
+image: "https:\/\/i.ytimg.com\/vi\/-P2ktNHPccw\/hqdefault.jpg"
+vid_id: "-P2ktNHPccw"
+categories: "Music"
+tags: ["lavinia meijer","iggy pop","poem"]
+date: "2022-04-06T01:20:41+03:00"
+vid_date: "2022-04-01T07:00:01Z"
+duration: "PT5M22S"
+viewcount: "29573"
+likeCount: "397"
+dislikeCount: ""
+channel: "laviniameijerVEVO"
+---
+{% raw %}Lavinia Meijer – Mom &amp; Dad feat. Iggy Pop<br /><br />Stream &amp; order Lavinia Meijer’s album “Are You Still Somewhere?” here: <a rel="nofollow" target="blank" href="https://LaviniaMeijer.lnk.to/areyoustillsomewhereAY">https://LaviniaMeijer.lnk.to/areyoustillsomewhereAY</a><br /><br />Subscribe to Lavinia Meijer’s YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCBbycvX_ds67dZYv7FvKRVg?sub_confirmation=1">https://www.youtube.com/channel/UCBbycvX_ds67dZYv7FvKRVg?sub_confirmation=1</a> <br /><br />Taking inspiration from Iggy Pop’s poem, the harpist created an original composition based on “the cadence in his voice — the rhythmical side, and the melodic side,” then combined it with a recording of Iggy Pop’s spoken word. The poem itself, Mom &amp; Dad, was written several years ago by Iggy Pop after the passing of his parents.<br /><br />“The poem is about searching for balance in life,” says Lavinia Meijer. “On one hand, you are searching for your own happiness — whether that’s music, a career, or other things — but at the same time searching for balance with people very close to you, and staying close to your roots as well.”<br /><br />Directed by Robin de Puy.<br /><br />FOLLOW LAVINIA MEIJER:<br />Instagram – <a rel="nofollow" target="blank" href="https://www.instagram.com/laviniameijer">https://www.instagram.com/laviniameijer</a> <br />Facebook – <a rel="nofollow" target="blank" href="https://www.facebook.com/laviniameijer">https://www.facebook.com/laviniameijer</a> <br />Twitter – <a rel="nofollow" target="blank" href="https://twitter.com/laviniameijer">https://twitter.com/laviniameijer</a><br />Website – <a rel="nofollow" target="blank" href="https://www.laviniameijer.com/">https://www.laviniameijer.com/</a> <br /><br />FOLLOW SONY CLASSICAL:<br />Instagram – <a rel="nofollow" target="blank" href="https://www.instagram.com/sony.classical">https://www.instagram.com/sony.classical</a> <br />Facebook – <a rel="nofollow" target="blank" href="https://www.facebook.com/sonyclassical">https://www.facebook.com/sonyclassical</a> <br />Twitter – <a rel="nofollow" target="blank" href="https://twitter.com/sony_classical">https://twitter.com/sony_classical</a> <br />TikTok – <a rel="nofollow" target="blank" href="https://www.tiktok.com/@sonyclassical">https://www.tiktok.com/@sonyclassical</a><br />YouTube – <a rel="nofollow" target="blank" href="https://www.youtube.com/c/sonyclassical">https://www.youtube.com/c/sonyclassical</a> <br />Website – <a rel="nofollow" target="blank" href="https://sonyclassical.com/">https://sonyclassical.com/</a><br /><br />(C) 2022 Sony Classical, a label of Sony Music Entertainment.<br /><br />#LaviniaMeijer #IggyPop #MomandDad{% endraw %}
