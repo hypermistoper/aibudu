@@ -1,0 +1,15 @@
+---
+title: "Should you consider a move overseas?  My reflection as an American living in New Zealand."
+image: "https:\/\/i.ytimg.com\/vi\/fhsQEI2do70\/hqdefault.jpg"
+vid_id: "fhsQEI2do70"
+categories: "People-Blogs"
+tags: ["new zealand","Should you consider a move overseas","moving to new zealand"]
+date: "2022-04-05T13:20:53+03:00"
+vid_date: "2022-04-03T00:00:29Z"
+duration: "PT20M37S"
+viewcount: "2135"
+likeCount: "129"
+dislikeCount: ""
+channel: "Kiwiamericans"
+---
+{% raw %}With all that's going on, you might be wondering &quot;is it even worth moving overseas?&quot;  Moving overseas is a big decision and there are so many questions!  I am here to help.  We are a family of 6 who have moved to New Zealand from the USA.  We have lived in New Zealand for 6 years and have learned a lot and am ready to share it with you.  <br /><br />NEW training hub!  Sign up to get free digital training videos on how to move/live/travel in New Zealand.  <a rel="nofollow" target="blank" href="https://www.kiwiamericans.com/">https://www.kiwiamericans.com/</a><br /><br />Check out more about mobile voting here 👇<br /><a rel="nofollow" target="blank" href="https://mobilevoting.org">https://mobilevoting.org</a> <br />And get a ballot here 👇<br /><a rel="nofollow" target="blank" href="https://www.fvap.gov/">https://www.fvap.gov/</a><br /><br />Tax Help!  Get $50 when you work with <a rel="nofollow" target="blank" href="https://brighttax.com/">https://brighttax.com/</a> and mention &quot;kiwiamericans.&quot;<br /><br />Travelling or moving to NZ?  I am here to help... 👋<br />Consulting services:  <a rel="nofollow" target="blank" href="https://www.kiwiamericans.com/consulting">https://www.kiwiamericans.com/consulting</a><br /><br />NZ immigration help 👇<br /><a rel="nofollow" target="blank" href="https://www.immigration.govt.nz/">https://www.immigration.govt.nz/</a><br />Need an immigration consultant? Email info@syncworldnz.com and mention kiwiamericans :)<br /><br />Follow me elsewhere 👇<br />Tiktok: <a rel="nofollow" target="blank" href="https://tiktok.com/@kiwiamericans">https://tiktok.com/@kiwiamericans</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/kiwiamericans">https://instagram.com/kiwiamericans</a><br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/kiwiamericans">https://facebook.com/kiwiamericans</a><br />Website: <a rel="nofollow" target="blank" href="https://kiwiamericans.com">https://kiwiamericans.com</a><br /><br />YouTube creators! Get a discount on Tubebuddy: <a rel="nofollow" target="blank" href="https://www.tubebuddy.com/Kiwiamericannz">https://www.tubebuddy.com/Kiwiamericannz</a><br /><br />Thanks to my editor:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8Y43L6N5j-HJZL6_OMJl0Q">https://www.youtube.com/channel/UC8Y43L6N5j-HJZL6_OMJl0Q</a><br /><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCrP5zVF2JAaaFDcdkJueYAw/join">https://www.youtube.com/channel/UCrP5zVF2JAaaFDcdkJueYAw/join</a>{% endraw %}
