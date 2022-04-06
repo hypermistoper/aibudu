@@ -1,0 +1,15 @@
+---
+title: "Trisomy 21: How it Occurs at the Molecular Level"
+image: "https:\/\/i.ytimg.com\/vi\/8y1XiDNJYIc\/hqdefault.jpg"
+vid_id: "8y1XiDNJYIc"
+categories: "Education"
+tags: ["McMaster University","Demystifying Medicine","Trisomy 21"]
+date: "2022-04-06T11:38:44+03:00"
+vid_date: "2021-03-30T20:00:14Z"
+duration: "PT7M23S"
+viewcount: "1064"
+likeCount: "17"
+dislikeCount: ""
+channel: "Demystifying Medicine"
+---
+{% raw %}In this video, we dive into Trisomy 21, the most common type of Down Syndrome, and analyze its occurrence at the molecular level. The symptoms, risk factors, diagnoses and treatments are also discussed, but the primary focus is placed on the mechanism of Meiosis and how an error during this process can lead to Trisomy 21. This video was created purely for educational purposes – for further information on Down Syndrome, please discuss with your doctor or genetic counsellor.<br /><br />This video was made by McMaster University Students: Gurjit Gill, Kiarash Forootan, Prabhdeep Gill and Zarin Hossain in collaboration with the McMaster Demystifying Medicine Program.<br /><br />Copyright McMaster University 2021.<br /><br /><br />Music: <a rel="nofollow" target="blank" href="https://www.bensound.com">https://www.bensound.com</a><br /><br />References:<br />Mai CT, Isenburg JL, Canfield MA, Meyer RE, Correa A, Alverson CJ, Lupo PJ, Riehle‐Colarusso T, Cho SJ, Aggarwal D, Kirby RS. National population‐based estimates for major birth defects, 2010–2014. Birth Defects Research. 2019; 111(18): 1420-1435.<br /><br />Stanford Children's Health Staff. (n.d.). Down Syndrome (Trisomy 21) in Children. Retrieved from <a rel="nofollow" target="blank" href="https://www.stanfordchildrens.org/en/topic/default?id=down-syndrome-trisomy-21-90-P02356">https://www.stanfordchildrens.org/en/topic/default?id=down-syndrome-trisomy-21-90-P02356</a><br /><br />CDC Staff. (2020, December 28). Facts about Down Syndrome. Retrieved from <a rel="nofollow" target="blank" href="https://www.cdc.gov/ncbddd/birthdefects/downsyndrome.html">https://www.cdc.gov/ncbddd/birthdefects/downsyndrome.html</a><br /><br />Vraneković, J., Božović, I. B., Grubić, Z., Wagner, J., Pavlinić, D., Dahoun, S., . . . Brajenović-Milić, B. (2012). Down Syndrome: Parental Origin, Recombination, and Maternal Age. Genetic Testing and Molecular Biomarkers,16(1), 70-73. doi:10.1089/gtmb.2011.0066<br /><br />Loane, M., Morris, J. K., Addor, M.-C., Arriola, L., Budd, J., Doray, B., Garne, E., Gatt, M., Haeusler, M., Khoshnood, B., Klungsøyr Melve, K., Latos-Bielenska, A., McDonnell, B., Mullaney, C., O’Mahony, M., Queißer-Wahrendorf, A., Rankin, J., Rissmann, A., Rounding, C., … Dolk, H. (2013). Twenty-year trends in the prevalence of Down syndrome and other trisomies in Europe: Impact of maternal age and prenatal screening. European Journal of Human Genetics, 21(1), 27–33. <a rel="nofollow" target="blank" href="https://doi.org/10.1038/ejhg.2012.94">https://doi.org/10.1038/ejhg.2012.94</a>{% endraw %}
