@@ -1,0 +1,15 @@
+---
+title: "Fraud to Murder? | The Case of Melissa Caddick"
+image: "https:\/\/i.ytimg.com\/vi\/j65ueCWftf8\/hqdefault.jpg"
+vid_id: "j65ueCWftf8"
+categories: "Entertainment"
+tags: ["coffeehouse crime","melissa caddick","ponzi scheme"]
+date: "2022-04-07T16:26:54+03:00"
+vid_date: "2022-04-04T15:00:16Z"
+duration: "PT26M1S"
+viewcount: "308532"
+likeCount: "18606"
+dislikeCount: ""
+channel: "Coffeehouse Crime"
+---
+{% raw %}Melissa Caddick was an unlicensed financial advisor who managed to con over $30 million out of her friends and family. Once she was caught red-handed, she vanished off the face of the earth... Until one formidable discovery was made 100 days later. But does this prove Melissa Caddick's fate?<br /><br />🔴 Subscribe ➜ <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCcUf33cEPky2GiWBgOP-jQA?sub_confirmation=1">https://www.youtube.com/channel/UCcUf33cEPky2GiWBgOP-jQA?sub_confirmation=1</a><br />📸 Instagram ➜ <a rel="nofollow" target="blank" href="https://www.instagram.com/coffeehousecrime/">https://www.instagram.com/coffeehousecrime/</a><br />🎁 Patreon ➜ <a rel="nofollow" target="blank" href="https://www.patreon.com/coffeehousecrime">https://www.patreon.com/coffeehousecrime</a><br />👕 Merch ➜ <a rel="nofollow" target="blank" href="https://crowdmade.com/collections/coffeehousecrime">https://crowdmade.com/collections/coffeehousecrime</a><br />☕ Facebook ➜ <a rel="nofollow" target="blank" href="https://www.facebook.com/coffeehousecrime">https://www.facebook.com/coffeehousecrime</a><br />🌎 Coffeehouse Crime Map ➜ <a rel="nofollow" target="blank" href="http://bit.ly/coffeehousecrimemap​">http://bit.ly/coffeehousecrimemap​</a><br />🎵 Coffeehouse Crime FM ➜ <a rel="nofollow" target="blank" href="https://bit.ly/3n7Jv3y​​​">https://bit.ly/3n7Jv3y​​​</a><br /><br />00:00 Intro<br />01:06 Sydney, Melissa's childhood<br />02:25 Turbulent experiences<br />07:53 Melissa Caddick's Ponzi Scheme<br />09:58 Outrageous Spending <br />13:10 Caught... Vanished.<br />15:24 Theories<br />18:10 A grim discovery<br />20:06 What now?<br />21:41 Aftermath<br />25:12 Outro<br /><br />🎵 Anthony Koletti's album 'Raid' (Please don't send him any hate, he's certainly going through enough) ➜ <a rel="nofollow" target="blank" href="https://open.spotify.com/album/7zdf9SAulWHo25cbcf8x30">https://open.spotify.com/album/7zdf9SAulWHo25cbcf8x30</a> <br />Or find his album on YouTube ➜ <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=OLAK5uy_koDPCw_xkk9GOtUImROOhON_paaHzQd-E">https://youtube.com/playlist?list=OLAK5uy_koDPCw_xkk9GOtUImROOhON_paaHzQd-E</a><br /><br />DISCLAIMER: Great effort is made to ensure all materials in Coffeehouse Crime's videos fall within the guidelines of fair use. No copyright infringement is intended. If you are, or represent the copyright owner of any materials accidentally used in this video and have an issue with its use, please contact me and I will respond as soon as possible.{% endraw %}
