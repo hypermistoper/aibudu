@@ -1,0 +1,15 @@
+---
+title: "Josh Brolin Licks the Palate of Absurdity While Eating Spicy Wings | Hot Ones"
+image: "https:\/\/i.ytimg.com\/vi\/c0ZtaaMml90\/hqdefault.jpg"
+vid_id: "c0ZtaaMml90"
+categories: "Entertainment"
+tags: ["First we feast","fwf","firstwefeast"]
+date: "2022-04-08T01:28:52+03:00"
+vid_date: "2022-04-07T15:00:18Z"
+duration: "PT27M9S"
+viewcount: "557548"
+likeCount: "45601"
+dislikeCount: ""
+channel: "First We Feast"
+---
+{% raw %}Josh Brolin is an Academy Award–nominated actor with storied credits that include No Country For Old Men, Sicario, Deadpool, The Avengers, and many more. His latest project is the Western-set mystery thriller Outer Range, which is set to release on Prime Video April 15th. But how is he with spicy food? Find out as Brolin takes on the wings of death and discusses working with the Coen Brothers, growing up on punk rock, and his favorite TV shows of all time. Don't miss this high-octane Season 17 finale!<br /><br />BUY HOT ONES BONELESS CHICKEN BITES NOW: <a rel="nofollow" target="blank" href="https://hotoneschallenge.com/">https://hotoneschallenge.com/</a><br /><br />MAKE A DIFFERENCE BY DONATING TO COMMON THREADS, THE BRAND-NEW CHARITY PARTNER OF HOT ONES: <a rel="nofollow" target="blank" href="https://www.commonthreads.org/firstwefeast/">https://www.commonthreads.org/firstwefeast/</a><br /><br />BUY HOT ONES TRUTH OR DAB THE GAME NOW: <a rel="nofollow" target="blank" href="http://truthordabgame.com">http://truthordabgame.com</a><br /><br />BUY HOT ONES HOT SAUCE NOW: <a rel="nofollow" target="blank" href="http://bit.ly/HotOnesSaucesNEW">http://bit.ly/HotOnesSaucesNEW</a><br /><br />HOT ONES MERCH AVAILABLE NOW: <a rel="nofollow" target="blank" href="https://bit.ly/2AIS271">https://bit.ly/2AIS271</a><br /><br />SIGN UP FOR THE HOT ONES MONTHLY HOT SAUCE SUB BOX: <a rel="nofollow" target="blank" href="https://bit.ly/2veY50P">https://bit.ly/2veY50P</a><br /><br />SIGN UP FOR THE FIRST WE FEAST NEWSLETTER: <a rel="nofollow" target="blank" href="http://firstwefeast.com/signup">http://firstwefeast.com/signup</a><br /><br />Subscribe to First We Feast on YouTube: <a rel="nofollow" target="blank" href="http://goo.gl/UxFzhK">http://goo.gl/UxFzhK</a><br /><br />Check out more of First We Feast here:<br /><br /><a rel="nofollow" target="blank" href="http://firstwefeast.com/">http://firstwefeast.com/</a><br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/firstwefeast">https://twitter.com/firstwefeast</a><br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/FirstWeFeast">https://www.facebook.com/FirstWeFeast</a><br /><br /><a rel="nofollow" target="blank" href="http://instagram.com/firstwefeast">http://instagram.com/firstwefeast</a><br /><br />First We Feast videos offer an iconoclastic view into the culinary world, taking you behind-the-scenes with some of the country’s best chefs and finding the unexpected places where food and pop culture intersect. #HotOnes #JoshBrolin #Marvel{% endraw %}
