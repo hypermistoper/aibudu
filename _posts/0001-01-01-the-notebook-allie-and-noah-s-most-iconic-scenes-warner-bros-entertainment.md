@@ -1,0 +1,15 @@
+---
+title: "The Notebook | Allie and Noah's Most Iconic Scenes | Warner Bros. Entertainment"
+image: "https:\/\/i.ytimg.com\/vi\/U3tjDuLjtts\/hqdefault.jpg"
+vid_id: "U3tjDuLjtts"
+categories: "Entertainment"
+tags: ["Warner brothers movies","warner bros movie trailers","warner brothers home entertainment"]
+date: "2022-04-08T22:45:39+03:00"
+vid_date: "2022-02-10T15:00:25Z"
+duration: "PT5M37S"
+viewcount: "32619"
+likeCount: "450"
+dislikeCount: ""
+channel: "Warner Bros. Entertainment"
+---
+{% raw %}There’s no denying the chemistry between Allie (Rachel McAdams) and Noah (Ryan Gosling) in these electrifying iconic scenes in Nicholas Sparks' &quot;The Notebook&quot;.<br /><br />SUBSCRIBE to Warner Bros. Entertainment: <a rel="nofollow" target="blank" href="http://bit.ly/32v18jf">http://bit.ly/32v18jf</a> <br /><br />#TheNotebook #RyanGosling #RachelMcAdams<br /><br />Connect with Warner Bros. Entertainment Online: <br />Follow Warner Bros. Entertainment INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/warnerbrose...">https://www.instagram.com/warnerbrose...</a> <br />Like Warner Bros. Entertainment on FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/warnerbrosent/">https://www.facebook.com/warnerbrosent/</a> <br />Follow Warner Bros. Entertainment <br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/WBHomeEnt">https://twitter.com/WBHomeEnt</a> <br /><br />About The Notebook: <br />Behind every great love is a great story.<br /><br />As teenagers, Allie (Rachel McAdams) and Noah (Ryan Gosling) begin a whirlwind courtship that soon blossoms into tender intimacy. The young couple is quickly separated by Allie's upper-class parents who insist that Noah isnt right for her. Several years pass, and when they meet again, their passion is rekindled, forcing Allie to choose between her soulmate and class order. This beautiful tale has a particularly special meaning to an older gentleman (James Garner) who regularly reads the timeless love story to his aging companion (Gena Rowlands).<br /><br />Based on the best-selling novel by Nicholas Sparks, The Notebook is at once heartwarming and heartbreaking and will capture you in its sweeping and emotional force.<br /><br />About Warner Bros. Entertainment: <br />At Warner Bros. Entertainment, we believe in the power of story. From classics to contemporary masterpieces, explore and watch a library full of extraordinary, stirring, and provocative entertainment that goes beyond the big screen. Subscribe to discover new favorites from the studio that brought you Friends, JOKER, the Conjuring Universe, and The Wizarding World of Harry Potter™.<br /><br />The Notebook | Best of Allie and Noah | Warner Bros. Entertainment <br /><a rel="nofollow" target="blank" href="https://youtu.be/U3tjDuLjtts">https://youtu.be/U3tjDuLjtts</a><br /><br />Warner Bros. Entertainment <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/WarnerBrosOnline">https://www.youtube.com/user/WarnerBrosOnline</a>{% endraw %}
