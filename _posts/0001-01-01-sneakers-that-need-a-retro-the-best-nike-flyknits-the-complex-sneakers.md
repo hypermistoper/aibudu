@@ -1,0 +1,15 @@
+---
+title: "Sneakers That Need a Retro, The Best Nike Flyknits | The Complex Sneakers Podcast"
+image: "https:\/\/i.ytimg.com\/vi\/vIvxzZWp_Ho\/hqdefault.jpg"
+vid_id: "vIvxzZWp_Ho"
+categories: "Entertainment"
+tags: ["sneakerhead","complex","complex originals"]
+date: "2022-04-08T23:42:56+03:00"
+vid_date: "2022-04-08T14:00:19Z"
+duration: "PT1H2M1S"
+viewcount: "8343"
+likeCount: "380"
+dislikeCount: ""
+channel: "Complex"
+---
+{% raw %}The Complex Sneakers Podcast is co-hosted by Joe La Puma, Brendan Dunne, and Matt Welty. This week, the three hosts talk about sneakers they want to see come back, like Arnold Schwarzenegger's Nike lifting shoe, the Nike Air Burst, and the Joe-favorite Air Zoom Citizen. They also reflect on the early days of Nike Flyknit, which launched 10 years ago now. Joe gives a breakdown of the latest Kith trip, Brendan explains Treefort Music Fest in Boise, and Welty starts laying out plans for the Complex Sneakers Glizzy Tour. <br /><br />Looking for the Complex Sneakers Podcast Dad Hats? Shop on Complex Shop now!<br /><br /><a rel="nofollow" target="blank" href="https://shop.complex.com/products/the-complex-sneakers-podcast-dad-hat-white">https://shop.complex.com/products/the-complex-sneakers-podcast-dad-hat-white</a><br /><br /><a rel="nofollow" target="blank" href="https://shop.complex.com/products/the-complex-sneakers-podcast-dad-hat-black">https://shop.complex.com/products/the-complex-sneakers-podcast-dad-hat-black</a><br /><br />EPISODE CHAPTERS:<br />0:00 - Start of episode <br />5:00 - Guys talk Kith trip and glizzies lol <br />15:00 - Guys talk the stress of misplacing sneakers<br />25:00 - Sneaker giveaway talk <br />35:00 - TBT to Nike Air Bursts <br />45:00 - Guys talk Flyknit trainer  <br />55:00 - JLP talks Jordan 17 low <br />1:02:00 - End of episode<br /><br /><br />Subscribe to Complex on YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Complex">https://www.youtube.com/c/Complex</a><br /><br />Check out more of Complex here:<br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/complex">https://www.twitch.tv/complex</a><br /><a rel="nofollow" target="blank" href="http://www.complex.com">http://www.complex.com</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/Complex">https://twitter.com/Complex</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/complex">https://www.facebook.com/complex</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/complex">http://instagram.com/complex</a><br /><a rel="nofollow" target="blank" href="https://plus.google.com/+complex/">https://plus.google.com/+complex/</a><br /><br />COMPLEX is a community of creators and curators, armed with the Internet, committed to surfacing and sharing the voices and conversations that define our new America. Our videos exemplify convergence culture, exploring topics that include music, sneakers, style, sports, and pop culture through original shows and Complex News segments. Featuring your favorite celebrities, authoritative commentary, and a unique voice, our videos make culture pop. #TheComplexSneakersPodcast{% endraw %}
