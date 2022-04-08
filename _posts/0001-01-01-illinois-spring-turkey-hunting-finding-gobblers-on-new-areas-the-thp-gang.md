@@ -1,0 +1,15 @@
+---
+title: "ILLINOIS SPRING TURKEY HUNTING - (Finding GOBBLERS on New Areas!!)"
+image: "https:\/\/i.ytimg.com\/vi\/BmRR-_hzpGs\/hqdefault.jpg"
+vid_id: "BmRR-_hzpGs"
+categories: "People-Blogs"
+tags: ["Illinois turkey hunting","turkey hunting videos","the hunting public"]
+date: "2022-04-08T15:38:52+03:00"
+vid_date: "2022-04-08T00:33:09Z"
+duration: "PT23M23S"
+viewcount: "33173"
+likeCount: "1416"
+dislikeCount: ""
+channel: "The Hunting Public"
+---
+{% raw %}The THP gang head to Illinois for the first time EVER to hunt turkeys! <br />TURKEY CALLS - Get 10% off Woodhaven Calls w/coupon code - THP2022 - <a rel="nofollow" target="blank" href="http://bit.ly/2IagiSe">http://bit.ly/2IagiSe</a><br /><br />MAPPING - Get 20% Off OnX Hunt! Use promo code THP: <a rel="nofollow" target="blank" href="https://bit.ly/3qCKryJ">https://bit.ly/3qCKryJ</a><br /><br />THP MERCH - <a rel="nofollow" target="blank" href="https://www.thehuntingpublic.com/">https://www.thehuntingpublic.com/</a><br /><br />BOW ACCESSORIES - Get 20% off TROPHY RIDGE products w/ code - THP21 - <a rel="nofollow" target="blank" href="http://bit.ly/2Lol7Yx">http://bit.ly/2Lol7Yx</a><br /><br />BOWS - Save 10% off all Bear Equipment w/code THP10 - <a rel="nofollow" target="blank" href="http://bit.ly/2JW7OzP">http://bit.ly/2JW7OzP</a><br /><br />OPTICS - 10% off Vortex Optics w/code THP10 - <a rel="nofollow" target="blank" href="https://bit.ly/3yVnWJe">https://bit.ly/3yVnWJe</a><br /><br />TICK REPELLANT - Learn about all Sawyer outdoor products - <a rel="nofollow" target="blank" href="https://sawyer.com/lyme-disease/">https://sawyer.com/lyme-disease/</a><br /><br />TRAIL CAMERAS - Get 10% off Exodus Trail Cameras w/ code THP10 - <a rel="nofollow" target="blank" href="https://bit.ly/3lwNlpE">https://bit.ly/3lwNlpE</a><br /><br />GAME PROCESSING - MEAT! products - Free shipping on orders over $99 w/code THP10 - <a rel="nofollow" target="blank" href="https://bit.ly/2DzgTQ8">https://bit.ly/2DzgTQ8</a><br /><br />TREE SADDLES - Check out Tethrd saddles and platforms! - <a rel="nofollow" target="blank" href="http://bit.ly/2Td2Wcr">http://bit.ly/2Td2Wcr</a><br /><br />THP ARROWS - Use code THP for 10% off - <a rel="nofollow" target="blank" href="https://bit.ly/3AX29Ct">https://bit.ly/3AX29Ct</a><br /><br />BROADHEADS <br />Greg - Iron Will S125 - <a rel="nofollow" target="blank" href="https://bit.ly/2YZV5Vl">https://bit.ly/2YZV5Vl</a><br />Zach - Grizzly Stik Massai<br />Ted - Magnus Black Hornet - <a rel="nofollow" target="blank" href="https://www.magnusbroadheads.com">https://www.magnusbroadheads.com</a><br />Aaron - Cutthroat 150 and Magnus Stinger - <a rel="nofollow" target="blank" href="https://www.magnusbroadheads.com">https://www.magnusbroadheads.com</a><br />Follow us <br />Instagram - <a rel="nofollow" target="blank" href="http://bit.ly/2uUehnC">http://bit.ly/2uUehnC</a><br />Facebook - <a rel="nofollow" target="blank" href="http://bit.ly/2OV7tj3">http://bit.ly/2OV7tj3</a><br /><br /><br />PODCAST - <a rel="nofollow" target="blank" href="https://spoti.fi/3isxVOt">https://spoti.fi/3isxVOt</a><br />#thehuntingpublic #bowhunting #deertour{% endraw %}
