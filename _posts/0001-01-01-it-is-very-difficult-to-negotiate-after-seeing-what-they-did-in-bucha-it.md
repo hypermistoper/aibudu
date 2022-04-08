@@ -1,0 +1,15 @@
+---
+title: "“It is very difficult to negotiate after seeing what they did in Bucha”"
+image: "https:\/\/i.ytimg.com\/vi\/K6dJGWaM55s\/hqdefault.jpg"
+vid_id: "K6dJGWaM55s"
+categories: "News-Politics"
+tags: ["russian losses","zelensky","irpin ukraine"]
+date: "2022-04-08T09:30:35+03:00"
+vid_date: "2022-04-05T13:59:00Z"
+duration: "PT2M29S"
+viewcount: "11055"
+likeCount: "304"
+dislikeCount: ""
+channel: "Breaking News USA"
+---
+{% raw %}“It is very difficult to negotiate after seeing what they did in Bucha”<br /><br /><br />Even the leaders came to the agenda after the Istanbul talks between Russia and Ukraine. However, it is curious how diplomacy will continue after Bucha.<br /><br /><br />He said that they wanted to bring Zelensky and Putin together after the last round of negotiations in Istanbul. But it turned out that there was a massacre in Bucha, near Kyiv, where the Russian army was withdrawing.<br /><br />Ukrainian authorities announced that there were civilians who had been shot with their hands tied behind their backs. While a mass grave was found in the city, it is thought that 300 people were buried in a pit at a depth of 14 meters. Satellite images of the massacre were revealed.<br /><br /><br />President of Ukraine Volodymyr Zelenski, while moving from the capital Kiev to the region to see what happened in Bucha, said, &quot;It is very difficult to negotiate after seeing what they have done here, but there is no other option&quot;.<br /><br /><br />&quot;There is a possibility that there will be no meeting between me and Russian President Putin,&quot; Zelenski said in a statement on state television today.<br /><br /><br />The Ukrainian government says that the bodies of 410 civilians have been found in the cities around Kiev, while mentioning the existence of mass graves. The President of Ukraine calls the events &quot;genocide&quot;.<br /><br /><br />“The worst is yet to come,” says Ukrainian Foreign Minister Dmitro Kuleba.<br /><br /><br />Even the Ukrainian soldiers could not hold back their tears at what they saw in Bucha, while the Zelensky government wants Russia to be removed from the United Nations Human Rights Council.<br /><br /><br />The images of atrocities coming from Bucha are so frightening that Facebook owner Meta has announced that it will block these images. After the posts shared with the #bucha and #buchamassacre (#buçakatliami) hashtags were also censored, the restrictions for these tags were removed.<br /><br /><br />Volodymyr Zelenski states that at least 300 people were killed by the Russian army in Bucha.<br /><br /><br />“This is just a town (Bucha) that the Russians managed to capture. Now there are news from Borodyanka and other liberated Ukrainian towns, the number of casualties could be much higher,” he said.<br /><br /><br />Regarding what happened in Cherniyev and Sumy regions around Kyiv, Zelensky said, &quot;The people who live here have not seen anything like this since the Nazi occupation 80 years ago.&quot;{% endraw %}
