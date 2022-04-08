@@ -1,0 +1,15 @@
+---
+title: "What If You Stopped Eating Food? | Starving Yourself | The Dr Binocs Show | Peekaboo Kidz"
+image: "https:\/\/i.ytimg.com\/vi\/rJVqrf7X75g\/hqdefault.jpg"
+vid_id: "rJVqrf7X75g"
+categories: "Education"
+tags: ["What If You Stopped Eating?","starving","dieting"]
+date: "2022-04-08T12:50:07+03:00"
+vid_date: "2022-02-15T12:30:10Z"
+duration: "PT6M5S"
+viewcount: "1179516"
+likeCount: "6092"
+dislikeCount: ""
+channel: "Peekaboo Kidz"
+---
+{% raw %}What If You Stopped Eating Food? | Dieting | What Happens When You Stop Eating Food | What Happens To Your Body Without Food | Body Eats Itself | Starving Yourself | Starvation | Intermediate Fasting | Malnutrition | Eating Habits | Weight Loss | Lose Weight | Hunger | Glucose | Brain | Eating Disorder | Anorexia | Fat Burning | Heart Attack | Eat Healthy | Drink Water | Stay Hydrated | Health And Fitness | Best Kids Show | Human Biology | Human Body | Biology Video For Kids | Science For Kids | Science Videos | Video For Kids | Dr Binocs Show | Peekaboo Kidz <br /><br />Hey kids, in this video, Dr Binocs will explain What If You Stopped Eating? | The Dr Binocs Show | Peekaboo Kidz<br /><br />Make sure you watch the whole video to know all the answers to your curious questions! <br /><br />Leave your ideas, suggestions and questions for Dr. Binocs at this Email Id: peekabookidzfeedback@gmail.com<br /><br />For more fun learning videos SUBSCRIBE to Peekaboo Kidz: <a rel="nofollow" target="blank" href="http://bit.ly/SubscribeTo-Peekabookidz">http://bit.ly/SubscribeTo-Peekabookidz</a><br /><br />Watch Why Do We Drink Water? here - <a rel="nofollow" target="blank" href="https://youtu.be/31F0laJjyy8">https://youtu.be/31F0laJjyy8</a><br /><br />Watch other fun learning episodes of Dr. Binocs here - <a rel="nofollow" target="blank" href="http://bit.ly/2kfNS22">http://bit.ly/2kfNS22</a><br /><br />Credits - <br />Copyrights and Publishing: Rajshri Entertainment Private Limited <br />All rights reserved.    <br /><br />#WhatIfYouStoppedEating? #DrBinocsShow #PeekabooKidz<br /><br />Catch Dr.Binocs At - <a rel="nofollow" target="blank" href="https://goo.gl/SXhLmc">https://goo.gl/SXhLmc</a><br /><br />To Watch More Popular Nursery Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/CV0Xoo">https://goo.gl/CV0Xoo</a><br /><br />To Watch Alphabet Rhymes Go To - <a rel="nofollow" target="blank" href="https://goo.gl/qmIRLv">https://goo.gl/qmIRLv</a><br /><br />To Watch Compilations Go To - <a rel="nofollow" target="blank" href="https://goo.gl/nW3kw9">https://goo.gl/nW3kw9</a><br /><br />Catch More Lyricals At - <a rel="nofollow" target="blank" href="https://goo.gl/A7kEmO">https://goo.gl/A7kEmO</a><br /><br />Subscribe to Peekaboo Kidz: <a rel="nofollow" target="blank" href="http://bit.ly/peekabookidz">http://bit.ly/peekabookidz</a><br /><br />Like our Facebook page: <a rel="nofollow" target="blank" href="https://www.facebook.com/peekabootv">https://www.facebook.com/peekabootv</a>{% endraw %}
