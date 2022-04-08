@@ -1,0 +1,15 @@
+---
+title: "Monogamous People Concern Me"
+image: "https:\/\/i.ytimg.com\/vi\/YPinhmva07w\/hqdefault.jpg"
+vid_id: "YPinhmva07w"
+categories: "Entertainment"
+tags: ["Monogamous","People","Concern"]
+date: "2022-04-08T04:11:19+03:00"
+vid_date: "2022-04-07T22:57:27Z"
+duration: "PT13M45S"
+viewcount: "2390"
+likeCount: "689"
+dislikeCount: ""
+channel: "Nicholas Black"
+---
+{% raw %}Instagram: @nickmillionz<br />Twitter: @nickmillionz<br /><br />Rather than give me money, give to charities I care about:<br />Islamic Relief USA (for children in Yemen): <a rel="nofollow" target="blank" href="http://irusa.org/yemen/">http://irusa.org/yemen/</a><br />Partnership With Native Americans: <a rel="nofollow" target="blank" href="http://www.nativepartnership.org/site/PageServer?pagename=pwna_home">http://www.nativepartnership.org/site/PageServer?pagename=pwna_home</a><br />The Native American Heritage Association: <a rel="nofollow" target="blank" href="https://www.naha-inc.org/">https://www.naha-inc.org/</a><br />The Trevor Project: <a rel="nofollow" target="blank" href="https://give.thetrevorproject.org/give/63307/#!/donation/checkout">https://give.thetrevorproject.org/give/63307/#!/donation/checkout</a><br />Pure Earth: <a rel="nofollow" target="blank" href="https://www.pureearth.org/">https://www.pureearth.org/</a><br />Earthjustice: that’s <a rel="nofollow" target="blank" href="https://earthjustice.org/features/what-you-need-to-know-about-earthjustice">https://earthjustice.org/features/what-you-need-to-know-about-earthjustice</a><br />National Center for Transgender Equality: <a rel="nofollow" target="blank" href="https://transequality.org/about">https://transequality.org/about</a><br />TransWomen of Color Collective: <a rel="nofollow" target="blank" href="http://www.twocc.us/">http://www.twocc.us/</a><br />NAACP Legal Defense and Educational Fund: <a rel="nofollow" target="blank" href="https://org2.salsalabs.com/o/6857/p/salsa/donation/common/public/?donate_page_KEY=15780&amp;_ga=2.24687230.553622541.1548775418-2036914870.1548775418&amp;_conv_v=vi%3A1*sc%3A1*cs%3A1548775419*fs%3A1548775419*pv%3A1*exp%3A%7B%7D&amp;_conv_s=si%3A1*sh%3A1548775418796-0.7098890635982174*pv%3A1&amp;_conv_v=vi%3A1*sc%3A1*cs%3A1548775419*fs%3A1548775419*pv%3A1*exp%3A%7B%7D&amp;_conv_s=si%3A1*sh%3A1548775418796-0.7098890635982174*pv%3A1">https://org2.salsalabs.com/o/6857/p/salsa/donation/common/public/?donate_page_KEY=15780&amp;_ga=2.24687230.553622541.1548775418-2036914870.1548775418&amp;_conv_v=vi%3A1*sc%3A1*cs%3A1548775419*fs%3A1548775419*pv%3A1*exp%3A%7B%7D&amp;_conv_s=si%3A1*sh%3A1548775418796-0.7098890635982174*pv%3A1&amp;_conv_v=vi%3A1*sc%3A1*cs%3A1548775419*fs%3A1548775419*pv%3A1*exp%3A%7B%7D&amp;_conv_s=si%3A1*sh%3A1548775418796-0.7098890635982174*pv%3A1</a><br />The Innocence Project: <a rel="nofollow" target="blank" href="https://support.innocenceproject.org/give/177733/#!/donation/checkout">https://support.innocenceproject.org/give/177733/#!/donation/checkout</a><br />Autism Self Advocacy Network: <a rel="nofollow" target="blank" href="https://autisticadvocacy.org/">https://autisticadvocacy.org/</a>{% endraw %}
