@@ -1,0 +1,15 @@
+---
+title: "Will My Twin Brother Hookup With My Girlfriend? *LOYALTY TEST*"
+image: "https:\/\/i.ytimg.com\/vi\/nAGGx9wacRo\/hqdefault.jpg"
+vid_id: "nAGGx9wacRo"
+categories: "Entertainment"
+tags: ["lucas and marcus","dobre twins","dobre brothers"]
+date: "2022-04-09T19:08:48+03:00"
+vid_date: "2021-02-22T05:10:36Z"
+duration: "PT10M4S"
+viewcount: "2235130"
+likeCount: "106341"
+dislikeCount: ""
+channel: "Lucas and Marcus"
+---
+{% raw %}What will he do?! 😬<br /><br />SUBSCRIBE TO IVANITA: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCkNMthZPrgH-uaeklZzUSiw">https://www.youtube.com/channel/UCkNMthZPrgH-uaeklZzUSiw</a><br /><br />📲 DOWNLOAD &amp; PLAY DOBRE DUEL!<br /><a rel="nofollow" target="blank" href="https://dobreduel.com/">https://dobreduel.com/</a><br /> <br />👉🏼 NEW DOBRE BROTHER ACTION FIGURES OUT NOW!!<br /><a rel="nofollow" target="blank" href="https://bit.ly/DobreBrosYouTooz">https://bit.ly/DobreBrosYouTooz</a> <br /><br />WANT A PERSONAL SHOUTOUT FROM US?! BOOK US ON CAMEO!<br /><a rel="nofollow" target="blank" href="https://www.cameo.com/dobretwins">https://www.cameo.com/dobretwins</a><br /><br />📱TEXT OUR PHONE NUMBER! (301) 245-2201<br /><br />🔥 ‘LIVE IT UP FT. LIL MOSEY’ OUT NOW!<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/track/4WFZdAl23uqYJ2kyuXk801">https://open.spotify.com/track/4WFZdAl23uqYJ2kyuXk801</a> <br /><a rel="nofollow" target="blank" href="https://music.apple.com/us/album/live-it-up/1511316477?i=1511316478">https://music.apple.com/us/album/live-it-up/1511316477?i=1511316478</a> <br /><br />WE POST TUESDAY, THURSDAY, &amp; SUNDAY! <br />TURN OUR POST NOTIFICATIONS ON FOR A SHOUTOUT!<br /><br />SUBSCRIBE TO THE LUCAS AND MARCUS CHANNEL!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/TwiNboTzVids">https://www.youtube.com/user/TwiNboTzVids</a><br /><br />SUBSCRIBE TO THE DOBRE BROTHERS CHANNEL! <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCC3OGYxHwV8pB5yLobw9KdA">https://www.youtube.com/channel/UCC3OGYxHwV8pB5yLobw9KdA</a><br /><br />LUCAS’S SOCIAL MEDIA<br />Instagram - @lucas_dobre<br />Twitter - @Dobrelucas<br />Snapchat - @lucas_dobre<br />TikTok - @dobretwins<br /><br />MARCUS’S SOCIAL MEDIA<br />Instagram - @Marcusdobre<br />Twitter - @Dobremarcus<br />Snapchat - @marcusdobre1<br />TikTok - @dobretwins<br /><br />FOLLOW THE DOBRE BROTHERS! <br />Instagram - <a rel="nofollow" target="blank" href="http://instagram.com/dobrebrothers">http://instagram.com/dobrebrothers</a><br />Snapchat - <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Dobre_Brothers/5255767112">https://www.snapchat.com/discover/Dobre_Brothers/5255767112</a><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/dobrebrothers/">https://www.facebook.com/dobrebrothers/</a><br /><br />BIZ - dobrebrothersmgmt@gmail.com<br /> <br />THANKS FOR WATCHING!<br /><br />Will My Twin Brother Hookup With My Girlfriend? *LOYALTY TEST*<br /><a rel="nofollow" target="blank" href="https://youtu.be/nAGGx9wacRo">https://youtu.be/nAGGx9wacRo</a>{% endraw %}
