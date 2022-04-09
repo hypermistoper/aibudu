@@ -1,0 +1,15 @@
+---
+title: "What Life Was Like During The Battle Of Stalingrad"
+image: "https:\/\/i.ytimg.com\/vi\/EI2FTlOpYtQ\/hqdefault.jpg"
+vid_id: "EI2FTlOpYtQ"
+categories: "Education"
+tags: ["the battle of stalingrad","battle of stalingrad","stalingrad"]
+date: "2022-04-09T10:47:56+03:00"
+vid_date: "2022-04-08T16:00:14Z"
+duration: "PT14M32S"
+viewcount: "10904"
+likeCount: "605"
+dislikeCount: ""
+channel: "TheUntoldPast"
+---
+{% raw %}The Battle of Stalingrad was the bloodiest and deadliest battle of the Second World War, and was one of the worst in History. During the 5 months that the Germans and the Soviet Red Army fought for supremacy over the key city, it's estimated that there were around 2 million casualties with hundreds of thousands being killed in the intense fighting. Stalingrad was of key importance for the German Army and the Red Army, and they thought to the death to ensure they won. But it was the Soviets who eventually were victorious following their counter-offensive, Operation Uranus. But things inside of the city were incredibly tough.<br /><br />The city of Stalingrad had become an intense battlefield of urban warfare, with every house and building becoming a battle site. For the civilians who lived there, they faced heavy bombing bombardments each day and its estimated that 40,000 civilians died during the battle. Food became incredibly short and many people starved, and the water supplies became damaged also. Disease was rampant in the city, but following the Soviet counter-offensive, the German 6th Army began to suffer greatly too as they were surrounded.<br /><br />The fighting raged on, and the 6th Army began to starve and many succumbed to the freezing cold dying of hypothermia and frostbite. The 6th Army were completely destroyed during the battle, many were sent to Russian Gulags if they survived, but thousands died in the snow. The Battle of Stalingrad was completely barbaric at times, which led to the deaths of thousands, but what was life truly like inside of the city which became the site of the deadliest battle of World War 2.<br /><br />Join us today as we look at, 'What Life Was Like During The Battle Of Stalingrad.' Make sure to support our channel by subscribing! <br /><br />Thanks for watching! Support the channel by subscribing, liking, and sharing. <br /><br />Follow me on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/theuntoldpast">https://twitter.com/theuntoldpast</a><br />Follow me on Instagram: www.instagram.com/theuntoldpast<br /><br />Disclaimer: All opinions and comment stated below in the Comments section do not represent the opinion of TheUntoldPast. All opinions and comments and dialogue should discuss the video above in a historical manner.<br /><br />TheUntoldPast does not accept any racism, profanity, insults, sexism or any negative discussion aimed at an individual. TheUntoldPast has the right to delete any comment with this content inside it and also ban the user from the channel.{% endraw %}
