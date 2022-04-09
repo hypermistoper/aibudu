@@ -1,0 +1,15 @@
+---
+title: "Two Is Better Than One - Boys Like Girls (Feat. Taylor Swift) (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/95nT8xW3-cY\/hqdefault.jpg"
+vid_id: "95nT8xW3-cY"
+categories: "People-Blogs"
+tags: ["Pillow","PillowMusic","DopeLyrics"]
+date: "2022-04-09T05:21:10+03:00"
+vid_date: "2020-09-08T14:53:07Z"
+duration: "PT4M9S"
+viewcount: "1388000"
+likeCount: "9717"
+dislikeCount: ""
+channel: "Pillow"
+---
+{% raw %}📜 Lyrics: &quot;Two Is Better Than One&quot; <a rel="nofollow" target="blank" href="https://pillowlyrics.com/two-is-better-than-one-boys-like-girls-feat-taylor-swift/">https://pillowlyrics.com/two-is-better-than-one-boys-like-girls-feat-taylor-swift/</a><br /><br />📜 VISIT OUR OFFICIAL LYRICS WEBSITE: <a rel="nofollow" target="blank" href="https://www.pillowlyrics.com/">https://www.pillowlyrics.com/</a><br />📜 Lyrics: <a rel="nofollow" target="blank" href="https://www.pillowlyrics.com/boys-like-girls-lyrics/">https://www.pillowlyrics.com/boys-like-girls-lyrics/</a><br /><br />Two Is Better Than One - Boys Like Girls (Feat. Taylor Swift) (Lyrics)<br />Lyrics video for &quot;Two Is Better Than One&quot; by Boys Like Girls (Feat. Taylor Swift).<br /><br />✅Click the 🔔 to stay updated on the latest uploads!<br />👍 Thumbs Up if you like this video.<br />❤️Thank you! ❤️<br /><br />You can also find us on:<br />▪️ Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/pillowmusicyt">https://www.facebook.com/pillowmusicyt</a><br />▪️ Instagram -  <a rel="nofollow" target="blank" href="https://www.instagram.com/pillowmusicyt/">https://www.instagram.com/pillowmusicyt/</a><br />▪️ Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/PillowMusic1">https://twitter.com/PillowMusic1</a><br /><br />📜 VISIT OUR OFFICIAL LYRICS WEBSITE: <a rel="nofollow" target="blank" href="https://www.pillowlyrics.com/">https://www.pillowlyrics.com/</a><br />📜 Lyrics: <a rel="nofollow" target="blank" href="https://www.pillowlyrics.com/boys-like-girls-lyrics/">https://www.pillowlyrics.com/boys-like-girls-lyrics/</a><br /><br />I remember what you wore on the first day<br />You came into my life and I thought hey<br />You know, this could be something<br /><br />'Cause everything you do and words you say<br />You know that it all takes my breath away<br />And now I'm left with nothing<br /><br />So maybe it's true that I can't live without you<br />And maybe two is better than one<br />But there's so much time to figure out the rest of my life<br />And you've already got me coming undone<br />And I'm thinking two is better than one<br /><br />- - - - - - - - - - - -<br />📷 Wallpaper: <a rel="nofollow" target="blank" href="https://unsplash.com">https://unsplash.com</a><br />➡️ Images: All the images are copyright free.<br />- - - - - - - - - - - -<br /><br />#TwoIsBetterThanOne #BoysLikeGirls #Lyrics<br />#Pillow #Pillowmusic #DopeLyrics #7Clouds #UniqueVibes #SyrebralVibes #TazNetwork #MrShades #LeaderOfLyrics #SuperbLyrics #Cassiopeia #ShadowMusic #TikTok #SpotifyViral{% endraw %}
