@@ -1,0 +1,15 @@
+---
+title: "Subject Matter Expert – How to Position Yourself as a Subject Matter Expert?!"
+image: "https:\/\/i.ytimg.com\/vi\/rVhT9tUBEt8\/hqdefault.jpg"
+vid_id: "rVhT9tUBEt8"
+categories: "People-Blogs"
+tags: ["subject matter expert","how to position yourself as a subject matter expert","how to position yourself as a subject matter expert in leadership"]
+date: "2022-04-10T16:00:50+03:00"
+vid_date: "2022-04-06T23:09:34Z"
+duration: "PT11M45S"
+viewcount: "182"
+likeCount: "38"
+dislikeCount: ""
+channel: "Chris Igwe"
+---
+{% raw %}Go Here ⇒  <a rel="nofollow" target="blank" href="https://www.igweinternational.com/speaking">https://www.igweinternational.com/speaking</a><br /><br />Subject Matter Expert – How to Position Yourself as a Subject Matter Expert?!<br /><br />My name is Chris Igwe and I am happy to welcome you to another one of our Leadership Training and Leadership Skills video. The topic I want to talk about today is a one you can also consider as a new leadership knowledge in your own leadership journey and it is this: Subject Matter Expert  and How to Position Yourself as a Subject Matter Expert!<br /><br />Have you ever heard of a Subject Matter Expert or a SME? <br /><br />Well initially it started out as being a term utilised in specific areas and you would have to be incredibly good around a particular topic, area, skill, knowledge, insight. It is almost like if you imagine someone doing a PHD/Doctorate in a really focused discipline, area, subject. <br /><br />So that is what a Subject Matter Expert is considered to be in a very broad sense.<br /><br />Now, How to Position Yourself as a Subject Matter Expert? Very often it is categorised in these main areas:<br /><br />Subject Matter Expert who are involved in detailed:<br /><br />o Research<br />o Technology<br />o Science<br />o Mathematics<br />o Finance<br /><br />What about you? Even if you are not a Subject Matter Expert, y what I am trying to say is that you can and should become very narrow and focused in a particular core area of leadership skill, leadership knowledge … so acquiring:<br /><br />• Skills<br />• Knowledge<br />• Research<br />• Analysis<br /><br />I am curious to hear though guys, what are you a Subject Matter Expert in? Or maybe you are not? Comment below.<br /><br />Keep listening to this video to hear so much more of my own leadership knowledge and leadership experience on the Subject Matter Expert topic and get to know more about How to Position Yourself as a Subject Matter Expert!<br /><br />And if this topic has resonated with you, please “like”, “share”, “subscribe” and “comment” on what you have found beneficial.<br /><br />Moreover, if you are serious about becoming a successful leader contact me at: <a rel="nofollow" target="blank" href="https://www.igweinternational.com/speaking">https://www.igweinternational.com/speaking</a><br /><br />To watch this video again, click here: <a rel="nofollow" target="blank" href="https://youtu.be/rVhT9tUBEt8">https://youtu.be/rVhT9tUBEt8</a>{% endraw %}
