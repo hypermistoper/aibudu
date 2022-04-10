@@ -1,0 +1,15 @@
+---
+title: "Ultimate 'Ford Escort' rally car recreation - MST Mk1 driven 50 years after historic RAC rally win"
+image: "https:\/\/i.ytimg.com\/vi\/Hls5JwvdPvI\/hqdefault.jpg"
+vid_id: "Hls5JwvdPvI"
+categories: "Autos-Vehicles"
+tags: ["autocar","ford","escort"]
+date: "2022-04-10T15:55:42+03:00"
+vid_date: "2022-04-07T16:00:06Z"
+duration: "PT12M48S"
+viewcount: "22801"
+likeCount: "813"
+dislikeCount: ""
+channel: "Autocar"
+---
+{% raw %}The MST Mk1 is not, legally or by name at least, a mk1 Ford Escort. But materially and mechanically it's a close match for the formative, 1970s-era, competition-specification version of one of the most famous rally cars there has ever been; and it's both brand new and road-legal. <br /><br />Built by Motorsport Tools of Pwllheli, it's the work of a company that has spent years supporting, repairing and restoring historic mk1 and mk2 Escort rally cars. It exists in order to supply those who want a more habitable and usable, but still authentic-feeling, brand-new-and-yet-still-classic mk1 Escort with a car they can enjoy on the road as often as they like.<br /><br />Built out of a mix of MST's own specially designed chassis and body stampings, and competition-grade axles and driveline components of the sort you'd find on a historic rally car, the MST Mk1 is powered by a 2.0-litre, 260bhp Cosworth 'BDG' racing engine of the same family that powered Ford's 1970s rallying Escorts, which revs beyond 8000rpm and sounds ear-splittingly shrill. Our man Matt Saunders found out exactly that on roads close to the Escort's glory-days forest rally stages in Snowdonia, North Wales. Ear plugs at the ready, folks.<br /><br /><br /><br />New videos are uploaded to Autocar each week. Don't miss a single one. Subscribe now: <a rel="nofollow" target="blank" href="http://smarturl.it/autocar">http://smarturl.it/autocar</a><br /><br /><br /><br />Visit our website at <a rel="nofollow" target="blank" href="http://www.autocar.co.uk">http://www.autocar.co.uk</a> <br /><br /><br /><br />Autocar, the world's leading motoring magazine and website, delivers industry-leading news, the most in-depth car reviews and opinion from our team of experts. Our presenters include some of the world's top motoring journalists who have unrivalled access to the world's fastest, rarest, most exotic and most exciting cars on some of the world's best roads and race tracks.<br /><br /><br /><br />Follow AUTOCAR here: <br /><br />LIKE Autocar on Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/2Jzyvh1">https://bit.ly/2Jzyvh1</a><br /><br />FOLLOW Autocar on Twitter: <a rel="nofollow" target="blank" href="https://bit.ly/2JzABgT">https://bit.ly/2JzABgT</a><br /><br />FOLLOW Autocar on Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/2TIgvFI">https://bit.ly/2TIgvFI</a><br /><br /><br /><br />Check out our full video catalog: <a rel="nofollow" target="blank" href="https://bit.ly/1UfAOCH">https://bit.ly/1UfAOCH</a><br /><br /><br /><br />For car reviews you can trust, subscribe to Autocar:  <a rel="nofollow" target="blank" href="http://smarturl.it/autocar">http://smarturl.it/autocar</a>{% endraw %}
