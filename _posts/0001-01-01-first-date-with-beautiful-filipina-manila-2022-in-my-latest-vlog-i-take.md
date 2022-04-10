@@ -1,0 +1,15 @@
+---
+title: "First Date with Beautiful Filipina 😍 Manila 2022 🇵🇭"
+image: "https:\/\/i.ytimg.com\/vi\/Zq_B0779Myw\/hqdefault.jpg"
+vid_id: "Zq_B0779Myw"
+categories: "People-Blogs"
+tags: ["filipinas","dating a filipina","filipina"]
+date: "2022-04-10T15:14:30+03:00"
+vid_date: "2022-04-10T05:00:10Z"
+duration: "PT9M28S"
+viewcount: "7139"
+likeCount: "545"
+dislikeCount: ""
+channel: "keis one"
+---
+{% raw %}In my latest vlog, I take you on my first date with a Filipina. I have many friends from the Philippines and met many lovely ladies, but never had the pleasure of going on a proper date. This vlog is a fun look at our first date! We had a wonderful night together and will be seeing each other more. I find Filipina girls to be a lot of fun and very beautiful, we enjoy a bit of the Manila nightlife together with dinner and drinks.<br /><br /><br />🔔  SUBSCRIBE &amp; ENABLE 🔔  for &quot;keis one&quot; videos<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/keis_one">https://www.youtube.com/c/keis_one</a><br /><br />My Clothing line!! - <a rel="nofollow" target="blank" href="https://keisone.myspreadshop.com/">https://keisone.myspreadshop.com/</a><br /><br />Travel Insurance - <a rel="nofollow" target="blank" href="https://safetywing.com?referenceID=keisone&amp;utm_source=keisone&amp;utm_medium=Ambassador">https://safetywing.com?referenceID=keisone&amp;utm_source=keisone&amp;utm_medium=Ambassador</a><br /><br />🤫 Join Patreon for exclusive extras! - <a rel="nofollow" target="blank" href="https://www.patreon.com/keis_one">https://www.patreon.com/keis_one</a><br /><br />🍺 Buy me a “coffee” - <a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/keis_one">https://www.buymeacoffee.com/keis_one</a><br /><br />💰 Contribute directly - <a rel="nofollow" target="blank" href="https://www.paypal.me/keis1">https://www.paypal.me/keis1</a> ❤️<br /><br />🎧 Where I get my music - <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referra...">https://www.epidemicsound.com/referra...</a><br /><br />📸 My Gear 💻<br />Vlog Camera - <a rel="nofollow" target="blank" href="https://amzn.to/3D7tgg7">https://amzn.to/3D7tgg7</a><br />Favourite Camera - <a rel="nofollow" target="blank" href="https://amzn.to/3y4Ponr">https://amzn.to/3y4Ponr</a><br />Favourite Lens - <a rel="nofollow" target="blank" href="https://amzn.to/3B81f6n">https://amzn.to/3B81f6n</a><br />External Microphone - <a rel="nofollow" target="blank" href="https://amzn.to/3D6FBkB">https://amzn.to/3D6FBkB</a><br />Mic Adapter for GoPro - <a rel="nofollow" target="blank" href="https://amzn.to/3sGQZ1D">https://amzn.to/3sGQZ1D</a><br />Backup GoPro - <a rel="nofollow" target="blank" href="https://amzn.to/3sEyVoS">https://amzn.to/3sEyVoS</a><br />Drone - <a rel="nofollow" target="blank" href="https://amzn.to/3sBoqCY">https://amzn.to/3sBoqCY</a><br />Computer for editing - <a rel="nofollow" target="blank" href="https://amzn.to/3j8ECsb">https://amzn.to/3j8ECsb</a>{% endraw %}
