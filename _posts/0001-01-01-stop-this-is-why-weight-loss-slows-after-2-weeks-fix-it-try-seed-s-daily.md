@@ -1,0 +1,15 @@
+---
+title: "STOP! This is Why Weight Loss SLOWS After 2 Weeks - FIX IT"
+image: "https:\/\/i.ytimg.com\/vi\/bgpAI8dw0Ss\/hqdefault.jpg"
+vid_id: "bgpAI8dw0Ss"
+categories: "People-Blogs"
+tags: ["why weight loss slows","why weight loss slows down","why does weight loss slow"]
+date: "2022-04-11T00:16:08+03:00"
+vid_date: "2022-04-07T13:03:18Z"
+duration: "PT11M57S"
+viewcount: "67868"
+likeCount: "2605"
+dislikeCount: ""
+channel: "Thomas DeLauer"
+---
+{% raw %}Try SEED's Daily Synbiotic - Use Code 'THOMAS15' for 15% Off: <a rel="nofollow" target="blank" href="http://seed.com/thomasYT">http://seed.com/thomasYT</a><br /><br />Understanding why weight loss slows when dieting is imperative in order to learn how to safely lose weight AND maintain weight loss.<br /><br />This video does contain a paid partnership with a brand that helps to support this channel. It is because of brands like this that we are able to provide the content that we do for free.<br /><br />Please check out the new workout channel, Garage Built Life, here: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCQPQImPsw74KhO0Zy2-leyA/videos">https://www.youtube.com/channel/UCQPQImPsw74KhO0Zy2-leyA/videos</a><br /><br />Please Subscribe to my Email Newsletter Here: <a rel="nofollow" target="blank" href="https://www.thomasdelauer.com/life-optimization-tactics/">https://www.thomasdelauer.com/life-optimization-tactics/</a><br /><br />Follow More of My Daily Life on Instagram: <a rel="nofollow" target="blank" href="http://www.Instagram.com/ThomasDeLauer">http://www.Instagram.com/ThomasDeLauer</a><br /><br />References<br /><br /><a rel="nofollow" target="blank" href="https://journals.physiology.org/doi/abs/10.1152/jappl.1958.12.2.230">https://journals.physiology.org/doi/abs/10.1152/jappl.1958.12.2.230</a><br /><a rel="nofollow" target="blank" href="https://pubmed.ncbi.nlm.nih.gov/23535105/">https://pubmed.ncbi.nlm.nih.gov/23535105/</a><br /><a rel="nofollow" target="blank" href="https://pubmed.ncbi.nlm.nih.gov/27136388/">https://pubmed.ncbi.nlm.nih.gov/27136388/</a><br /><a rel="nofollow" target="blank" href="https://www.nature.com/articles/nature20796">https://www.nature.com/articles/nature20796</a><br /><a rel="nofollow" target="blank" href="https://diabetes.diabetesjournals.org/content/61/11/2734">https://diabetes.diabetesjournals.org/content/61/11/2734</a><br /><a rel="nofollow" target="blank" href="https://pubmed.ncbi.nlm.nih.gov/28108608/">https://pubmed.ncbi.nlm.nih.gov/28108608/</a><br /><a rel="nofollow" target="blank" href="https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC5880583/">https://www.ncbi.nlm.nih.gov/labs/pmc/articles/PMC5880583/</a><br /><br />Timestamps ⏱<br /><br />0:00 - Intro<br />1:03 - Low-Calorie Diets &amp; Metabolic Rate<br />5:12 - Try SEED's Daily Synbiotic - Use Code 'THOMAS15' for 15% Off<br />5:50 - Fasting for Weight Loss &amp; Weight Maintenance <br />8:03 - The Biggest Loser Contestants<br />11:03 - How Fast Does Your Metabolism Slow Down when Dieting?{% endraw %}
