@@ -1,0 +1,15 @@
+---
+title: "TSU SURF ADDRESSES GETTING INTO IT WITH NUJERZEY TWORK BEFORE HIS BATTLE VS SNAKE EYEZ \"WE BROTHERS\""
+image: "https:\/\/i.ytimg.com\/vi\/5IAlb0Q0sJY\/hqdefault.jpg"
+vid_id: "5IAlb0Q0sJY"
+categories: "Entertainment"
+tags: ["ADDRESSES","GETTING","NUJERZEY"]
+date: "2022-04-10T07:38:15+03:00"
+vid_date: "2022-04-09T16:29:59Z"
+duration: "PT9M42S"
+viewcount: "60302"
+likeCount: "1260"
+dislikeCount: ""
+channel: "hiphopisreal.com"
+---
+{% raw %}<a rel="nofollow" target="blank" href="https://www.youtube.com/user/HipHopIsrealuniverse">https://www.youtube.com/user/HipHopIsrealuniverse</a> <br />Tsu Surf after Midnight Madness<br /><br /><br /><br />THE TEAM <br /><br />Follow  C.E.O. OF HHIR Knowledge The God →→→ <a rel="nofollow" target="blank" href="https://twitter.com/9isGOD">https://twitter.com/9isGOD</a><br />                                                                            <a rel="nofollow" target="blank" href="https://www.instagram.com/knowledgethagod/">https://www.instagram.com/knowledgethagod/</a><br /><br />NOO BARZZ →→→ <a rel="nofollow" target="blank" href="https://www.instagram.com/mapboule/">https://www.instagram.com/mapboule/</a><br /><br /><br />E ELITE (HHIR SOUTH) →→→ <a rel="nofollow" target="blank" href="https://www.instagram.com/eelite_919/">https://www.instagram.com/eelite_919/</a><br />                                                       <a rel="nofollow" target="blank" href="https://twitter.com/Eelite9">https://twitter.com/Eelite9</a><br /><br />TR4 HHIR WEST →→→ <a rel="nofollow" target="blank" href="https://twitter.com/tr4_french">https://twitter.com/tr4_french</a><br />                                           <a rel="nofollow" target="blank" href="https://www.instagram.com/tr4_hhir/">https://www.instagram.com/tr4_hhir/</a><br /><br />FLIGHT 96 (HHIR TEXAS) →→→ <a rel="nofollow" target="blank" href="https://www.instagram.com/_flight96/">https://www.instagram.com/_flight96/</a><br />                                                 <a rel="nofollow" target="blank" href="https://www.instagram.com/_flight96/">https://www.instagram.com/_flight96/</a><br /><br />WISE PRODUCTIONS →→→ <a rel="nofollow" target="blank" href="https://www.instagram.com/wisedigga/">https://www.instagram.com/wisedigga/</a><br /><br /><br />FOR ORIGINAL CONTENT DAILY VISIT  →→→  <a rel="nofollow" target="blank" href="http://www.hiphopisreal.com">http://www.hiphopisreal.com</a><br /><br />Key Of Life Production →→→ <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Keyoflifeproduction">https://www.youtube.com/c/Keyoflifeproduction</a><br /><br />Follow us on Caffeine →→→ <a rel="nofollow" target="blank" href="https://www.caffeine.tv/Hiphopisreal">https://www.caffeine.tv/Hiphopisreal</a><br /><br />Follow us on Twitter →→→  <a rel="nofollow" target="blank" href="https://twitter.com/hiphopisrealtv">https://twitter.com/hiphopisrealtv</a><br /><br />Like us on Facebook  →→→ <a rel="nofollow" target="blank" href="https://www.facebook.com/HHIRtv">https://www.facebook.com/HHIRtv</a>{% endraw %}
