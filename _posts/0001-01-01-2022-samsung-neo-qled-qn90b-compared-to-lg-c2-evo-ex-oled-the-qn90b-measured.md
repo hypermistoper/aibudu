@@ -1,0 +1,15 @@
+---
+title: "2022 Samsung Neo QLED QN90B Compared To LG C2 Evo EX OLED"
+image: "https:\/\/i.ytimg.com\/vi\/TuKOh92fUJ4\/hqdefault.jpg"
+vid_id: "TuKOh92fUJ4"
+categories: "Science-Technology"
+tags: ["Samsung","QN90B","Compared"]
+date: "2022-04-11T06:58:07+03:00"
+vid_date: "2022-04-09T13:30:06Z"
+duration: "PT17M2S"
+viewcount: "9730"
+likeCount: "313"
+dislikeCount: ""
+channel: "Keep It Classy Tech"
+---
+{% raw %}The QN90B measured around 1800 nits peak in the shown accurate mode, and up to 3000 in Dynamic (short burst). The LG C2 measures 800 nits peak in the accurate mode shown.<br />Confirmed this C2 is a 2022 EX module panel based on pixel structure and service menu code.<br /><br />If you are interested in supporting the channel, here are some Amazon affiliate links to media streaming devices, TVs, and related products that I recommend. Any purchase made after following one of these links will contribute, thank you for your support. <br /><br />LG C2 77&quot; OLED <a rel="nofollow" target="blank" href="https://amzn.to/3KbR05T">https://amzn.to/3KbR05T</a><br />LG G2 65&quot; OLED <a rel="nofollow" target="blank" href="https://amzn.to/3v28iw2Samsung">https://amzn.to/3v28iw2Samsung</a> QN90B 65&quot; <a rel="nofollow" target="blank" href="https://amzn.to/3DfU1j2">https://amzn.to/3DfU1j2</a><br />Sony A80J 77&quot; OLED <a rel="nofollow" target="blank" href="https://amzn.to/3mVORlm">https://amzn.to/3mVORlm</a><br />Sony A90J 55&quot; OLED <a rel="nofollow" target="blank" href="https://amzn.to/3pHs0LO">https://amzn.to/3pHs0LO</a><br />LG C1 48&quot; OLED <a rel="nofollow" target="blank" href="https://amzn.to/3oDfviJ">https://amzn.to/3oDfviJ</a><br />HDMI 2.1 4k 120Hz 2 Port Switch <a rel="nofollow" target="blank" href="https://amzn.to/3syEKnS">https://amzn.to/3syEKnS</a><br />Cable Matters USB3 to Gigabit Ethernet <a rel="nofollow" target="blank" href="https://amzn.to/3j1cRSn">https://amzn.to/3j1cRSn</a><br />Zeskit Lite HDMI 2.1 Ultra High Speed Cable <a rel="nofollow" target="blank" href="https://amzn.to/2SIPnXB">https://amzn.to/2SIPnXB</a><br />Zeskit 3' HDMI 22Gbps Cinema Cable <a rel="nofollow" target="blank" href="https://amzn.to/3kdmblo">https://amzn.to/3kdmblo</a><br />Apple TV 4k 64GB (2021) <a rel="nofollow" target="blank" href="https://amzn.to/3p31GtI">https://amzn.to/3p31GtI</a><br />Apple TV 4k 32GB (2021) <a rel="nofollow" target="blank" href="https://amzn.to/3uA1nrE">https://amzn.to/3uA1nrE</a><br />Nvidia Shield Pro (2019) <a rel="nofollow" target="blank" href="https://amzn.to/3fA7acj">https://amzn.to/3fA7acj</a><br />Nvidia Shield TV (2019) <a rel="nofollow" target="blank" href="https://amzn.to/3c5uzAe">https://amzn.to/3c5uzAe</a><br />Fire Stick 4k 2021 <a rel="nofollow" target="blank" href="https://amzn.to/3FHoWo6">https://amzn.to/3FHoWo6</a><br />Fire TV Cube 2021 <a rel="nofollow" target="blank" href="https://amzn.to/3oQ7Iyk">https://amzn.to/3oQ7Iyk</a><br />Spears and Munsil UHD <a rel="nofollow" target="blank" href="https://amzn.to/3yYebLV">https://amzn.to/3yYebLV</a>{% endraw %}
