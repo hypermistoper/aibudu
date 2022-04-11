@@ -1,0 +1,15 @@
+---
+title: "The Secret to Being Consistently Profitable"
+image: "https:\/\/i.ytimg.com\/vi\/xIjFxkeb0qo\/hqdefault.jpg"
+vid_id: "xIjFxkeb0qo"
+categories: "Education"
+tags: ["Bitcoin","Market Cipher","Bybit"]
+date: "2022-04-11T11:42:14+03:00"
+vid_date: "2022-04-10T16:26:32Z"
+duration: "PT21M43S"
+viewcount: "2963"
+likeCount: "307"
+dislikeCount: ""
+channel: "Jayson Casper"
+---
+{% raw %}💎25% Off Beginner Trading Course! 💎<br /><a rel="nofollow" target="blank" href="https://jaysoncaspertrading.com/">https://jaysoncaspertrading.com/</a><br />25% OFF coupon: JuicyDiscount<br /><br />💎Advanced Trading Course - Exocharts Orderflow Market Profile💎<br /><a rel="nofollow" target="blank" href="https://learn.jaysoncaspertrading.com/courses/advanced-technical-analysis-footprint-market-profile/preview">https://learn.jaysoncaspertrading.com/courses/advanced-technical-analysis-footprint-market-profile/preview</a><br /><br />💎Join my VIP Patreon💎<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/jaysoncasper">https://www.patreon.com/jaysoncasper</a><br /><br />💎Trade on ByBit 💎<br /><a rel="nofollow" target="blank" href="https://partner.bybit.com/b/jaycasper">https://partner.bybit.com/b/jaycasper</a><br /><br />💎Start Trading on PHEMEX💎<br /><a rel="nofollow" target="blank" href="https://phemex.com/register?referralCode=EFU2T">https://phemex.com/register?referralCode=EFU2T</a><br /><br />💎Start Trading With Market Cipher 💎<br /><a rel="nofollow" target="blank" href="https://marketciphertrading.com/?ref=3787">https://marketciphertrading.com/?ref=3787</a><br /><br />💎Follow me on TikTok 💎<br /><a rel="nofollow" target="blank" href="https://vm.tiktok.com/ZMdvQxsVx/">https://vm.tiktok.com/ZMdvQxsVx/</a><br /><br />💎Follow me on Twitter💎<br /><a rel="nofollow" target="blank" href="https://twitter.com/jayson_casper">https://twitter.com/jayson_casper</a><br /><br />💎Join my Free Discord💎<br /><a rel="nofollow" target="blank" href="https://discord.gg/f56dKQJ3Zj">https://discord.gg/f56dKQJ3Zj</a><br /><br />#scalping #bitcoinprice #cryptonews<br /><br />*************************<br />DISCLAIMER:   All of the content available through this channel is for educational purposes only.  This is not financial advice and Jayson Casper is not liable for the outcomes of your investments or trades.  Make sure you understand the risks involved in trading and investing by consulting a professional financial adviser, accountant or tax professional, and/or lawyer.  <br /><br />Jayson Casper and employees or representatives will NEVER manage or offer to manage a customer or individual's binary options, options, stocks, cryptocurrencies, currencies, futures, forex, or any financial markets or securities account.  If someone claiming to represent or be associated with Jayson Casper solicits you for money or offers to manage your trading account, do not provide any personal information and contact us immediately. I DO NOT HAVE A TELEGRAM OR WHATS APP ACCOUNT - BEWARE OF SCAMMERS!{% endraw %}
