@@ -1,0 +1,15 @@
+---
+title: "Halsey - Could Have Been Me (Sing 2) (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/J2rHco9Ju9k\/hqdefault.jpg"
+vid_id: "J2rHco9Ju9k"
+categories: "Music"
+tags: ["could have been me","could have been me sing 2","sing 2 songs"]
+date: "2022-04-11T21:33:04+03:00"
+vid_date: "2022-02-09T13:39:54Z"
+duration: "PT2M28S"
+viewcount: "1198177"
+likeCount: "18832"
+dislikeCount: ""
+channel: "Cakes & Eclairs"
+---
+{% raw %}Halsey - Could Have Been Me (Sing 2) (Lyrics)<br />🎵 Follow Cakes &amp; Eclairs on Spotify: <a rel="nofollow" target="blank" href="http://bit.ly/CakesEclairs">http://bit.ly/CakesEclairs</a><br />Stream Could Have Been Me Halsey : <a rel="nofollow" target="blank" href="https://sing2.lnk.to/soundtrack">https://sing2.lnk.to/soundtrack</a><br /><br />🔔 Don't forget to subscribe and turn on notifications!<br /><br />Follow Halsey<br /><a rel="nofollow" target="blank" href="http://instagram.com/iamhalsey">http://instagram.com/iamhalsey</a><br /><a rel="nofollow" target="blank" href="http://twitter.com/halsey">http://twitter.com/halsey</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/HalseyMusic">https://www.facebook.com/HalseyMusic</a><br /><br /><br />Could Have Been Me Lyrics<br />[Verse 1]<br />Don't wanna live as an untold story<br />Rather go out in a blaze of glory<br />I can't hear you, I don't fear you<br />I live now 'cause the bad die last<br />Dodgin' bullets with your broken past<br />Well, I can't hear you, I don't fear you now<br /><br />[Pre-Chorus]<br />Wrapped in your regret<br />What a waste of blood and sweat, oh-oh, oh<br /><br />[Chorus]<br />I wanna taste love and pain<br />I wanna feel pride and shame<br />I don't wanna take my time<br />I don't wanna waste one line<br />I wanna live better days<br />Never look back and say<br />&quot;It could have been me, it could have been me&quot;<br />Yeah!<br /><br />[Verse 2]<br />Don't wanna wake up on a Monday morning<br />The thought of work is gettin' my skin crawling<br />I can't fear you, I don't hear you now<br />Wrapped in your regret<br /><br />[Pre-Chorus]<br />Wrapped in your regret<br />What a waste of blood and sweat, oh-oh, oh<br /><br />[Chorus]<br />I wanna taste love (I wanna taste love)<br />I wanna feel pride and shame<br />I don't wanna take my time (No, oh, oh)<br />I don't wanna waste one night (Hey-hey, hey-hey)<br />I wanna live better days (Better days)<br />Never look back and say<br />&quot;It could have been me&quot; (It could have been me), &quot;it could have been me&quot; (It could have been me)<br />I wanna taste love (I wanna taste love and pain)<br />I wanna feel pride and shame (I wanna feel pride and shame)<br />I don't wanna waste my time (I don't wanna waste my time)<br />I don't wanna waste one night (I don't wanna waste one night)<br />I wanna live better days<br />Never look back and say<br />&quot;It could have been me&quot;, oh, it could have been me&quot;<br />It could have been me!<br /><br />#couldhavebeenme #sing2 #halsey{% endraw %}
