@@ -1,0 +1,15 @@
+---
+title: "A brilliant and sophisticated MOSSAD agent gave the Kurdish militia to devastate iraqi army"
+image: "https:\/\/i.ytimg.com\/vi\/8GIYPpkTINc\/hqdefault.jpg"
+vid_id: "8GIYPpkTINc"
+categories: "People-Blogs"
+tags: ["אורי מילשטיין","צורי שגיא-שנקין","המרד הכורדי בעיראק"]
+date: "2022-04-11T21:27:49+03:00"
+vid_date: "2021-06-29T13:56:15Z"
+duration: "PT29M46S"
+viewcount: "4163"
+likeCount: "164"
+dislikeCount: ""
+channel: "אורי מילשטיין"
+---
+{% raw %}A conversation between me and retired Israeli Brigadier General Zuri Sagi-Sheinkin, a veteran paratrooper. In the 1970s, Kurdish leaders in Iraq were desperate. He was sent to Kurdistan to learn the data, and encouraged Kurdish leader Mullah Mustafa Barzani. He planned a military move by which the Kurdish militia, under Barzani's command, destroyed an entire Iraqi division. The Kurds won the war. Doubt was a commander not only in Israel but also all over the world who could attribute such an achievement to himself.<br /><br /> Zuri Sagi's descriptions are clarified through the security theory that I developed and published in my books - &quot;General Security Theory - The Principle of Survival&quot; and &quot;The Flywheel of History&quot;. Those interested in purchasing the books should contact Survival Publishing: survival1940@gmail.com<br /><br />Please help me maintain this channel, and complete the monumental enterprise of the thirty volumes &quot;On the Battlefields of the War of Independence.&quot; Any help, even the smallest, would be appreciated. The main thing is that we, our sons, grandsons and descendants know the truth about how the State of Israel was established and how it won the War of Independence.<br /><br /><br />חלק ראשון בשיחה שניה לעומק ביני ובין תת-אלוף בדימוס צורי שגיא-שינקין, מוותיקי הצנחנים בתחילת שנות החמישים של המאה העשרים שחוללו מהפכה טקטית בצה&quot;ל, ובשנות השישים תכנן את מיגון אזור הנפט העשיר חוזיסטן באירן. בשיחה זאת מסביר צורי איך תכנן ואיך הורה למפקדים הכורדים, ברזני ובניו המיואשים, לפעול כך שהמיליציה שלהם השמידה דיביזיה (אוגדה) עירקית. ספק אם יש מפקד לא רק בארץ אלא גם בעולם שיכול לזקוף לזכותו הֶשֵׂג כזה. ואכן צורי נחשב בכורדיסטן לגיבור לאומי. חומר למחשבה: מדוע השתחרר צורי מצה&quot;ל בדרגת תת-אלוף ולא כרב-אלוף, כפי שהיה ראוי על פי כישוריו והֶשגיו מיום גיוסו ב-1952 ועד שחרורו ב-1984. עובדה זאת מחייבת להטיל ספק בתהליך המינויים והקידום בצה&quot;ל כאשר מפקדים כושלים כדוד אלעזר הם רמטכ&quot;לים וכשמואל גורודיש הם אלופים ומפקדי חזיתות.<br /> תיאוריו של  צורי שגיא מתבהרים באמצעות תורת הביטחון שפיתחתי וניסחתי בספרַי – &quot;תורת הביטחון הכללית - עקרון השׂרידוּת&quot; ו&quot;גלגל המנוף של ההיסטוריה&quot;. כל מי שמעוניין לרכוש את הספרים, יפנה להוצאת שׂרידוּת:  survival1940@gmail.com<br />אנא עִזרו לי לקיים את הערוץ הזה, ולהשלים את המפעל המונומנטלי של שלושים הכרכים &quot;בשדות הקרב של מלחמת העצמאות&quot;. כל עזרה, גם הקטנה ביותר, תתקבל בברכה. העיקר שאנחנו, בנינו, נכדינו וצאצאינו יֵדעו את האמת איך קמה מדינת ישראל ואיך היא ניצחה במלחמת העצמאות.<br /> <a rel="nofollow" target="blank" href="https://www.patreon.com/MilsteinUri?fan_landing=true">https://www.patreon.com/MilsteinUri?fan_landing=true</a>{% endraw %}
