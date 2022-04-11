@@ -1,0 +1,15 @@
+---
+title: "What Is Safety || Why Safety Is Important || Who Is Responsible For Safety || HSE STUDY GUIDE"
+image: "https:\/\/i.ytimg.com\/vi\/hwmO9twM2wI\/hqdefault.jpg"
+vid_id: "hwmO9twM2wI"
+categories: "Education"
+tags: ["what is safety","safety","definition of safety in workplace"]
+date: "2022-04-12T01:08:25+03:00"
+vid_date: "2021-01-30T14:25:42Z"
+duration: "PT2M2S"
+viewcount: "23404"
+likeCount: "540"
+dislikeCount: ""
+channel: "HSE STUDY GUIDE"
+---
+{% raw %}This video is about What Is Safety | Why Safety Is Important | Who Is Responsible For Safety | HSE STUDY GUIDE<br /><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UClm1toQ4Udx6CmBeowrW4YQ/join">https://www.youtube.com/channel/UClm1toQ4Udx6CmBeowrW4YQ/join</a><br /><br />Don't Forget to Subscribe &amp; Follow me on the below links -<br />Instagram / Facebook Page / Facebook Group<br /><br />👉MY INSTAGRAM PROFILE:- <a rel="nofollow" target="blank" href="https://www.instagram.com/hsestudyguide/">https://www.instagram.com/hsestudyguide/</a><br /><br />👉MY FACEBOOK PAGE:- <a rel="nofollow" target="blank" href="https://www.facebook.com/hsestudyguide">https://www.facebook.com/hsestudyguide</a><br /><br />👉My FACEBOOK GROUP:-<a rel="nofollow" target="blank" href="https://www.facebook.com/groups/746158142543151">https://www.facebook.com/groups/746158142543151</a><br /><br />Like | Share | Subscribe<br /><br />#hsestudyguide<br />#whatissafety<br />#whysafetyisimportant<br />#whoisresponsibleforsafety<br /><br />-~-~~-~~~-~~-~-<br />Don't Forget to Subscribe &amp; Follow me on below links -<br />Instagram / Website / Facebook Page / Facebook Group<br /><br />👉MY INSTAGRAM PROFILE :- <a rel="nofollow" target="blank" href="https://www.instagram.com/hsestudyguide/">https://www.instagram.com/hsestudyguide/</a><br /><br />👉OFFICIAL WEBSITE :- <a rel="nofollow" target="blank" href="https://www.hsestudyguide.com/">https://www.hsestudyguide.com/</a><br /><br />👉MY FACEBOOK PAGE :- <a rel="nofollow" target="blank" href="https://www.facebook.com/hsestudyguide">https://www.facebook.com/hsestudyguide</a><br /><br />👉My FACEBOOK GROUP :-<a rel="nofollow" target="blank" href="https://www.facebook.com/groups/746158142543151">https://www.facebook.com/groups/746158142543151</a><br /><br />-~-~~-~~~-~~-~-<br /><br />FAIR-USE COPYRIGHT DISCLAIMER <br /><br />* Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favour of fair use. <br /><br />I only used bits and pieces from various sources for getting point across where necessary. the sole purpose of this video is to inspire &amp; empower the viewers.<br /><br />Note : This video is for educational purpose only.<br /><br />-~-~~-~~~-~~-~-<br /><br />Thanks &amp; Regards,<br />HSE STUDY GUIDE<br />-~-~~-~~~-~~-~-{% endraw %}
