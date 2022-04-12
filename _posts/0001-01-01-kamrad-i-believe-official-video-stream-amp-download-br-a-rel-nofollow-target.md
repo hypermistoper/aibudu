@@ -1,0 +1,15 @@
+---
+title: "KAMRAD - I Believe (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/-kCxFFACZxY\/hqdefault.jpg"
+vid_id: "-kCxFFACZxY"
+categories: "Music"
+tags: ["I Believe","Tim Kamrad","Kamrad"]
+date: "2022-04-12T14:38:29+03:00"
+vid_date: "2022-01-07T15:00:12Z"
+duration: "PT2M32S"
+viewcount: "505936"
+likeCount: "7806"
+dislikeCount: ""
+channel: "KAMRAD"
+---
+{% raw %}STREAM &amp; DOWNLOAD:<br /><a rel="nofollow" target="blank" href="https://orcd.co/kamrad_i_believe">https://orcd.co/kamrad_i_believe</a><br /><br />FOLLOW ME:<br /><a rel="nofollow" target="blank" href="http://www.instagram.com/TimKamrad">http://www.instagram.com/TimKamrad</a><br /><a rel="nofollow" target="blank" href="https://vm.tiktok.com/ZM8wBKu2N/">https://vm.tiktok.com/ZM8wBKu2N/</a><br /><a rel="nofollow" target="blank" href="https://spoti.fi/2PDcOL0">https://spoti.fi/2PDcOL0</a><br /><br />CREDITS:<br />Camera &amp; Producton: Dustin Janczewski<br />AC: Martin Dreßler<br />Date: Cedric &amp; Raphaela<br />Sleepover: Otti, Paula, Tita, Tom, Tom, Yara<br />Barkeeper: Martin<br />Partypeople: Caro, Caspar, Erc, Jonas, Leandra, Ronja<br />Special Thanks to Bochumer Bowlingtreff, Mischka &amp; Schumacher<br /><br />LYRICS:<br />Blow my mind, blow my mind, blow my mind now<br />Take me high, take me high, spin me right round<br />Don‘t know why, don‘t know why, it‘s burning me out<br />I won‘t get it right<br />Stay at home all night<br /><br />Out of sight, out of sight, I’m hidin right now<br />You’re dynamite, dynamite, yeah I got no doubt<br />Way too tight, way too tight, I need a time-out<br />I can‘t get it right<br />Stay at home all night<br /><br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />That someone in my bed is not enough<br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />It‘s only in my head yeah<br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />That someone in my bed is not enough<br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />It‘s only in my head yeah<br /><br />Blow my mind, blow my mind, blow my mind now<br />Every night, every night, I‘m on my way down<br />You’re so high, you’re so high, my feet on the ground<br />I can‘t get it right<br />All alone tonight<br /><br />It‘s been too long<br />I‘m out of time<br />I‘ll leave you high and dry<br />It feels so wrong<br />You felt so right<br />Fell out of love tonight<br /><br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />It‘s only in my head yeah<br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />That someone in my bed is not enough<br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />It‘s only in my head yeah<br /><br />Badadam ah<br />Badadam, badadam<br />Badadam ah<br />Badadam, badadam<br />Badadam ah<br />Badadam, badadam<br />Badadam ah<br />Badadam, badadam<br /><br />I believe<br />I‘d rather fall asleep than fall in love<br />I believe<br />That someone in my bed is not enough{% endraw %}
