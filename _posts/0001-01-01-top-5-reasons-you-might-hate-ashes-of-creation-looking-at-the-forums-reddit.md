@@ -1,0 +1,15 @@
+---
+title: "TOP 5 Reasons You Might HATE Ashes of Creation"
+image: "https:\/\/i.ytimg.com\/vi\/-jYAcHlTFxQ\/hqdefault.jpg"
+vid_id: "-jYAcHlTFxQ"
+categories: "Gaming"
+tags: ["Ashes of Creation","Intrepid Studios","MMO"]
+date: "2022-04-12T05:49:07+03:00"
+vid_date: "2022-04-11T15:00:01Z"
+duration: "PT11M7S"
+viewcount: "3164"
+likeCount: "121"
+dislikeCount: ""
+channel: "Vlhadus Gaming"
+---
+{% raw %}Looking at the forums, reddit, discord and my own friend's perspective on Ashes of Creation. These were my TOP 5 reasons why you might HATE Ashes of Creation. Note that some of these reasons, I actually don't mind but some I really do! Thank you so much to whoever watched my previous video, that was the biggest viewed video on my channel so far and it really means so much! Thanks to all my subscribers and new ones as well! If you like the video, then HIT THAT LIKE BUTTON, SHARE IT with your friends! Also, let me know in the comments if you like this kind of content in general. Subscribe to this channel and thanks for watching! And I'll see you… in the next one! <br /><br />Also USE MY REFERRAL LINK to sign up with Ashes of Creation!!!: <a rel="nofollow" target="blank" href="https://ashesofcreation.com/r/XQ5THYE55PVXQWNE">https://ashesofcreation.com/r/XQ5THYE55PVXQWNE</a> <br /><br />Follow me on all my Social Media: <br /><br />YouTube: youtube.com/vlhadusgaming<br />Twitter: www.twitter.com/vlhadus <br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@vlhadusgaming">https://www.tiktok.com/@vlhadusgaming</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Vlhadus-Gaming-106727555212795">https://www.facebook.com/Vlhadus-Gaming-106727555212795</a><br />-----------------------------------------------------------------------------------------------------------------------<br />What is Ashes of Creation?<br /><br />Ashes of Creation is a unique take on the MMO experience. Our world structure is dynamic and built to react to the actions of our players. Cities will rise and fall, their populations based on the history of the world as the players create it. Quests will unlock as these populations gather, their needs grow, and secrets are unlocked. As the world’s NPC structure is established in real time, players will have the ability to destroy what they’ve created, paving the way for new development, new populations, and real change. Political strife and intrigue will play a very real role in the structure of your world. Gone are the days of static worlds, change is here to stay.<br />-----------------------------------------------------------------------------------------------------------------------<br />Chapters:<br />0:00 Intro<br />0:26 Reason #5 No PvE Servers/Can't Toggle PvP Off<br />3:24 Reason #4 Time Sinks<br />5:25 Reason #3 Exclusivity<br />7:05 Reason #2 Consequences of Dying<br />9:03 Reason #1 ???<br />-----------------------------------------------------------------------------------------------------------------------<br />#AshesofCreation #Top5 #VlhadusGaming{% endraw %}
