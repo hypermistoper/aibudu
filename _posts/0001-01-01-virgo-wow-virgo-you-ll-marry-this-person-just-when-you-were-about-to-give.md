@@ -1,0 +1,15 @@
+---
+title: "Virgo💗Wow Virgo! 💥You'll Marry This Person💥 Just When You Were About To Give Up on Love💗Love Reading"
+image: "https:\/\/i.ytimg.com\/vi\/e6AUk6Xd8Q8\/hqdefault.jpg"
+vid_id: "e6AUk6Xd8Q8"
+categories: "Entertainment"
+tags: ["virgo","virgo love tarot","tarot"]
+date: "2022-04-13T02:40:16+03:00"
+vid_date: "2022-04-12T14:25:58Z"
+duration: "PT18M45S"
+viewcount: "5182"
+likeCount: "649"
+dislikeCount: ""
+channel: "Siriana Tarot"
+---
+{% raw %}#virgo #virgotarot #virgolove #love #lovereading<br /><br />This is a love reading (energy check-in) for Virgo.<br /><br />COME VISIT ME FOR ADDITIONAL CONTENT ON:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/sirianatarot/">https://www.instagram.com/sirianatarot/</a><br />TikTok: @ sirianatarot  <a rel="nofollow" target="blank" href="https://vm.tiktok.com/ZMRFa1aCF/">https://vm.tiktok.com/ZMRFa1aCF/</a><br /><br />🤍🙏Ways to support this channel:<br /><br />❤Donate: <br />Paypal: <a rel="nofollow" target="blank" href="https://www.paypal.me/sirianatarot">https://www.paypal.me/sirianatarot</a><br />Cashapp: $Sirianatarot<br />Venmo: Venmo Siriana Tarot @SirianaTarot <br /><br />❤❤Book A Private Reading: <br />Visit my Etsy Shop for different options for tarot spreads and price points: <a rel="nofollow" target="blank" href="https://www.etsy.com/shop/SirianaTarot">https://www.etsy.com/shop/SirianaTarot</a> <br /><br />**you can also book a private reading by sending me an email at sirianatarot@gmail.com along with payment confirmation via PayPal/Cashapp/Venmo (I charge $66.66 for a detailed private reading)<br /><br />❤❤❤Do you like one of the tarot decks used in the reading? Would be interested in purchasing it for yourself? If so, please click on the link(s) below (in order of appearance):<br /><br />The Flesh Tarot by Cherry Enchantress (Pixie Dust Tarot on YT)<br />The Zerner-Farber Tarot: n/a<br />Messages of Love: Etsy<br />The Hidden Truth V1 &amp; 2: Etsy<br />Romance Angels: <a rel="nofollow" target="blank" href="https://amzn.to/3rdRHUW">https://amzn.to/3rdRHUW</a><br /><br />❤❤❤❤Check out my Wish List: <a rel="nofollow" target="blank" href="https://www.amazon.com/hz/wishlist/ls/D9UG5OEER19N?ref_=wl_share">https://www.amazon.com/hz/wishlist/ls/D9UG5OEER19N?ref_=wl_share</a><br /><br />If you have any questions or just want to send me a love note, contact me at sirianatarot@gmail.com<br /><br />Tarot is a beautiful way to bring awareness and understanding to your life. I hope that Siriana Tarot brings you clarity, insight, happiness, wonder, love and light.🤍🤍<br /><br />All content on Siriana Tarot is for entertainment purposes only and is not suitable replacement for professional medical, legal, financial and/or mental health advice. Please consult a licensed professional for advice regarding the said matters.  No responsibility will be taken for actions that result from listening or viewing Siriana Tarot content. You must be over 18 years old to book a private reading.{% endraw %}
