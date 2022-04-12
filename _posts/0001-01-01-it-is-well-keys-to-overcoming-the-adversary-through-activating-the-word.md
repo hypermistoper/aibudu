@@ -1,0 +1,15 @@
+---
+title: "IT IS WELL - KEYS TO OVERCOMING THE ADVERSARY THROUGH ACTIVATING THE WORD OF GOD"
+image: "https:\/\/i.ytimg.com\/vi\/k00iYOVBCFI\/hqdefault.jpg"
+vid_id: "k00iYOVBCFI"
+categories: "Nonprofits-Activism"
+tags: ["Archbishop Duncan-Williams","Papa","Prayers"]
+date: "2022-04-12T11:50:15+03:00"
+vid_date: "2022-03-27T19:23:34Z"
+duration: "PT1H36M17S"
+viewcount: "29766"
+likeCount: "646"
+dislikeCount: ""
+channel: "Archbishop Nicholas Duncan-Williams"
+---
+{% raw %}Life’s pressures can cause us to react contrary to the Word of God. By having a deeper understanding of the legalities for deploying God, we can activate the delivering power of God Promises to overcome our greatest challenges. <br /><br />You can be equipped and trained as an intercessors to deal with every adversary by joining the 1 Million Strong Global Prayer Community! Sign up now at <a rel="nofollow" target="blank" href="https://ndwministries.org/onemillionstrong/">https://ndwministries.org/onemillionstrong/</a><br /><br />This week the Archbishop equips us with how to engage God in times of need through prayer and by immovable belief and faith in God’s Word to declare - It Is Well.<br />_________________________________________________________________________________________________<br />**MUST WATCH** YOUR MIRACLE IS WITHIN YOUR REACH; DO NOT GIVE UP. <a rel="nofollow" target="blank" href="https://youtu.be/gkqsNb194DY">https://youtu.be/gkqsNb194DY</a><br /><br />EMPOWERING YOUR WARFARE BY REHEARSING GOD'S PROMISES <a rel="nofollow" target="blank" href="https://youtu.be/NPtN54-IH5o">https://youtu.be/NPtN54-IH5o</a><br /><br />FIGHTING AGAINST DESTINY OPPOSERS <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=lzNjSrKc5nY">https://www.youtube.com/watch?v=lzNjSrKc5nY</a><br /><br />PRAY OR DIE! DEALING WITH HOUSEHOLD WICKEDNESS <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=8M4Lv0O0j2s">https://www.youtube.com/watch?v=8M4Lv0O0j2s</a><br />_________________________________________________________________________________________________<br /><br />To give, please visit: <a rel="nofollow" target="blank" href="https://www.ndwministries.org/give/">https://www.ndwministries.org/give/</a> <br /><br />Follow Archbishop Nicholas Duncan-Williams on social <br /><br />Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/3kTZZMb">https://bit.ly/3kTZZMb</a>  <br />Twitter: <a rel="nofollow" target="blank" href="https://bit.ly/34RkmnV">https://bit.ly/34RkmnV</a>  <br />Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/3eoo2ke">https://bit.ly/3eoo2ke</a> <br /><br />Join us for service online every Sunday @  7AM  | 10AM  <br /><br />Wednesday Midweek Service: 7pm  <br />Thursday Dominion Hour: 10am  <br />Friday Prayer Encounter: 7pm  <br />Prayer Meetings: Mon-Fri - 5:30am | 12noon  <br /><br />37 Spintex Rd. Accra, Ghana  <br />+233 262626 906  <br />exec@ndwministries.org<br />www.ndwministries.org<br /><br />#ArchbishopNick #LetGodArise{% endraw %}
