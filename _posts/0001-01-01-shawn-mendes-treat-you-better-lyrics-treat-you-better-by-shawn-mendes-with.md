@@ -1,0 +1,15 @@
+---
+title: "Shawn Mendes - Treat You Better (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/s2dPIC2Uhn4\/hqdefault.jpg"
+vid_id: "s2dPIC2Uhn4"
+categories: "Music"
+tags: ["treat you better","treat you better shawn mendes"]
+date: "2022-04-13T11:56:38+03:00"
+vid_date: "2022-04-12T10:58:46Z"
+duration: "PT3M7S"
+viewcount: "30126"
+likeCount: "899"
+dislikeCount: ""
+channel: "Cakes & Eclairs"
+---
+{% raw %}Treat You Better by Shawn Mendes with lyrics.<br />🎵 Follow Cakes &amp; Eclairs on Spotify: <a rel="nofollow" target="blank" href="http://bit.ly/CakesEclairs">http://bit.ly/CakesEclairs</a><br />🔔 Don't forget to subscribe and turn on notifications!<br /><br />Stream Treat You Better Shawn Mendes : <a rel="nofollow" target="blank" href="http://smarturl.it/TreatYouBetter">http://smarturl.it/TreatYouBetter</a><br /><br />Follow Shawn Mendes<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/shawnmendes">https://www.instagram.com/shawnmendes</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/ShawnMendes">https://twitter.com/ShawnMendes</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/ShawnMendesOfficial">https://www.facebook.com/ShawnMendesOfficial</a><br /><br /><br />Treat You Better Lyrics<br />[Verse 1]<br />I won't lie to you<br />I know he's just not right for you<br />And you can tell me if I'm off<br />But I see it on your face<br />When you say that he's the one that you want<br />And you're spending all your time<br />In this wrong situation<br />And anytime you want it to stop<br /><br />[Chorus]<br />I know I can treat you better than he can<br />And any girl like you deserves a gentleman<br />Tell me why are we wasting time<br />On all your wasted crying<br />When you should be with me instead<br />I know I can treat you better<br />Better than he can<br /><br />[Verse 2]<br />I'll stop time for you<br />The second you say you'd like me too<br />I just wanna give you the loving that you're missing<br />Baby, just to wake up with you<br />Would be everything I need and this could be so different<br />Tell me what you want to do<br /><br />[Chorus]<br />'Cause I know I can treat you better than he can<br />And any girl like you deserves a gentleman<br />Tell me why are we wasting time<br />On all your wasted crying<br />When you should be with me instead<br />I know I can treat you better<br />Better than he can<br />Better than he can<br /><br />[Bridge]<br />Give me a sign<br />Take my hand, we'll be fine<br />Promise I won't let you down<br />Just know that you don't<br />Have to do this alone<br />Promise I'll never let you down<br /><br />[Chorus]<br />'Cause I know I can treat you better than he can<br />And any girl like you deserves a gentleman<br />Tell me why are we wasting time<br />On all your wasted crying<br />When you should be with me instead<br />I know I can treat you better<br />Better than he can<br />Better than he can<br />Better than he can<br /><br />#treatyoubetter #shawnmendes #lyrics{% endraw %}
