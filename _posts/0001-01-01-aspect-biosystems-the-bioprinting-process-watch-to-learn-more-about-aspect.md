@@ -1,0 +1,15 @@
+---
+title: "Aspect Biosystems: The Bioprinting Process"
+image: "https:\/\/i.ytimg.com\/vi\/BDdMxjq_M4g\/hqdefault.jpg"
+vid_id: "BDdMxjq_M4g"
+categories: "Science-Technology"
+tags: ["bioprinting","3d printing","biotech"]
+date: "2022-04-14T00:55:40+03:00"
+vid_date: "2016-10-11T17:26:56Z"
+duration: "PT2M10S"
+viewcount: "55438"
+likeCount: "537"
+dislikeCount: ""
+channel: "Aspect Biosystems"
+---
+{% raw %}Watch to learn more about Aspect Biosystems' bioprinting process and unique Lab-on-a-Printer™ microfluidic technology.<br /><br />Aspect Biosystems is a Canadian biotechnology company building living 3D tissue solutions for the life-science industry. <br /><br />Aspect’s proprietary Lab-on-a-Printer™ platform is one of the most advanced tissue engineering technologies in the world, capable of rapidly 3D-printing human cells with biological scaffolds to generate complex living tissues. <br /><br />Developing a useful 3D tissue begins with defining how the tissue should function, then conceptualising how to construct the tissue to display the desired functions. Generating a biologically-relevant 3D structure is essential to recreating lifelike function.<br /><br />Once the tissue structure is defined, the 3D bioprinting protocol is designed to enable the rapid and accurate fabrication of the living tissue. <br /><br />Aspect’s unique Lab-on-a-Printer™ microfluidic technology enables switching between different cell types and scaffold components on-the-fly. The living fibers we generate are deposited layer-by-layer to rapidly and accurately build heterogeneous tissues with well-defined regions.<br /><br />In order to recreate biological function, the bioprinted structure has to be grown for several days in specialised culture conditions. During this maturation process the printed cells form interconnected networks, resulting in a life-like 3D tissue.<br /><br />The tissues we build have highly physiological functions, here is a 3DBioRing™ made of airway smooth muscle cells, contracting in response to histamine, and relaxing to response to salbutamol – recreating an asthma attack in a dish.<br /><br />The highly skilled team of engineers and biologists at Aspect Biosystems are enabling the production of customised tissues on demand for disease research, regenerative medicine, and drug development. <br /><br />Aspect Biosystems – Human Tissues on Demand™.<br /><br />Contact us to learn more about accessing our unique bioprinting technology.<br /><br />Website: <a rel="nofollow" target="blank" href="http://aspectbiosystems.com">http://aspectbiosystems.com</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/aspectbiosys">http://www.twitter.com/aspectbiosys</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/aspectbiosystems">http://www.facebook.com/aspectbiosystems</a><br />LinkedIn: <a rel="nofollow" target="blank" href="http://www.linkedin.com/company/aspect-biosystems">http://www.linkedin.com/company/aspect-biosystems</a>{% endraw %}
