@@ -1,0 +1,15 @@
+---
+title: "Boris Fined... But Refuses to Resign - TLDR News"
+image: "https:\/\/i.ytimg.com\/vi\/Z-VYJOj2Rn8\/hqdefault.jpg"
+vid_id: "Z-VYJOj2Rn8"
+categories: "News-Politics"
+tags: ["Boris","Fined...","Refuses"]
+date: "2022-04-13T14:29:11+03:00"
+vid_date: "2022-04-13T10:01:42Z"
+duration: "PT11M28S"
+viewcount: "12525"
+likeCount: "866"
+dislikeCount: ""
+channel: "TLDR News"
+---
+{% raw %}Sign up for a CuriosityStream subscription and also get a FREE Nebula subscription (the streaming platform built by creators): <a rel="nofollow" target="blank" href="http://CuriosityStream.com/TLDRuk">http://CuriosityStream.com/TLDRuk</a><br /><br />Daily Briefing YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/tldrdaily">https://www.youtube.com/tldrdaily</a><br />Daily Briefing Podcast: <a rel="nofollow" target="blank" href="https://art19.com/shows/the-daily-briefing">https://art19.com/shows/the-daily-briefing</a><br /><br />Yesterday the MET Police handed down a fine to Boris Johnson for breaking COVID rules, making him the first PM to commit an official crime in British history. However, Johnson says he won' resign... and to be fair, he might not have to.<br /><br />Follow TLDR on Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/tldrnewsuk">http://www.facebook.com/tldrnewsuk</a><br />Follow TLDR on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/tldrnewsuk">https://twitter.com/tldrnewsuk</a><br />Follow TLDR on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/tldrnewsuk">http://www.instagram.com/tldrnewsuk</a><br />Discord: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/discord/">https://tldrnews.co.uk/discord/</a><br /><br />SUBMIT YOUR VIDEO IDEAS: <a rel="nofollow" target="blank" href="https://forms.gle/pPY3HQ6ZtfsSbwTBA">https://forms.gle/pPY3HQ6ZtfsSbwTBA</a><br /><br />TLDR Store: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/store">https://tldrnews.co.uk/store</a><br />TLDR TeeSpring Store: <a rel="nofollow" target="blank" href="https://teespring.com/stores/tldr-summer-2020">https://teespring.com/stores/tldr-summer-2020</a><br />Support TLDR on Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/tldrnews">http://www.patreon.com/tldrnews</a><br />Donate by PayPal: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/funding">https://tldrnews.co.uk/funding</a><br /><br />TLDR is all about getting you up to date with the news of today, without bias and without filter. We want to give you the information you need, so you can make your own decision.<br /><br />TLDR is a super small company, run by a few people with the help of some amazing volunteers. We are primarily fan sourced with most of our funding coming from donations and ad revenue. No shady corporations, no one telling us what to say. We can't wait to grow further and help more people get informed. Help support us by subscribing, following and backing on Patreon. Thanks!: <a rel="nofollow" target="blank" href="http://www.instagram.com/tldrnewsuk">http://www.instagram.com/tldrnewsuk</a>{% endraw %}
