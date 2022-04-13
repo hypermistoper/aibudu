@@ -1,0 +1,15 @@
+---
+title: "How To Invest And What To Avoid In 2022"
+image: "https:\/\/i.ytimg.com\/vi\/dSxk6VPVEfI\/hqdefault.jpg"
+vid_id: "dSxk6VPVEfI"
+categories: "Education"
+tags: ["investing","stock market","learn"]
+date: "2022-04-14T01:33:10+03:00"
+vid_date: "2022-04-13T19:08:42Z"
+duration: "PT16M40S"
+viewcount: "1807"
+likeCount: "210"
+dislikeCount: ""
+channel: "Daniel Pronk"
+---
+{% raw %}Stock Unlock turns you into a better investor. 7 Day Free Trial:<br /><a rel="nofollow" target="blank" href="https://www.stockunlock.com">https://www.stockunlock.com</a><br /><br />Join my community and ask me questions:<br /><a rel="nofollow" target="blank" href="https://www.Patreon.com/DanielPronk">https://www.Patreon.com/DanielPronk</a><br /><br />My Free 20 Step investor Checklist:<br /><a rel="nofollow" target="blank" href="https://drive.google.com/file/d/1VFMFQT4CMTqsomMYqoZvmCjQolTC8Lo2/view">https://drive.google.com/file/d/1VFMFQT4CMTqsomMYqoZvmCjQolTC8Lo2/view</a><br /><br />My Best U.S Stocks Watchlist &amp; Research:<br /><a rel="nofollow" target="blank" href="https://stockunlock.com/watchlistShare/f673c455-f46b-46f3-b62e-bb3a41ba1f47">https://stockunlock.com/watchlistShare/f673c455-f46b-46f3-b62e-bb3a41ba1f47</a><br /><br />My Best Canadian Stocks Watchlist &amp; Research:<br /><a rel="nofollow" target="blank" href="https://stockunlock.com/watchlistShare/b84186b9-50ff-42d6-a400-429e8e2cd6be">https://stockunlock.com/watchlistShare/b84186b9-50ff-42d6-a400-429e8e2cd6be</a><br /><br />My Favorite ETFs Watchlist &amp; Research:<br /><a rel="nofollow" target="blank" href="https://stockunlock.com/watchlistShare/2b1a811a-73fd-466d-8133-7fc6d3791d2d">https://stockunlock.com/watchlistShare/2b1a811a-73fd-466d-8133-7fc6d3791d2d</a><br /><br />Is The FED Starting A Recession?<br /><br />Hello everyone, I am Daniel Pronk and in todays video I explain my thoughts on the FED tapering and reducing their balance sheet, as well as the FED raising interest rates and how that could affect stocks. The FED has historically lowered their balance sheet and in this video we take a look at the outcome of them doing so.<br /><br />The FED starting a recession is on everyone's mind and it seems like many investors are worried about the FED potentially sending the stock market down. In this video I explain my thoughts.<br /><br />Disclaimer: I am NOT a financial advisor, and nothing I say is meant to be a recommendation to buy or sell any financial instrument. I will NEVER ask you to send me money to trade for you. Please report any suspicious emails or fake social media profiles claiming to be me. Don't invest money you can't afford to lose. There are no guarantees or certainties in trading or investing.<br /><br />My videos may contain affiliate links or sponsorship to products I believe will add value to your life and help you. No matter what I or anyone else says, it’s important to do your own research before making a financial decision.<br /><br />See Full Disclaimer Here:<br /><a rel="nofollow" target="blank" href="https://www.danielpronk.com/disclaimer">https://www.danielpronk.com/disclaimer</a>{% endraw %}
