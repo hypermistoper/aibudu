@@ -1,0 +1,15 @@
+---
+title: "Kenneth Salick - She Want Ah 4x4 Van [Official Music Video] (2022 Chutney Soca)"
+image: "https:\/\/i.ytimg.com\/vi\/J4fJGfPelDg\/hqdefault.jpg"
+vid_id: "J4fJGfPelDg"
+categories: "Music"
+tags: ["kenneth salick - she want ah 4x4 van","2022 kenneth salick","kenneth salick 2022"]
+date: "2022-04-13T06:31:51+03:00"
+vid_date: "2022-02-24T20:30:10Z"
+duration: "PT3M44S"
+viewcount: "1330700"
+likeCount: "13912"
+dislikeCount: ""
+channel: "West Indian Chutney Music"
+---
+{% raw %}Kenneth Salick - She Want Ah 4x4 Van [Official Music Video] (2022 Chutney Soca) <br />Artist: Kenneth Salick <br />Title: She Want Ah 4x4 Van <br />Produced, Recorded, Mixed And Mastered By: Professor Bounty Targetz Studio<br /><br />Video Credits: DJ DIN <br />Enhanced Media Systems Limited<br /><br />Sponsored By: Fastrac Auto Sales &amp; Services <br />Rollin Tire Importers Ltd<br />Mathai Imports Ltd<br />La Penca Bar &amp; Grill <br />Lolita's / Green Door Bar <br />John From Queens <br />Kalinza Management And Contracting Services <br /><br />Special Thanks: <br />Leeann Dass &amp; 4.1.1 Dance Theatre <br />DJ Rey <br />Martinez Wrecking Ltd<br />Hilux Club Trinidad And Tobago <br />THCTT Y12/Y11 Wagon Club Of T&amp;T <br />Heartland Plaza <br /><br />DISCLAIMER! <br />This channel is for entertainment purposes only, NOT FOR PROFIT… This channel is NOT MONETIZED in any way… Any music used on this channel belongs to their RESPECTIVE OWNERS, this channel neither do I claim any right over them.<br /><br />NO COPYRIGHT INFRINGEMENTS INTENDED! <br /><br />PLEASE LIKE/DISLIKE, SHARE &amp; COMMENT!!<br />DON’T FORGET TO SUBSCRIBE &amp; CLICK THE 🔔 ICON TO GET THE LATEST UPDATES...<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/WestIndianChutneyMusic?sub_confirmation=1">https://www.youtube.com/WestIndianChutneyMusic?sub_confirmation=1</a><br /><br />MY CHANNEL CONSISTS ONLY:<br />• Chutney Soca<br />• Traditional Chutney<br />• Bollywood Cover<br />• Bollywood Remix<br />• Bhajans<br />Anything Chutney Related...<br /><br /><br />🎶FOR FREE CHUTNEY MUSIC PROMOTION PLEASE SUBMIT🎶<br />• Artwork<br />• Mp3 File<br />• Track information Example Production, Mixed, Mastered Etc...<br /><br />♫YOU CAN USE ANY OF THESE OPTIONS 👇 TO SUBMIT YOUR TRACK♫<br />Drag And Drop Box 👇  <br />Just Click The Link And Upload File... Its That Easy😍<br /><a rel="nofollow" target="blank" href="https://www.dropbox.com/request/EGul9ImB45KJ1109HSS3">https://www.dropbox.com/request/EGul9ImB45KJ1109HSS3</a> <br />                                  Or<br />Email: westindianchutneymusic@gmail.com<br />Whatsapp: (868)3778745<br /><br /><br />LIKE ME ON FACEBOOK:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/West-Indian-Chutney-Music-110653323651721/">https://www.facebook.com/West-Indian-Chutney-Music-110653323651721/</a><br /><br />JOIN MY FACEBOOK GROUP:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/groups/453812778501132/">https://www.facebook.com/groups/453812778501132/</a>{% endraw %}
