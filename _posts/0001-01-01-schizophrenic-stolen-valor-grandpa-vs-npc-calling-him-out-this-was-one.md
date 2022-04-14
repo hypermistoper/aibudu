@@ -1,0 +1,15 @@
+---
+title: "Schizophrenic Stolen Valor Grandpa vs NPC + Calling Him Out"
+image: "https:\/\/i.ytimg.com\/vi\/0WUEx6-469M\/hqdefault.jpg"
+vid_id: "0WUEx6-469M"
+categories: "Gaming"
+tags: ["noob dog","noob dogs","AdvancedAim"]
+date: "2022-04-14T19:25:56+03:00"
+vid_date: "2022-04-06T01:30:12Z"
+duration: "PT18M42S"
+viewcount: "43324"
+likeCount: "3749"
+dislikeCount: ""
+channel: "Boring"
+---
+{% raw %}This was one of the funniest things to happen to me on a livestream in a while. Not only did I happen to get into a game with them to begin with, I happened to get in a second time with the older gentleman. I hope you all enjoy this one because it was hilarious!<br /><br />0:00 - Start<br />0:45 - Randomly Bringing Up Gaddafi<br />1:35 - Reading My Mind About Biden<br />3:00 - First Sexist Joke<br />3:23 - World View Of America<br />3:50 - Trump vs Ukraine<br />4:40 - Jimmy Carter Discussions<br />5:05 - Old Man + NPC Being Sexist<br />5:27 - Old Man Being Homophobic + NPC Being Unfunny<br />6:10 - Old Man Says A Racist Joke<br />6:25 - NPC Being Unfunny Round 2<br />6:54 - Old Man Discusses Biden Voter IQs<br />7:13 - Old Man Claims Voter Fraud<br />7:25 - Old Man Lies About Being In the Navy<br />7:35 - Old Man Claims There Are UFOs<br />8:50 - Old Man Discusses Gulf War<br />9:20 - Old Man's Dementia Kicks In<br />10:30 - Old Man Fantasizes About Flying<br />10:49 - Old Man Discusses Immigration<br />11:07 - Old Man Repeats Racist Joke<br />11:23 - Old Man Lying About Retirement Rank<br />11:42 - Old Man Shares Favorite Band<br />12:19 - Old Man Talks About UFOs Again<br />13:09 - Old Man Lying About Years Of Service<br />13:30 - Old Man Leaves Game<br />13:40 - Reading His Game Reviews<br />14:05 - Realizing He's In My Game Again<br />14:16 - Baiting Lies With Military Talk <br />14:51 - Calling Old Man Out<br />15:40 - Old Man Begins Raging<br />16:35 - Baiting Him Into Proving He Remembers Everything<br />17:11 - Old Man Realizes I'm Cheating<br />18:02 - Old Man Takes a Cooldown<br />18:18 - Credits<br /><br />Links/Other stuff:<br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/noobdogs">https://discord.gg/noobdogs</a><br />AdvancedAim: <a rel="nofollow" target="blank" href="https://advancedaim.net/">https://advancedaim.net/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/noobdoggy">https://twitter.com/noobdoggy</a><br />Steam: <a rel="nofollow" target="blank" href="https://steamcommunity.com/profiles/76561198451257263">https://steamcommunity.com/profiles/76561198451257263</a><br />Merch store: <a rel="nofollow" target="blank" href="https://teespring.com/stores/noob-dog">https://teespring.com/stores/noob-dog</a><br />Second Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8LUyM57aKoHQFM12M4lhpQ">https://www.youtube.com/channel/UC8LUyM57aKoHQFM12M4lhpQ</a><br />Shorts Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCFemo70VE4dI0B5UblxRZ4w">https://www.youtube.com/channel/UCFemo70VE4dI0B5UblxRZ4w</a>{% endraw %}
