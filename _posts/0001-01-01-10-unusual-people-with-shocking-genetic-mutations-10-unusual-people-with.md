@@ -1,0 +1,15 @@
+---
+title: "10 UNUSUAL People With Shocking Genetic Mutations"
+image: "https:\/\/i.ytimg.com\/vi\/huP7bUqpUkM\/hqdefault.jpg"
+vid_id: "huP7bUqpUkM"
+categories: "People-Blogs"
+tags: ["unusual","unusual people","shocking"]
+date: "2022-04-14T11:42:20+03:00"
+vid_date: "2022-04-12T18:45:02Z"
+duration: "PT9M33S"
+viewcount: "4012"
+likeCount: ""
+dislikeCount: ""
+channel: "Star 5"
+---
+{% raw %}10 UNUSUAL People With Shocking Genetic Mutations<br /><br />What if we told you that there’s someone out there with two heads or a young man that has a 13-inch tail? Well, these are only a few results of genetic mutations that have affected humans over the last few decades. In today’s video, get ready to take a deep dive into some of the most shocking genetic mutations in recent history.<br /><br />-----------------------------------------------------------------------------------------------------------<br /><br />Join Our Growing Community &amp; Subscribe Here → <a rel="nofollow" target="blank" href="https://bit.ly/3Ekjacq">https://bit.ly/3Ekjacq</a><br /><br />Check Out These Other Amazing Videos:<br />Top 10 Most Unusual and Extraordinary Kids In The World<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=-1Yvq...">https://www.youtube.com/watch?v=-1Yvq...</a><br />10 Most Unusual Twins Who Were Born Different<br /> <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=7IeaE...">https://www.youtube.com/watch?v=7IeaE...</a><br />Most Unusual People with The Strangest Talents <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=j-L-p...">https://www.youtube.com/watch?v=j-L-p...</a><br />10 Most UNUSUAL Kids In The World <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=CvJZY...">https://www.youtube.com/watch?v=CvJZY...</a><br />Unusual Kids Born With Bizarre Medical Conditions <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=OdpE5...">https://www.youtube.com/watch?v=OdpE5...</a><br />10 Most UNUSUAL Kids In The World <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=CvJZY...">https://www.youtube.com/watch?v=CvJZY...</a><br />10 Most UNUSUAL Babies In The World<br /> <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=i26NO...">https://www.youtube.com/watch?v=i26NO...</a><br />Unusual Kids That Are One In a Million<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=XaGpX...">https://www.youtube.com/watch?v=XaGpX...</a><br />Most UNUSUAL Kids You’ll Ever See<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=abqCY...">https://www.youtube.com/watch?v=abqCY...</a><br /><br />Star 5 is the #1 Channel for all of the Top Trending Topics to keep you Entertained and Informed with New and Exciting Videos Weekly. Make sure to subscribe and never miss a single video!<br /><br />---------------------------------------------------------------------------------------------------------{% endraw %}
