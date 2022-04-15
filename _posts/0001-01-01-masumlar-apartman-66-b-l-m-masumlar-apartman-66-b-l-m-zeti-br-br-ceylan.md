@@ -1,0 +1,15 @@
+---
+title: "Masumlar Apartmanı 66. Bölüm"
+image: "https:\/\/i.ytimg.com\/vi\/ColHjA_N8MA\/hqdefault.jpg"
+vid_id: "ColHjA_N8MA"
+categories: "Entertainment"
+tags: ["Aslıhan Gürbüz","Birkan Sokullu","Masumlar apartmanı yeni sezon"]
+date: "2022-04-15T23:52:11+03:00"
+vid_date: "2022-04-12T22:00:09Z"
+duration: "PT2H23M13S"
+viewcount: "1608120"
+likeCount: "14505"
+dislikeCount: ""
+channel: "Masumlar Apartmanı"
+---
+{% raw %}Masumlar Apartmanı 66. Bölüm Özeti:<br /><br />Ceylan, kazanın ardından hastaneye kaldırılır. Han, endişe içinde doktorun vereceği haberi beklerken bir yandan da suçluluk duygusuyla boğuşur. Üstelik, kazanın sonuçları sadece onlar için değil, başkaları için de ağırdır. Han’ın yine çöplüğe sığınmaktan başka çaresi kalmaz. Burada yaşadığı bir karşılaşma ise hayatında yepyeni bir sayfa açacaktır.<br />Gülben, hem Han hem de Safiye için endişelenirken, babasının yaptığı bir şey onu derinden etkiler. Memduh’un biyopsi sonucu hazırdır ancak Ege’yle birlikte hastaneye giderlerken, sonucu öğrenmeyi bir gün daha ertelemek ister. Onun yerine, torunuyla birlikte bir hayalini gerçekleştirecektir. Safiye, doktor hanımın ziyaretinden sonra belki de herkes için dönüm noktası olacak bir karar verir. Gidip o kişiyle vedalaşacaktır.<br /><br />Gerçek hayatların, iç acıtan hikayelerinden uyarlanmış bir başyapıt olan #MasumlarApartmanı yeni bölümleriyle her salı 20.00’de #TRT1’de!<br /><br /><br />Masumlar Apartmanı fragmanlar için tıklayın…<br /><a rel="nofollow" target="blank" href="https://bit.ly/2Rp0KQu">https://bit.ly/2Rp0KQu</a><br />Masumlar Apartmanı bölümler için tıklayın...<br /><a rel="nofollow" target="blank" href="https://bit.ly/36eFcie">https://bit.ly/36eFcie</a><br />Masumlar Apartmanı Resmi Facebook Sayfası (Official Facebook Page): <a rel="nofollow" target="blank" href="https://www.facebook.com/masumlarapartmani/">https://www.facebook.com/masumlarapartmani/</a><br />Masumlar Apartmanı Resmi Twitter Sayfası (Official Twitter Page): <a rel="nofollow" target="blank" href="https://twitter.com/masumlarapt">https://twitter.com/masumlarapt</a><br />Masumlar Apartmanı Resmi Instagram Sayfası (Official Instagram Page): <a rel="nofollow" target="blank" href="https://www.instagram.com/masumlarapartmani/">https://www.instagram.com/masumlarapartmani/</a><br />-------------------------------------------------<br />TRT1 Resmi Facebook Sayfası (Official Facebook Page): <a rel="nofollow" target="blank" href="https://www.facebook.com/TRT1/">https://www.facebook.com/TRT1/</a><br />TRT1 Resmi Twitter Sayfası (Official Twitter Page): <a rel="nofollow" target="blank" href="https://twitter.com/trt1/">https://twitter.com/trt1/</a><br />TRT1 Resmi Instagram Sayfası (Official Instagram Page): <a rel="nofollow" target="blank" href="https://www.instagram.com/trt1/">https://www.instagram.com/trt1/</a><br />TRT1 Resmi YouTube Kanalı (Official YouTube Page): <a rel="nofollow" target="blank" href="https://www.youtube.com/TRT1">https://www.youtube.com/TRT1</a>{% endraw %}
