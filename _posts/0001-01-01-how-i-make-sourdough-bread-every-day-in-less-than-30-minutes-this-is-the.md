@@ -1,0 +1,15 @@
+---
+title: "How I Make Sourdough Bread Every Day In LESS Than 30 Minutes"
+image: "https:\/\/i.ytimg.com\/vi\/ZxCf39G_7pY\/hqdefault.jpg"
+vid_id: "ZxCf39G_7pY"
+categories: "Howto-Style"
+tags: ["easy sourdough bread","sourdough baking","how schedule sourdough baking"]
+date: "2022-04-15T20:41:57+03:00"
+vid_date: "2022-01-08T13:30:08Z"
+duration: "PT8M31S"
+viewcount: "710081"
+likeCount: "20840"
+dislikeCount: ""
+channel: "Culinary Exploration"
+---
+{% raw %}This is the process that I use to bake sourdough bread everyday. I've cut the process down to a minimum while making sure that I still get a fantastic loaf of bread.<br /><br />It's not quite as speedy as my no knead recipe but the crumb is a little more organised with less of a random open crumb. <br /><br />Full recipe:<br /><a rel="nofollow" target="blank" href="https://www.culinaryexploration.eu/blog/sourdough-scheduling">https://www.culinaryexploration.eu/blog/sourdough-scheduling</a><br /><br />Click below for the Sourdough recipe calculator: I'll be sending the calculator out in this months email for my email subscribers. It's a new project and I am hoping to get your input on how to develop it!<br /><br />Join the community &amp; get access to the sourdough calculator:<br /><a rel="nofollow" target="blank" href="https://www.culinaryexploration.eu/community">https://www.culinaryexploration.eu/community</a><br /><br />Avoid sticky dough:<br /><a rel="nofollow" target="blank" href="https://youtu.be/GS8jz_ta9vs">https://youtu.be/GS8jz_ta9vs</a><br /><br />Chapters<br />0:21 Feeding starter<br />1:05 Mixing the main dough<br />2:50 Quick knead<br />3:07 Stretch &amp; Fold<br />4:55 Shape<br />6:18 Scoring &amp; Bake<br /><br />Equipment:<br />My Komo Flour Mill - 5% discount with Checkout code: culinaryex5<br /><a rel="nofollow" target="blank" href="https://komo.bio/fidibus-classic/?komo=38">https://komo.bio/fidibus-classic/?komo=38</a><br />Bread basket: <a rel="nofollow" target="blank" href="https://amzn.to/344DNvH">https://amzn.to/344DNvH</a><br />Bench scraper / dough cutter: <a rel="nofollow" target="blank" href="https://amzn.to/3bG68JZ">https://amzn.to/3bG68JZ</a><br />Dough scales: <a rel="nofollow" target="blank" href="https://amzn.to/3aDJbWV">https://amzn.to/3aDJbWV</a><br />Precision scales: <a rel="nofollow" target="blank" href="https://amzn.to/2QQBllC">https://amzn.to/2QQBllC</a><br />Bread tins: <a rel="nofollow" target="blank" href="https://amzn.to/3ms8ocO">https://amzn.to/3ms8ocO</a><br />Challenger bread pan: <a rel="nofollow" target="blank" href="https://challengerbreadware.com/product/challenger-bread-pan/?ref=CulinaryExploration">https://challengerbreadware.com/product/challenger-bread-pan/?ref=CulinaryExploration</a><br /><br />Recipe Ingredients:<br />Starter (100% hydrated)<br />Scrapings from the jar<br />55g Water<br />55g Flour<br /><br />Main dough<br />388g strong white bread flour<br />257g water<br />8g salt<br />98g starter<br /><br />#sourdoughbaking<br /><br />As an Amazon Associate I earn from qualifying purchases.{% endraw %}
