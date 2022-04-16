@@ -1,0 +1,15 @@
+---
+title: "Francis Karel - Like All My Friends (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/EPdIR64N6TA\/hqdefault.jpg"
+vid_id: "EPdIR64N6TA"
+categories: "Music"
+tags: ["francis karel","francis","karel"]
+date: "2022-04-16T16:15:03+03:00"
+vid_date: "2022-03-31T04:00:05Z"
+duration: "PT3M11S"
+viewcount: "77753"
+likeCount: "7933"
+dislikeCount: ""
+channel: "Francis Karel"
+---
+{% raw %}Stream or download &quot;Like All My Friends&quot; here: <a rel="nofollow" target="blank" href="https://ffm.to/likeallmyfriends">https://ffm.to/likeallmyfriends</a><br /><br />Subscribe on YouTube - <a rel="nofollow" target="blank" href="http://bit.ly/FrancisKarelYouTube">http://bit.ly/FrancisKarelYouTube</a><br /><br />Directed &amp; Shot by Sarah Carpenter <br />Edited by A27Studios.com<br /><br />Follow Francis Karel:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/francis_karel/">https://www.instagram.com/francis_karel/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/franciskarel">https://twitter.com/franciskarel</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/FrancisKarelOfficial">https://www.facebook.com/FrancisKarelOfficial</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@franciskarelofficial">https://www.tiktok.com/@franciskarelofficial</a><br /><br />Lyrics: <br />Turn the music up<br />‘Cause I don't wanna think<br />I don't wanna think about the room I’m in<br />If my eyes stay shut<br />Then I don't have to see<br />I don't have to see how everybody’s<br /><br />Got someone they’re taking home<br />I don't wanna sound so cynical but I<br /><br />Wanna fall in love like all my friends<br />God they look so happy<br />And I know I can be<br />I don't mind my empty bed<br />But sometimes I get lonely<br />Want someone to show me how to<br />Fix a fight<br />Kiss goodnight<br />Hold me tight<br />I want to fall in love like all my friends<br />Fall in love like all my friends<br /><br />Not a jealous guy<br />But I got feelings too<br />I’ve got myself a missing puzzle piece<br />We all wanna find<br />Someone in our youth<br />Somebody who can make us feel like<br /><br />Everybodys got someone i'm not usually an optimist but I<br /><br />Wanna fall in love like all my friends<br />God they look so happy<br />And I know I can be<br />I don't mind my empty bed<br />But sometimes I get lonely<br />Want someone to show me how to<br />Fix a fight<br />Kiss goodnight<br />Hold me tight<br />I want to fall in love like all my friends<br />Fall in love like all my friends<br /><br />Ooo, ooo<br />Fall in love like all my friends<br />Ooo, ooo<br />Fall in love like all my friends<br /><br />Wanna fall in love like all my friends<br />And I don't mind my empty bed<br />But sometimes I get lonely<br />Want someone to show me how to<br />Fix a fight<br />Kiss goodnight<br />Hold me tight<br />I wanna fall in love like all my friends<br />Fall in love like all my friends<br /><br />#franciskarel #likeallmyfriends{% endraw %}
