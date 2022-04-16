@@ -1,0 +1,15 @@
+---
+title: "Luxurious House Extension｜Space Planning Tips｜House Transformation｜Interior Design｜House Tour"
+image: "https:\/\/i.ytimg.com\/vi\/pbL7XOSuqjU\/hqdefault.jpg"
+vid_id: "pbL7XOSuqjU"
+categories: "Howto-Style"
+tags: ["nu infinity","design seed","house transformaion"]
+date: "2022-04-16T12:06:53+03:00"
+vid_date: "2022-04-16T08:19:00Z"
+duration: "PT12M15S"
+viewcount: "790"
+likeCount: "68"
+dislikeCount: ""
+channel: "Design Seed"
+---
+{% raw %}Welcome to DESIGN SEED! Today’s episode on Design Seed we will featuring a design tour of a 45’ x 80’ Semi detached villa located in a luxury modern township in Klang Valley.<br /><br />We believe that Interior design is not just about designing what’s in the box, but how everything within the box connects to the surroundings or how the surroundings could compliment the interior. <br /><br />Designing a beautiful home is a team effort, the cooperation and chemistry between the designers and owners is very important. <br /><br />Adapting to the clients existing lifestyle and habits, how the new spatial choreography could uplift their lifestyle, this adds value to both for the clients and our design outcome. <br /><br />This project depicts giving life to each space, more purpose to each corner and emphasis of family bonds. <br /><br />The experience and feeling of the journey walking from the entrance and from one space to another, reminds us how valuable the little details are in life.<br /><br />We hope you enjoyed todays episode and If you did, do click on that subscribe button and turn on the notification bell, to stay in the loop of more upcoming compelling episodes! <br /><br />Thank you for watching!<br /><br />------------------------------------------------------------------------------------------------------------------<br /><br />Sponsored by SAMSUNG.<br /><br />Technology has grown to be so advanced nowadays it is no longer just about a television with a single function but with multiple versatile purpose.<br /><br />The Samsung frame for an instance could be hung on the wall and seamlessly looking like a painting, functions perfectly as a television and could be so versatile that it could also be placed on a stand and made to look like an art on an easel.<br /><br />Samsung The Frame: <a rel="nofollow" target="blank" href="https://www.samsung.com/my/lifestyle-tvs/the-frame/">https://www.samsung.com/my/lifestyle-tvs/the-frame/</a><br /><br />-------------------------------------------------------------------------------------------------------------------<br /><br />For Business Inquiries:<br />inquiry@thedesignseed.co<br /><br />FOLLOW US:<br /><a rel="nofollow" target="blank" href="http://www.facebook.com/designseedstudio">http://www.facebook.com/designseedstudio</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/designseedstudio">http://instagram.com/designseedstudio</a><br /><br />The Designer/ Host:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/alex_lee_23/">https://www.instagram.com/alex_lee_23/</a>{% endraw %}
