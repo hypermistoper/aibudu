@@ -1,0 +1,15 @@
+---
+title: "How To Track Emails for Free | Top 3 Email Tracking Tools for Small Business"
+image: "https:\/\/i.ytimg.com\/vi\/110K3BGlAuw\/hqdefault.jpg"
+vid_id: "110K3BGlAuw"
+categories: "Howto-Style"
+tags: ["track email gmail","track email outlook","how to track email"]
+date: "2022-04-16T08:31:34+03:00"
+vid_date: "2022-04-16T05:30:00Z"
+duration: "PT9M32S"
+viewcount: "0"
+likeCount: "0"
+dislikeCount: ""
+channel: "Stewart Gauld"
+---
+{% raw %}Today, I dive into our top 3 email tracking tools for small businesses. All these email trackers are free, easy to use and seamlessly integrate with your email inbox.<br /><br />Never waste time ever again by asking the question “Did you get my email?”.<br /><br />By using an email tracking tool like HubSpot, Mailtrack or Streak, you can quickly identify engaged contacts and leads so that you can start focusing your energy on the right audience for your business.<br /><br />Get started with the HubSpot for free here (Suitable for all email inboxes): <br /><a rel="nofollow" target="blank" href="https://hubspot.sjv.io/c/2844094/1001264/12893">https://hubspot.sjv.io/c/2844094/1001264/12893</a><br /><br />Get started with Mailtrack for free here (Suitable for Gmail):<br /><a rel="nofollow" target="blank" href="https://mailtrack.io/">https://mailtrack.io/</a><br /><br />Get started with the Streak CRM for free here (Suitable for Gmail):<br /><a rel="nofollow" target="blank" href="https://get.streak.com/stewartgauld3125">https://get.streak.com/stewartgauld3125</a><br /><br />*IMPORTANT NOTE: The links above are affiliate links, which means we will get a commission if you upgrade to a paid plan through this link (with no extra cost to you), this helps support our channel and we thank you in advance!<br /><br />► Check out the video resources that we mentioned in the video:<br /><br />How to use HubSpot free CRM:<br /><a rel="nofollow" target="blank" href="https://youtu.be/brVfYiSPNI0">https://youtu.be/brVfYiSPNI0</a><br /><br />How to track emails for Gmail:<br /><a rel="nofollow" target="blank" href="https://youtu.be/dXr7dWyUvQU">https://youtu.be/dXr7dWyUvQU</a><br /><br />How to use Streak for free CRM:<br /><a rel="nofollow" target="blank" href="https://youtu.be/dOup2XDABII">https://youtu.be/dOup2XDABII</a><br /><br />► Today we navigate through the below chapters for this email tracking tutorial:<br /><br />0:00 Intro<br />01:17 HubSpot CRM email tracker<br />03:55 Email tracker for Gmail by Mailtrack<br />06:11 Streak email tracker<br />14:04 Outro<br /><br />► Are you interested in joining our small business community?<br />Join us to receive actionable tips, tutorials and tools to grow your small business online (Subscribe to our email list) or join our exclusive community here: <a rel="nofollow" target="blank" href="https://mailchi.mp/71ac3fcdbfdf/stewart-gauld">https://mailchi.mp/71ac3fcdbfdf/stewart-gauld</a><br /><br />Let me know if you found this email tracking guide helpful. Also, if you require any help or support, make sure to get in touch with us today.<br /><br />Thanks for watching and enjoy!<br /><br />#emailtracking{% endraw %}
