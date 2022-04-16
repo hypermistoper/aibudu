@@ -1,0 +1,15 @@
+---
+title: "This Business Tries to (Legally) Kill You | Tales From the Bottle"
+image: "https:\/\/i.ytimg.com\/vi\/Pv7wIAMq3TE\/hqdefault.jpg"
+vid_id: "Pv7wIAMq3TE"
+categories: "Entertainment"
+tags: ["heart attack grill","jon basso","challenge"]
+date: "2022-04-16T06:11:17+03:00"
+vid_date: "2022-04-15T20:00:03Z"
+duration: "PT6M59S"
+viewcount: "92607"
+likeCount: "11121"
+dislikeCount: ""
+channel: "Qxir"
+---
+{% raw %}This business' customer service is to DIE for! Well, not really, but they DO try to kill you!<br /><br /><br />&quot;The Heart Attack Grill is an American hamburger restaurant in downtown Las Vegas, Nevada (formerly located in Chandler, Arizona). It makes a point of serving food that is very unhealthy and high in fat, sugar, and cholesterol; in other words, food that, if eaten frequently, will increase the chance of a heart attack, hence the name.<br />The menu is generally themed around items that are exceptionally high in calories and fat. It includes &quot;Single&quot;, &quot;Double&quot;, &quot;Triple&quot;, &quot;Quadruple&quot;, all the way up to &quot;Octuple Bypass&quot; hamburgers, ranging from 8 to 32 ounces (230 to 910 g) of beef (up to about 8,000 calories (33,000 kJ)), all-you-can-eat &quot;Flatliner Fries&quot; (cooked in pure lard), beer and tequila, &quot;butterfat milkshakes,&quot; and soft drinks such as Mexican-bottled Coca-Cola made with cane sugar. Customers can also order unfiltered cigarettes, or candy cigarettes for children.<br />Customers over 350 lb (160 kg) in weight eat for free if they weigh in with a nurse waitress before eating. Beverages and to-go orders are excluded and sharing food is also not allowed for the free food deal. One of the restaurant's promotions is a reward for customers who finish a Triple or Quadruple Bypass Burger, after which they are placed in a wheelchair and wheeled out to their vehicle by their &quot;personal nurse&quot;.&quot;<br /><br />More on Wikipedia: <br /><a rel="nofollow" target="blank" href="https://en.wikipedia.org/wiki/Heart_Attack_Grill">https://en.wikipedia.org/wiki/Heart_Attack_Grill</a><br /><br />Join membership: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCGHDQtN_vzFYJaq_Fx1eikg/join">https://www.youtube.com/channel/UCGHDQtN_vzFYJaq_Fx1eikg/join</a><br />Second Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCt93hxFmjppL5nLRAX94UrA">https://www.youtube.com/channel/UCt93hxFmjppL5nLRAX94UrA</a><br />Merch: teespring.com/stores/qxir<br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/qxir">https://www.patreon.com/qxir</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/QxirYT">https://twitter.com/QxirYT</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/jZzvvwJ">https://discord.gg/jZzvvwJ</a><br />Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/qxiryt/">https://www.twitch.tv/qxiryt/</a><br />Subreddit: <a rel="nofollow" target="blank" href="https://www.reddit.com/r/Qxir/">https://www.reddit.com/r/Qxir/</a>{% endraw %}
