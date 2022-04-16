@@ -1,0 +1,15 @@
+---
+title: "Nicky Youre - Sunroof (Lyrics) ft. dazy"
+image: "https:\/\/i.ytimg.com\/vi\/e4R2NOoxTNM\/hqdefault.jpg"
+vid_id: "e4R2NOoxTNM"
+categories: "Music"
+tags: ["Nicky","Youre","Sunroof"]
+date: "2022-04-16T17:25:07+03:00"
+vid_date: "2022-04-15T13:04:42Z"
+duration: "PT2M44S"
+viewcount: "20359"
+likeCount: "716"
+dislikeCount: ""
+channel: "Taj Tracks"
+---
+{% raw %}Follow Our Official Spotify Playlist: <a rel="nofollow" target="blank" href="https://TajTracks.lnk.to/Spotify​​​​">https://TajTracks.lnk.to/Spotify​​​​</a><br />TikTok Spotify Playlist: <a rel="nofollow" target="blank" href="https://spoti.fi/32iCMvP">https://spoti.fi/32iCMvP</a><br />Nicky Youre - Sunroof (Lyrics) ft. dazy <br /><br />Stream / Download: <a rel="nofollow" target="blank" href="https://ffm.to/nickyyouresunroof">https://ffm.to/nickyyouresunroof</a><br /><br />Nicky Youre:<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/nickyyoure/">https://instagram.com/nickyyoure/</a><br />TikTok: <a rel="nofollow" target="blank" href="https://tiktok.com/@nickyyoure">https://tiktok.com/@nickyyoure</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Nicky_Youre">https://twitter.com/Nicky_Youre</a><br /><br />Sunroof Lyrics:<br /><br />La da la da da la da da <br />La da la da di da da, la da di da da <br />La da la di da la di da <br />La da la da di da <br /><br />I got my head out the sunroof<br />I’m blasting our favorite tunes<br />I only got one thing on my mind<br /><br />You got me stuck on the thought of you<br />You’re making me feel brand new<br />You’re more than a sunshine in my eyes<br /><br />You got those<br />Pretty eyes in your head, you know it<br />You got me dancing in my bed, so let me show it <br />You are exactly what I want,<br />Kinda cool and kinda not<br />Wanna give myself to you <br />Yeah, We’re driving down the freeway at night<br />I only got one thing in the back of My mind<br />I’m feeling like this might be my time to shine with you with you with you <br /><br />I got my head out the sunroof<br />I’m blasting our favorite tunes<br />I only got one thing on my mind<br /><br />You got me stuck on the thought of you<br />You're making me feel brand new<br />You’re more than a sunshine in my eyes<br /><br />I got my head out the sunroof <br />Woah woah <br />Woah ooo <br />You got me stuck on the thought of you <br />Woah woah<br />Woah ooo<br /><br />(Guitar solo)<br /><br />Yeah We’re driving down the freeway at night<br />I only got one thing in the back of My mind<br />I’m feeling like this my be my time to shine with you with you with you <br /><br />I got my head out the sunroof <br />I’m blasting our favorite tunes<br />I only got one thing on my mind<br /><br />You got me stuck on the thought of you<br />You’re making me feel brand new<br />You’re more than a sunshine in my eyes <br /><br />La da la di da la di da<br />La da la da di da da, la da di da da<br />La da la di da la di da<br />La da la da di da da da da<br /><br />Nicky Youre - Sunroof (Lyrics) ft. dazy <br /><br />#NickyYoure #Sunroof #TajTracks #Lyrics{% endraw %}
