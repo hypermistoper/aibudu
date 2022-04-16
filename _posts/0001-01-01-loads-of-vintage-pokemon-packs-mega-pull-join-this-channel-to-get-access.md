@@ -1,0 +1,15 @@
+---
+title: "Loads of VINTAGE  Pokemon Packs + MEGA PULL !!!"
+image: "https:\/\/i.ytimg.com\/vi\/h6EXoqPWn0g\/hqdefault.jpg"
+vid_id: "h6EXoqPWn0g"
+categories: "Gaming"
+tags: ["Pokemon","Charizard","Pokemon Heavy Packs"]
+date: "2022-04-16T22:48:29+03:00"
+vid_date: "2022-04-15T16:00:23Z"
+duration: "PT29M14S"
+viewcount: "4683"
+likeCount: "314"
+dislikeCount: ""
+channel: "TCA Gaming"
+---
+{% raw %}Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCbfublxK88_z96MBiiSzrtA/join">https://www.youtube.com/channel/UCbfublxK88_z96MBiiSzrtA/join</a><br /><br />My EBAY Store: <a rel="nofollow" target="blank" href="https://www.ebay.com/str/tcagamingstore?_sop=10&amp;rt=nc&amp;mkcid=1&amp;mkrid=711-53200-19255-0&amp;siteid=0&amp;campid=5338501053&amp;toolid=11800&amp;mkevt=1">https://www.ebay.com/str/tcagamingstore?_sop=10&amp;rt=nc&amp;mkcid=1&amp;mkrid=711-53200-19255-0&amp;siteid=0&amp;campid=5338501053&amp;toolid=11800&amp;mkevt=1</a><br /><br /><a rel="nofollow" target="blank" href="https://linktr.ee/tcagaming">https://linktr.ee/tcagaming</a><br /><br />My IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/tca">https://www.instagram.com/tca</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/officialtcagaming">https://www.instagram.com/officialtcagaming</a><br /><br />USE CODE &quot;TCA5&quot; on these sites for a discount<br /><a rel="nofollow" target="blank" href="https://www.trollandtoad.com/">https://www.trollandtoad.com/</a><br /><a rel="nofollow" target="blank" href="https://pokedreamer.com/?aff=2">https://pokedreamer.com/?aff=2</a><br /><a rel="nofollow" target="blank" href="https://blackcardx.com/">https://blackcardx.com/</a><br /><br />PATREON: <a rel="nofollow" target="blank" href="https://www.patreon.com/TCAGAMING">https://www.patreon.com/TCAGAMING</a><br /><br />For PTCGO: <a rel="nofollow" target="blank" href="https://www.tcagaming.com/page/14">https://www.tcagaming.com/page/14</a><br /><br />Website: <a rel="nofollow" target="blank" href="https://www.tcagaming.com/">https://www.tcagaming.com/</a><br /><br />Amazon: <a rel="nofollow" target="blank" href="https://www.amazon.com/s?k=Pokemon+Cards&amp;amp;i=toys-and-games&amp;amp;ref=nb_sb_noss_2&amp;_encoding=UTF8&amp;tag=russelloakley-20&amp;linkCode=ur2&amp;linkId=2e41111bcd63c942e0a0fc082978662a&amp;camp=1789&amp;creative=9325">https://www.amazon.com/s?k=Pokemon+Cards&amp;amp;i=toys-and-games&amp;amp;ref=nb_sb_noss_2&amp;_encoding=UTF8&amp;tag=russelloakley-20&amp;linkCode=ur2&amp;linkId=2e41111bcd63c942e0a0fc082978662a&amp;camp=1789&amp;creative=9325</a><br /><br />MY WANTS LIST: <a rel="nofollow" target="blank" href="https://docs.google.com/spreadsheets/d/1GBdbaXGNdgdlLcBKfbSxQ_Kd2dBv4FD94kI6sLt4aZo/edit?usp=sharing">https://docs.google.com/spreadsheets/d/1GBdbaXGNdgdlLcBKfbSxQ_Kd2dBv4FD94kI6sLt4aZo/edit?usp=sharing</a><br /><br />Email: number1pokemoncollector@gmail.com<br /><br />Thanks for watching!!!{% endraw %}
