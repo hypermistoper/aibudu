@@ -1,0 +1,15 @@
+---
+title: "ALERT: Did The 2022 Used Car Price Bubble Just Pop?"
+image: "https:\/\/i.ytimg.com\/vi\/bWEQhl0OXeo\/hqdefault.jpg"
+vid_id: "bWEQhl0OXeo"
+categories: "Autos-Vehicles"
+tags: ["used car prices","used car","car prices"]
+date: "2022-04-17T22:35:08+03:00"
+vid_date: "2022-04-16T18:00:20Z"
+duration: "PT11M38S"
+viewcount: "6346"
+likeCount: "428"
+dislikeCount: ""
+channel: "Fourwheel Trader - Car depreciation analysis"
+---
+{% raw %}Used car prices decreased significantly for the first time since 2020. But is this the beginning of a crash? Or will car prices further increase hereby blowing up the used car price bubble?<br /><br />Follow me on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/fourwheeltrader">https://www.instagram.com/fourwheeltrader</a><br />Contact me at: fourwheeltrader@gmail.com<br /><br />Used car prices increased with 47% during 2021. Yet, 2021 is off to a different start; prices decreased with 5.4%. Did the used car price bubble pop? Or is this a slight hiccup in the upward price trend? <br /><br />The price decrease goes for all segments in the used car market and this fits with the underlying developments in supply and demand. Sales are low but are the same level as in 2021 while supply is slightly higher. Hence, the market is still heated but it stabilized compared to last year. <br /><br />The new car market, however, is still very hot. Sales and supply are still very hot. This is of course driven by the supply chain issues and shortages. <br /><br />It’s likely that used prices will increase in the short term future. The prices are seasonal and usually increase during spring following tax refunds. Yet, for this effect to materialize, at least 50% of the refunds need to be distributed. Currently the distribution rate is only 45%, hereby delaying the seasonal price increase. <br /><br />Looking at the longer term, we discuss the prices forecasts of Cox Automotive and KPMG. Based on the most recent developments, I think that the one of Cox Automotive has a higher probability to materialize. <br /><br />Content<br />00:00 The beginning of a crash?<br />00:25 Used car prices<br />05:33 New car prices<br />07:25 2022 Price Forecast<br />09:53 Conclusion: Are prices crashing?<br /><br /><br />Disclaimer: The Content is for educational purposes only, you should not construe any such information or other material as legal, tax, investment, financial, or other advice. Nothing contained in this video constitutes a solicitation, recommendation, or endorsement to buy or sell any cars. The information published has been obtained from or is based on sources which are believed to be accurate and complete. Although reasonable care has been taken, the completeness and the accuracy of any information published cannot be guaranteed. Any opinions may be wrong and may change at any time. You should always carry out your own independent verification of facts and data before making any purchase decision.{% endraw %}
