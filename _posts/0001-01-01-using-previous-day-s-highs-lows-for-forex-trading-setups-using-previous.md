@@ -1,0 +1,15 @@
+---
+title: "Using Previous day's Highs & Lows for Forex trading setups"
+image: "https:\/\/i.ytimg.com\/vi\/aXsilvQ-Az8\/hqdefault.jpg"
+vid_id: "aXsilvQ-Az8"
+categories: "Howto-Style"
+tags: ["how to trade forex","forex for beginners","how to trade"]
+date: "2022-04-17T20:26:27+03:00"
+vid_date: "2021-09-09T17:59:08Z"
+duration: "PT16M16S"
+viewcount: "514"
+likeCount: "18"
+dislikeCount: ""
+channel: "Forex Lens"
+---
+{% raw %}Using Previous Day's Highs and Lows for Forex trading setups<br /><br /><br />Learn how to use the Previous day's High and Lows for good trade ideas that are high risk to reward and high probability. Learn more by joining our Pro Trader Membership! <br /><br /><br /><br />CONNECT WITH US:<br /><br />Chat with us on Discord: <br /><a rel="nofollow" target="blank" href="https://forexlens.com/discord">https://forexlens.com/discord</a><br /><br />Book a call and find out if we're the right fit for you!<br /><a rel="nofollow" target="blank" href="https://calendly.com/forexlensinc/tour">https://calendly.com/forexlensinc/tour</a><br /><br />Follow our trading analysis on TradingView: <br /><a rel="nofollow" target="blank" href="https://tradingview.com/u/forexlens">https://tradingview.com/u/forexlens</a><br /><br />Follow Forex Lens on Twitter: <br /><a rel="nofollow" target="blank" href="https://twitter.com/forexlens">https://twitter.com/forexlens</a><br /><br />Follow Forex Lens on Instagram: <br /><a rel="nofollow" target="blank" href="https://instagram.com/theforexlens">https://instagram.com/theforexlens</a><br /><br /><br />Any and all information presented or shared by Forex Lens Inc., operating as Forex Lens, should never be taken as, or mistaken for financial advice. All content, (including but not limited to videos, live sessions, videos, trade ideas, notifications, Discord messages and emails), including any translations in different languages should be used only for educational, entertainment or informational viewing purposes. At no point does Forex Lens, its associates, employees or traders make any financial claims or guarantees, and past performance does not guarantee future results.<br /><br />Forex and/or Crypto trading (especially on margin) carries a high level of risk and may not be suitable for all investors. The high degree of leverage can work for you as well as against you. Before deciding to invest in foreign exchange, you should carefully consider your investment objectives, level of experience, and risk appetite. The possibility exists that you could sustain a loss of some or all of your initial investment and, therefore, you should not invest money that you cannot afford to lose. You should be aware of all the risks associated with off-exchange foreign currency trading and seek advice from an independent financial advisor if you have any doubts.<br /><br /><br />Forex Lens - Your Eye into the Markets<br /><a rel="nofollow" target="blank" href="https://forexlens.com">https://forexlens.com</a>{% endraw %}
