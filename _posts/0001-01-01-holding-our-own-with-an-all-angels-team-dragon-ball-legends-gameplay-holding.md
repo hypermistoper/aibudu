@@ -1,0 +1,15 @@
+---
+title: "HOLDING OUR OWN WITH AN ALL ANGELS TEAM!!! Dragon Ball Legends Gameplay!"
+image: "https:\/\/i.ytimg.com\/vi\/L5oZ17gDBBE\/hqdefault.jpg"
+vid_id: "L5oZ17gDBBE"
+categories: "Gaming"
+tags: ["HOLDING OUR OWN WITH AN ALL ANGELS TEAM!!! Dragon Ball Legends Gameplay!","dragon ball legends sparking whis","dragon ball legends f2p sparking ssj trunks"]
+date: "2022-04-18T01:45:59+03:00"
+vid_date: "2022-04-17T21:00:07Z"
+duration: "PT20M20S"
+viewcount: "4279"
+likeCount: "556"
+dislikeCount: ""
+channel: "Ndukauba"
+---
+{% raw %}HOLDING OUR OWN WITH AN ALL ANGELS TEAM!!! Dragon Ball Legends Gameplay! Since Sparking Whis has released in Dragon Ball Legends, I wanted to try using him in some online PvP battles on an all Angels team with Sparking Vados and Extreme Whis! Enjoy!<br /><br />If you enjoyed this video, don't forget to like the video, share it, and subscribe to my channel!<br /><br />You like what you see? Subscribe here!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/subscription_center?add_user=ndukauba1">https://www.youtube.com/subscription_center?add_user=ndukauba1</a><br /><br />Want to know when my next video will be up? Follow me on Twitter!<br /><a rel="nofollow" target="blank" href="https://twitter.com/NdukaubaYT">https://twitter.com/NdukaubaYT</a><br /><br />Want to see me play games live? Catch all of my livestreams on Twitch!<br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/ndukauba">https://www.twitch.tv/ndukauba</a><br /><br />For business inquiries, contact me here:<br /><a rel="nofollow" target="blank" href="https://ndukaubayt@gmail.com">https://ndukaubayt@gmail.com</a><br /><br />Get your official Ndukauba merch here!<br /><a rel="nofollow" target="blank" href="https://teespring.com/stores/ndukauba">https://teespring.com/stores/ndukauba</a><br /><br />Wants some Dragon Ball figures? Check out Zenmarket here!<br /><a rel="nofollow" target="blank" href="https://zenmarket.jp/en/showcase/ndukauba-page-sign-up?affid=CDC1B78D">https://zenmarket.jp/en/showcase/ndukauba-page-sign-up?affid=CDC1B78D</a><br /><br />Get 10% off a DXRacer chair with the code &quot;ndukauba&quot;!<br /><a rel="nofollow" target="blank" href="https://dxr.us/Ndukauba">https://dxr.us/Ndukauba</a><br /><br />Get a 30-day free VRV trial now for ad-free access to all your favorite shows, anime, and cartoons using my link!<br /><a rel="nofollow" target="blank" href="https://bit.ly/Ndukauba">https://bit.ly/Ndukauba</a><br /><br />Save $3 off any order over $20 or more on play-asia.com with the code KAUBA (code will not work with cash equivalent items such as PSN cards, Nintendo Network cards, etc.)<br /><a rel="nofollow" target="blank" href="http://www.play-asia.com/?affiliate_id=1553483&amp;tagid=1553483">http://www.play-asia.com/?affiliate_id=1553483&amp;tagid=1553483</a><br /><br />Intro Song made by Jordyn Edmonds<br /><a rel="nofollow" target="blank" href="https://smarturl.it/jordynedmonds">https://smarturl.it/jordynedmonds</a>{% endraw %}
