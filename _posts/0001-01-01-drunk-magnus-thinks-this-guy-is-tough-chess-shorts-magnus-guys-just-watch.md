@@ -1,0 +1,15 @@
+---
+title: "Drunk Magnus thinks this guy is tough #chess #shorts #magnus"
+image: "https:\/\/i.ytimg.com\/vi\/nyIdsOFWA6s\/hqdefault.jpg"
+vid_id: "nyIdsOFWA6s"
+categories: "Gaming"
+tags: ["chess","lichess","alireza"]
+date: "2022-04-17T13:00:20+03:00"
+vid_date: "2022-04-16T19:44:20Z"
+duration: "PT50S"
+viewcount: "12791"
+likeCount: "347"
+dislikeCount: ""
+channel: "ChessBoyz"
+---
+{% raw %}Guys just watch and enjoy.Have fun. LIKE SHARE AND SUBSCRIBE.<br />Watch this videos on SUPER Hard Chess Compositions-<br /> HYPER Activated Knight With Forking Technology- <br /><a rel="nofollow" target="blank" href="https://youtu.be/MhBgzh8rad4">https://youtu.be/MhBgzh8rad4</a><br /> <br />BRILLIANT Move BUT It is LOSING- <br /><a rel="nofollow" target="blank" href="https://youtu.be/sWZ6DU8ub80">https://youtu.be/sWZ6DU8ub80</a><br /><br />STOCKFISH MISSED THIS WILD CHECKMATE- <br /><a rel="nofollow" target="blank" href="https://youtu.be/KqoxLTTFrGQ">https://youtu.be/KqoxLTTFrGQ</a><br /><br />HIKARU AND QUADRUPLE STAIRCASE- <br /><a rel="nofollow" target="blank" href="https://youtu.be/Fm0H4HiEZMw">https://youtu.be/Fm0H4HiEZMw</a><br /><br />Quintuple Knight Underpromotion and Pawn Cube- <br /><a rel="nofollow" target="blank" href="https://youtu.be/jEWpSlYhJ1Q">https://youtu.be/jEWpSlYhJ1Q</a><br /><br />BLUNDER BUT BRILLIANT- <br /><a rel="nofollow" target="blank" href="https://youtu.be/LXFUwi08uvs">https://youtu.be/LXFUwi08uvs</a><br /><br />CORONA Affected Chess Puzzle- <br /><a rel="nofollow" target="blank" href="https://youtu.be/RojS6vzeu5E">https://youtu.be/RojS6vzeu5E</a><br /><br />STOCKFISH DEAD (32 Bishop PARADOX)- <br /><a rel="nofollow" target="blank" href="https://youtu.be/ctOW-7cONQQ">https://youtu.be/ctOW-7cONQQ</a><br /><br />ONLY FOR GENIUS DUDES- <br /><a rel="nofollow" target="blank" href="https://youtu.be/qypJsFuMn64">https://youtu.be/qypJsFuMn64</a><br /><br />Check Out this videos. If you enjoy Chess compositions then these videos are really cool. Thanks for reading.<br />Check some of our ultimate videos-<br />1.White to move mate in 290 moves<br /><a rel="nofollow" target="blank" href="https://youtu.be/mSMsN5hhVo8">https://youtu.be/mSMsN5hhVo8</a><br /><br />2.God level chess puzzle<br /><a rel="nofollow" target="blank" href="https://youtu.be/8qFJCyxiIUQ">https://youtu.be/8qFJCyxiIUQ</a><br /><br />3.Ultimate chess puzzle-<br /><a rel="nofollow" target="blank" href="https://youtu.be/pVtdQx3zJ8c">https://youtu.be/pVtdQx3zJ8c</a><br /><br />4.Mate in 2 super hard puzzle-<br /><a rel="nofollow" target="blank" href="https://youtu.be/NOM57Ys9d6w">https://youtu.be/NOM57Ys9d6w</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/OZM-YLdHoAs">https://youtu.be/OZM-YLdHoAs</a><br /><br />5.Blockading chess puzzle<br /><a rel="nofollow" target="blank" href="https://youtu.be/8gBdE1Yvv88">https://youtu.be/8gBdE1Yvv88</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/XiDy_5aPrvY">https://youtu.be/XiDy_5aPrvY</a><br /><br />Check out this videos. You are not going to regret it.<br />GOD SAVE THE KING!!{% endraw %}
