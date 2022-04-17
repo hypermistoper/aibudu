@@ -1,0 +1,15 @@
+---
+title: "Papacy Merchants Programming and Re-Engineered Human Beings. Digital Dollar Destroys Free Speech"
+image: "https:\/\/i.ytimg.com\/vi\/bqWBIcdM9Jo\/hqdefault.jpg"
+vid_id: "bqWBIcdM9Jo"
+categories: "People-Blogs"
+tags: ["Bible","covid-19","coronavirus"]
+date: "2022-04-17T03:02:27+03:00"
+vid_date: "2022-04-16T21:27:18Z"
+duration: "PT1H12M38S"
+viewcount: "380"
+likeCount: "49"
+dislikeCount: ""
+channel: "Amazing Word Ministries"
+---
+{% raw %}TO MAKE A DONATION, PLEASE USE THE OPTIONS BELOW OR CALL US:<br />► PayPal Donation Link: <a rel="nofollow" target="blank" href="https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=AZFUZDSQASRDJ">https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=AZFUZDSQASRDJ</a><br />► ZELLE, Use This email address: immanuel.1@hotmail.com<br />► CashApp: $AmazingWord<br />► SEND CHECK OR MONEY ORDER TO THE FOLLOWING ADDRESS: <br />Amazing Word Ministries <br />PO Box 1111 <br />Bonners Ferry, Idaho 83805<br />United States<br />Phone # 503-985-8520 <br />Email: info@amazingwordministries.com<br />Second Email: immanuel.1@hotmail.com<br />WEBSITE: <a rel="nofollow" target="blank" href="http://amazingwordministries.org/">http://amazingwordministries.org/</a><br /><br />SUBSCRIBE TO OUR BACKUP CHANNELS: <br />► UGETUBE CHANNEL: <a rel="nofollow" target="blank" href="https://videos.utahgunexchange.com/@Amazing%20Word%20Ministries">https://videos.utahgunexchange.com/@Amazing%20Word%20Ministries</a><br />► BITCHUTE CHANNEL: <a rel="nofollow" target="blank" href="https://www.bitchute.com/channel/LhXZTBNp1HRD/">https://www.bitchute.com/channel/LhXZTBNp1HRD/</a><br />► BRIGHTEON: <a rel="nofollow" target="blank" href="https://www.brighteon.com/channels/amazingword">https://www.brighteon.com/channels/amazingword</a><br />► RUMBLE: <a rel="nofollow" target="blank" href="https://rumble.com/c/c-832545">https://rumble.com/c/c-832545</a><br />► FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/Amazing-Word-Ministries-146022572118801/">https://www.facebook.com/Amazing-Word-Ministries-146022572118801/</a><br />► VIMEO <a rel="nofollow" target="blank" href="https://vimeo.com/user14345133">https://vimeo.com/user14345133</a><br />► Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Amazingwordmini">https://twitter.com/Amazingwordmini</a><br />► YOUTUBE BACKUP CHANNEL: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC-1owGpaIsw8bybwOKZUuFA">https://www.youtube.com/channel/UC-1owGpaIsw8bybwOKZUuFA</a><br />► YOUTUBE BACKUP CHANNEL: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCntXqAAWrk26oq1AjKtohJQ">https://www.youtube.com/channel/UCntXqAAWrk26oq1AjKtohJQ</a><br /><br />THANK YOU FOR YOUR PRAYERS AND SUPPORT...!!!!<br /><br />Sincerely!<br />Pr. Emmanuel Nougaisse<br /><br />&quot;For so hath the Lord commanded us, saying, 'I have set thee to be a light of the Gentiles, that thou shouldest bring salvation unto the ends of the earth.&quot; - Acts 13:47{% endraw %}
