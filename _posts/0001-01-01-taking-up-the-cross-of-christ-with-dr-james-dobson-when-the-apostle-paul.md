@@ -1,0 +1,15 @@
+---
+title: "Taking Up the Cross of Christ with Dr. James Dobson"
+image: "https:\/\/i.ytimg.com\/vi\/MOfNqCfRF64\/hqdefault.jpg"
+vid_id: "MOfNqCfRF64"
+categories: "Nonprofits-Activism"
+tags: ["Dr. James Dobson","Easter","Taking Up the Cross of Christ"]
+date: "2022-04-18T06:52:33+03:00"
+vid_date: "2022-04-15T10:00:23Z"
+duration: "PT25M59S"
+viewcount: "573"
+likeCount: "40"
+dislikeCount: ""
+channel: "Dr. James Dobson's Family Talk"
+---
+{% raw %}When the Apostle Paul encouraged the believers in Philippi to &quot;rejoice in the Lord always,” and to “be anxious for nothing,” he wasn’t writing in ideal circumstances. In fact, he was under house arrest in Rome. He had also survived being whipped, shipwrecked, and stoned. On today’s Good Friday edition of Family Talk, Dr. James Dobson reminds us that Jesus said, &quot;If anyone would come after Me, he must deny himself and take up his cross and follow Me.” Like Paul, we need to learn the secret of contentment by trusting God no matter the circumstance. <br /> <br />About Today's Guest: Dr. James Dobson<br />Dr. James Dobson is the founder and president of the Dr. James Dobson Family Institute, a nonprofit organization that produces his radio program, &quot;Family Talk,&quot; which is heard on more than 1,400 outlets daily. He holds a Ph.D. in child development and research design from the University of Southern California School of Medicine, and is the author and co-author of 70 books. Dr. Dobson served as an associate clinical professor of pediatrics at the University of Southern California School of Medicine for 14 years, and served on the attending staff of Children’s Hospital of Los Angeles for 17 years. He has advised five U.S. Presidents and served on eight national commissions. In 2008 he was inducted into The National Radio Hall of Fame. Dr. Dobson has been married to Shirley for 61 years, and they have two grown children, Danae and Ryan, and two grandchildren. <br /><br /><br />For more information and to connect with all resources mentioned –  <a rel="nofollow" target="blank" href="http://drjamesdobson.org/broadcast/2022-04-15">http://drjamesdobson.org/broadcast/2022-04-15</a><br /><br /><br />Family Talk Station Finder – <a rel="nofollow" target="blank" href="http://bit.ly/FYT_StationFinder">http://bit.ly/FYT_StationFinder</a><br /><br />-----<br /><br />Visit our website: <a rel="nofollow" target="blank" href="http://www.drjamesdobson.org">http://www.drjamesdobson.org</a><br />Find us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DrJamesDobsonsFamilyTalk">https://www.facebook.com/DrJamesDobsonsFamilyTalk</a><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/DrJamesDobsonFT">https://twitter.com/DrJamesDobsonFT</a><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/drjamesdobsonft/">https://www.instagram.com/drjamesdobsonft/</a><br />Listen to Family Talk on Alexa: <a rel="nofollow" target="blank" href="http://www.drjamesdobson.org/alexa">http://www.drjamesdobson.org/alexa</a>{% endraw %}
