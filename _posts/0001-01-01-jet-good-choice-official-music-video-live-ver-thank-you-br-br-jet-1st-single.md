@@ -1,0 +1,15 @@
+---
+title: "JET - GOOD CHOICE 【Official Music Video】森でLive ver."
+image: "https:\/\/i.ytimg.com\/vi\/cwATlJZwgd0\/hqdefault.jpg"
+vid_id: "cwATlJZwgd0"
+categories: "People-Blogs"
+tags: ["CHOICE","【Official","Music"]
+date: "2022-04-19T01:49:23+03:00"
+vid_date: "2022-04-16T11:00:23Z"
+duration: "PT3M12S"
+viewcount: "1591"
+likeCount: "95"
+dislikeCount: ""
+channel: "KOMEBOUYAKUN"
+---
+{% raw %}Thank you!!<br /><br />JET 1st Single 各種配信サイト→<a rel="nofollow" target="blank" href="https://linkco.re/DZBeMXfC?lang=ja">https://linkco.re/DZBeMXfC?lang=ja</a><br /><br />Lyrics by JET : <a rel="nofollow" target="blank" href="https://www.instagram.com/life_is_jet/">https://www.instagram.com/life_is_jet/</a><br /><br />Music prod by MOOD-IR : <a rel="nofollow" target="blank" href="https://www.instagram.com/mood_ir_beats/">https://www.instagram.com/mood_ir_beats/</a><br /><br />MusicVideo prod by Ryusei &amp; JET : <a rel="nofollow" target="blank" href="https://www.instagram.com/ryusei99s/">https://www.instagram.com/ryusei99s/</a><br /><br />1st ALBUM coming soon!!<br /><br />ーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーーー<br /><br />KOMEBOUYAKUN<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/komebouyakun999?igshid=1lfsyudhxjpz5">https://instagram.com/komebouyakun999?igshid=1lfsyudhxjpz5</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/komebouyakun999?s=21">https://twitter.com/komebouyakun999?s=21</a><br />Booking:komebouyakun@gmail.com<br /><br />JET<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/life_is_jet?igshid=veoaiugbcc3g">https://instagram.com/life_is_jet?igshid=veoaiugbcc3g</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/life_is_jet?s=21">https://twitter.com/life_is_jet?s=21</a><br /><br />Lyric<br /><br />先は分からない俺らなりに<br />かませば良い<br />Bad thingだってeasy<br />間違う事もあるけれど<br />自分に言い聞かせてみろよ<br />いつも俺らはGood Choice<br />どっち転んだってGood Choice<br />たとえお先真っ暗になっても<br />枕濡らしてる暇があるなら考えろ<br />Good Choice<br />明日は笑顔でGood Morningって言えるように<br />This is my life<br />迷ってるんだったら絶対楽しい方が良い<br />選択肢で溢れてるmy life<br />もぉ脳がパンクしちゃいそうなくらい<br />いっそCyberpunkの様に狂った世界で<br />抜かりない人生送りたいぜ<br />でも実際全部上手くいっても<br />欲しい物も金も手に入ったとしても<br />その「モノ」の価値を見失い<br />チート使ったゲームみたく無いやりがい<br />どうかしちゃうよ<br />どうかしちゃうよ<br />人じゃない何かと同化しちゃうよ<br />思い返せばあの時の方が辛かったかも<br />Wake up<br />そろそろだ<br />時間は<br />止まらない<br />君の思うがまま選び言い聞かせろよ<br />いつも俺らはGood Choice<br />どっち転んだってGood Choice<br />たとえお先真っ暗になっても<br />枕濡らしてる暇があるなら考えろ<br />Good Choice<br />明日は笑顔でGood Morningって言えるように<br />This is my life<br />迷ってるんだったら絶対楽しい方が良い<br />もしも選択がBad Choiceだとしても<br />一旦邪念をかっ飛ばしNext Levelに繋げろ<br />大事なのは次の行動<br />探せ方法<br />暗中模索でも咲く花を探す旅<br />それが人生<br />人間一線を越えれる度<br />また死ぬ時思い出す思い出刻み<br />きっと意味があったとまた溢れ出る涙<br />どうかしちゃうよ<br />どうかしちゃうよ<br />外野の声なんてどかしちゃえよ<br />最後に決めるのは自分自身しかいねぇだろ<br />Make up one's mind<br />俺らは<br />止まれない<br />縦横無尽に描いたThis songがBest answer<br />いつも俺らはGood Choice<br />どっち転んだってGood Choice<br />たとえお先真っ暗になっても<br />枕濡らしてる暇があるなら考えろ<br />Good Choice<br />明日は笑顔でGood Morningって言えるように<br />This is my life<br />迷ってるんだったら絶対楽しい方が良い{% endraw %}
