@@ -1,0 +1,15 @@
+---
+title: "My Wife Said These Were Valuable!"
+image: "https:\/\/i.ytimg.com\/vi\/MKd3JlBtY48\/hqdefault.jpg"
+vid_id: "MKd3JlBtY48"
+categories: "People-Blogs"
+tags: ["Resell","reselling","sales"]
+date: "2022-04-18T03:50:10+03:00"
+vid_date: "2022-04-17T15:10:35Z"
+duration: "PT10M41S"
+viewcount: "2741"
+likeCount: "464"
+dislikeCount: ""
+channel: "Vincents Valuables"
+---
+{% raw %}~MERCH: <a rel="nofollow" target="blank" href="https://vincents-valuables.creator-spring.com/">https://vincents-valuables.creator-spring.com/</a><br />~Ebay Store (Vincent's Valuables): <a rel="nofollow" target="blank" href="https://www.ebay.com/str/vincentsvaluables">https://www.ebay.com/str/vincentsvaluables</a><br />~Facebook: Vincent Peraino<br />~PO Box: <br />Vincents Valuables<br />PO Box 1007<br />320 N Verity PKWY<br />Middletown, OH 45042-0707<br /><br />~Things I Use (Affiliate Links):<br /><br />Shopping Cart/Wagon: <a rel="nofollow" target="blank" href="https://amzn.to/3yZNzKe">https://amzn.to/3yZNzKe</a><br />GoPro Hero 9 Black: <a rel="nofollow" target="blank" href="https://amzn.to/3sAKEDj">https://amzn.to/3sAKEDj</a><br />Rollo Label Printer: <a rel="nofollow" target="blank" href="https://amzn.to/3xcBUH7">https://amzn.to/3xcBUH7</a><br />4x6 Labels: <a rel="nofollow" target="blank" href="https://amzn.to/3emWj3F">https://amzn.to/3emWj3F</a><br />Tabletop Tape Dispenser: <a rel="nofollow" target="blank" href="https://amzn.to/2RV5sJh">https://amzn.to/2RV5sJh</a><br />Tape Gun: <a rel="nofollow" target="blank" href="https://amzn.to/2RVcbTu">https://amzn.to/2RVcbTu</a><br />Packing Tape: <a rel="nofollow" target="blank" href="https://amzn.to/3tHOGLx">https://amzn.to/3tHOGLx</a><br />Shipping Scale: <a rel="nofollow" target="blank" href="https://amzn.to/2RWkmin">https://amzn.to/2RWkmin</a><br />Bubble Mailers: <a rel="nofollow" target="blank" href="https://amzn.to/3ekzzBi">https://amzn.to/3ekzzBi</a><br />Poly Mailers: <a rel="nofollow" target="blank" href="https://amzn.to/3naf5z5">https://amzn.to/3naf5z5</a><br />Packing Paper: <a rel="nofollow" target="blank" href="https://amzn.to/3axWzvs">https://amzn.to/3axWzvs</a><br />Packing Paper Dispenser: <a rel="nofollow" target="blank" href="https://amzn.to/32EIY1f">https://amzn.to/32EIY1f</a><br />Boxes: <a rel="nofollow" target="blank" href="https://amzn.to/32yV7Vm">https://amzn.to/32yV7Vm</a><br />Shoe Cleaner: <a rel="nofollow" target="blank" href="https://amzn.to/2QLNMiy">https://amzn.to/2QLNMiy</a><br /><br />Music Used In This Video (Outro):<br />––––––––––––––––––––––––––––––<br />Time Out - Atch <a rel="nofollow" target="blank" href="https://soundcloud.com/atch-music">https://soundcloud.com/atch-music</a><br />Creative Commons — Attribution 3.0 Unported — CC BY 3.0<br />Free Download / Stream: <a rel="nofollow" target="blank" href="http://bit.ly/l-time-out">http://bit.ly/l-time-out</a><br />Music promoted by Audio Library <a rel="nofollow" target="blank" href="https://youtu.be/NPnLxESfv50">https://youtu.be/NPnLxESfv50</a><br />––––––––––––––––––––––––––––––{% endraw %}
