@@ -1,0 +1,15 @@
+---
+title: "Why Hasn’t A Defensive Back Ever Gone #1 in the NFL Draft?"
+image: "https:\/\/i.ytimg.com\/vi\/LnGyxPpI0bA\/hqdefault.jpg"
+vid_id: "LnGyxPpI0bA"
+categories: "Sports"
+tags: ["Why Hasn’t A Defensive Back Ever Gone #1 in the NFL Draft?","Deion Sanders","Deion Sanders draft"]
+date: "2022-04-18T05:10:52+03:00"
+vid_date: "2022-04-17T21:28:03Z"
+duration: "PT17M17S"
+viewcount: "9822"
+likeCount: "871"
+dislikeCount: ""
+channel: "ThatsGoodSports"
+---
+{% raw %}Why Hasn’t A Defensive Back Ever Gone #1 in the NFL Draft? Digging back to 1989 &amp; Deion Sanders ThatsGoodSports tries to answer why a cornerback or safety has never been picked 1st. Go to blublox.com/thatsgoodsports &amp; use code thatsgoodsports for 20% off<br /><br />Subscribe:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/thatsgoodsports?sub_confirmation=1">https://www.youtube.com/user/thatsgoodsports?sub_confirmation=1</a><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCew5br5cO1ZKO7Z_F1WA8Bg/join">https://www.youtube.com/channel/UCew5br5cO1ZKO7Z_F1WA8Bg/join</a><br /><br />Benchwarmer Brew:<br /><a rel="nofollow" target="blank" href="https://benchwarmerbrew.com/">https://benchwarmerbrew.com/</a><br />BenchwarmerBrew Socials:<br />Twitter: @BenchwarmerBrew<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/benchwarmerbrew/">https://www.instagram.com/benchwarmerbrew/</a> <br />MERCH: <a rel="nofollow" target="blank" href="https://thats-good-sports-merch.creator-spring.com/">https://thats-good-sports-merch.creator-spring.com/</a><br />Charity: <a rel="nofollow" target="blank" href="http://act.alz.org/goto/thatsgoodsports">http://act.alz.org/goto/thatsgoodsports</a><br /><br />Writing Help by Will Keys @GuillermoLlaves<br />#Draft #1 #NFLDraft #Deion #Champ #Revis #Reed #Woodson #Cornerback #Safety #NFLDraftHistory #NFL #NFLNews #Breaking #thatsgoodsports #BrandonPerna <br />That’s Good Sports discusses NFL, USFL &amp; XFL news &amp; highlights. Defensive backs have won defensive player of the year, Super Bowl MVP, but gnome have been named the first overall pick in the NFL draft. Hall of Fame players like Champ Bailey, Ed Reed, Troy Polamalu, Charles Woodson, Rod Woodson, John Lynch none were even top 5 picks. Deion Sanders was the 5th pick taken in 1989.<br /><br />Patreon Website:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/thatsgoodsports">https://www.patreon.com/thatsgoodsports</a><br />PODCAST:<br /><a rel="nofollow" target="blank" href="https://thats-good-sports-podcast.simplecast.com/">https://thats-good-sports-podcast.simplecast.com/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/BrandonPerna">https://twitter.com/BrandonPerna</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/thatsgoodbroncos">https://www.facebook.com/thatsgoodbroncos</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/brandonperna">http://instagram.com/brandonperna</a><br /><br />PAID SPONSORS:{% endraw %}
