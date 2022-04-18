@@ -1,0 +1,15 @@
+---
+title: "Your ULTIMATE PUTTING Guide.....The Lost Art of Putting"
+image: "https:\/\/i.ytimg.com\/vi\/YO8lUKSpO9w\/hqdefault.jpg"
+vid_id: "YO8lUKSpO9w"
+categories: "Sports"
+tags: ["Golf swing","Golf lesson","Golf tips"]
+date: "2022-04-18T19:00:12+03:00"
+vid_date: "2018-10-25T17:00:02Z"
+duration: "PT9M26S"
+viewcount: "58359"
+likeCount: "1846"
+dislikeCount: ""
+channel: "Peter Finch Golf"
+---
+{% raw %}Full ULTIMATE Putting Guide Playlist ► <a rel="nofollow" target="blank" href="https://bit.ly/2q5KgPA">https://bit.ly/2q5KgPA</a><br /><br />Your ULTIMATE Putting Guide ► <a rel="nofollow" target="blank" href="http://bit.ly/2z6Ha1Y">http://bit.ly/2z6Ha1Y</a><br />The NEW GRIP to cure your putting nerves ► <a rel="nofollow" target="blank" href="http://bit.ly/2EMHyJ3">http://bit.ly/2EMHyJ3</a><br />Change ONE THING about your putting ► <a rel="nofollow" target="blank" href="http://bit.ly/2qbYuOE">http://bit.ly/2qbYuOE</a><br />THIS CHANGES EVERYTHING - Line vs Pace ► <a rel="nofollow" target="blank" href="http://bit.ly/2CFiosR">http://bit.ly/2CFiosR</a><br />Green Reading Made Simple ► <a rel="nofollow" target="blank" href="http://bit.ly/2CEMsVA">http://bit.ly/2CEMsVA</a><br />Which Putter Will Work For You? ► <a rel="nofollow" target="blank" href="http://bit.ly/2ArzNUr">http://bit.ly/2ArzNUr</a> <br /><br />In this first video of the Lost Art of Putting series me and performance coach Karl Morris talk through the first stages of becoming a great putter by looking at how you can change your putting story.  <br /><br />For more information on Karl visit here ► <a rel="nofollow" target="blank" href="https://themindfactor.net/">https://themindfactor.net/</a><br /><br />►Become a FREE SUBSCRIBER to PETER FINCH now <br /><a rel="nofollow" target="blank" href="http://bit.ly/SubscribePFGolf">http://bit.ly/SubscribePFGolf</a><br /><br />►Book Lesson With PETER FINCH at Quest Golf here <a rel="nofollow" target="blank" href="http://bit.ly/1OkIdKM">http://bit.ly/1OkIdKM</a><br /><br />►Feel free to comment below! <br />►Remember to hit that LIKE button if you enjoyed it :) <br />►NEW VIDEO EVERY DAY ON MY CHANNEL<br />----------------------------------------­----------------------------------------­---<br />►My Links:<br />Facebook ► <a rel="nofollow" target="blank" href="http://bit.ly/1WWf5jR">http://bit.ly/1WWf5jR</a><br />Twitter ► <a rel="nofollow" target="blank" href="http://bit.ly/1ZygHiY">http://bit.ly/1ZygHiY</a><br />Instagram ► <a rel="nofollow" target="blank" href="http://bit.ly/1WlhRRa">http://bit.ly/1WlhRRa</a><br />Web ► <a rel="nofollow" target="blank" href="http://bit.ly/1ZygU5B">http://bit.ly/1ZygU5B</a><br />----------------------------------------­----------------------------------------­--<br /><br />I deliver straight talking, easy to follow, honest, professional, calculated advice to all of my viewers from beginner to tour pro. This tried and tested method of coaching has helped many golfers achieve their personal goals and beyond.{% endraw %}
