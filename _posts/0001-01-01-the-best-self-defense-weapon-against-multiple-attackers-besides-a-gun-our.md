@@ -1,0 +1,15 @@
+---
+title: "The Best Self Defense Weapon Against Multiple Attackers (Besides a Gun)"
+image: "https:\/\/i.ytimg.com\/vi\/AYRTBt-UCzg\/hqdefault.jpg"
+vid_id: "AYRTBt-UCzg"
+categories: "Sports"
+tags: ["hard2hurt","icy mike","rkm training"]
+date: "2022-04-18T15:53:59+03:00"
+vid_date: "2020-12-09T14:31:30Z"
+duration: "PT11M43S"
+viewcount: "262053"
+likeCount: "8169"
+dislikeCount: ""
+channel: "hard2hurt"
+---
+{% raw %}Our top pick (by far): <a rel="nofollow" target="blank" href="https://amzn.to/3q9Q1cN">https://amzn.to/3q9Q1cN</a><br />Number two pick (speculative): <a rel="nofollow" target="blank" href="https://amzn.to/39q7zv5">https://amzn.to/39q7zv5</a><br /><br />Other weapons featured in this video:<br /><br />The Schrade Priscilla machete: <a rel="nofollow" target="blank" href="https://amzn.to/3fJdDjA">https://amzn.to/3fJdDjA</a><br />Vipertek Stun Gun Flashlight: <a rel="nofollow" target="blank" href="https://amzn.to/3q9RgZv">https://amzn.to/3q9RgZv</a><br />Taser Pulse: <a rel="nofollow" target="blank" href="https://amzn.to/3q9766D">https://amzn.to/3q9766D</a><br />Cold Steel Buckler: <a rel="nofollow" target="blank" href="https://amzn.to/3ljaHLC">https://amzn.to/3ljaHLC</a><br /><br />There are discounts on some of these and more self defense weapons and gear at Big Daddy Unlimited. Get more information on how that works at <a rel="nofollow" target="blank" href="http://www.hard2hurt.com/bdu">http://www.hard2hurt.com/bdu</a><br /><br />Check out USCCA for self defense training, knowledge and legal protection at  <a rel="nofollow" target="blank" href="http://www.usccapartners.com/hard2hurt">http://www.usccapartners.com/hard2hurt</a><br /><br />Please consider supporting hard2hurt and get exclusive content available only on Patreon.<br /><br /><a rel="nofollow" target="blank" href="http://www.patreon.com/icymikep">http://www.patreon.com/icymikep</a><br /><br /><br />Follow Mike:<br /><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/icymikep">http://www.facebook.com/icymikep</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/IcyMikeP">https://twitter.com/IcyMikeP</a><br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/icymikep">http://www.instagram.com/icymikep</a><br />My Kit: <a rel="nofollow" target="blank" href="http://www.kit.co/icymikep">http://www.kit.co/icymikep</a><br />Podcast: <a rel="nofollow" target="blank" href="https://icymike.podbean.com/">https://icymike.podbean.com/</a><br /><br />DISCLAIMER: This video and description contain affiliate links, which means that if you click on them, hard2hurt receives a small commission. This helps support the hard2hurt channel and allows us to continue to make videos like this. Thanks for supporting us and stay hard2hurt.<br /><br />Music:<br /><br />Title Song is Lying Low<br />Royalty Free music by <a rel="nofollow" target="blank" href="https://www.contimusic.com">https://www.contimusic.com</a>{% endraw %}
