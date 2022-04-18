@@ -1,0 +1,15 @@
+---
+title: "COVID-19: Lockdown anger spreads throughout Chinese cities"
+image: "https:\/\/i.ytimg.com\/vi\/dvN8fSNkRNY\/hqdefault.jpg"
+vid_id: "dvN8fSNkRNY"
+categories: "News-Politics"
+tags: ["Sky News","Sky","China"]
+date: "2022-04-18T04:08:16+03:00"
+vid_date: "2022-04-11T20:25:51Z"
+duration: "PT3M2S"
+viewcount: "87055"
+likeCount: "1034"
+dislikeCount: ""
+channel: "Sky News"
+---
+{% raw %}Shanghai has reported a new record of more than 26,000 COVID cases in 24 hours as officials seek to reassure residents they have secured enough supplies of basic necessities.<br /><br />Other cities around China, including the southern city of Guangzhou, are introducing new restrictions and building makeshift hospitals as the government continues to stick to its &quot;dynamic zero COVID policy&quot;.<br /><br />China's official news agency Xinhua said on Sunday that to ease the policy would be &quot;disastrous&quot;.<br /><br />For the latest developments: <a rel="nofollow" target="blank" href="https://qrcode.skynews.com/skynews/ukraineblog">https://qrcode.skynews.com/skynews/ukraineblog</a><br /><br />SUBSCRIBE to our YouTube channel for more videos: <a rel="nofollow" target="blank" href="http://www.youtube.com/skynews">http://www.youtube.com/skynews</a> <br /><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/skynews">https://twitter.com/skynews</a> <br />Like us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/skynews">https://www.facebook.com/skynews</a> <br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/skynews">https://www.instagram.com/skynews</a> <br />Follow us on TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@skynews">https://www.tiktok.com/@skynews</a><br /><br />For more content go to <a rel="nofollow" target="blank" href="http://news.sky.com">http://news.sky.com</a> and download our apps: <br />Apple: <a rel="nofollow" target="blank" href="https://itunes.apple.com/gb/app/sky-news/id316391924?mt=8">https://itunes.apple.com/gb/app/sky-news/id316391924?mt=8</a> <br />Android <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=com.bskyb.skynews.android&amp;hl=en_GB">https://play.google.com/store/apps/details?id=com.bskyb.skynews.android&amp;hl=en_GB</a> <br /><br />Sky News videos are now available in Spanish here/Los video de Sky News están disponibles en español aquí <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/skynewsespanol">https://www.youtube.com/channel/skynewsespanol</a><br />Sky News videos are also available in German here/Hier können Sie außerdem Sky News-Videos auf Deutsch finden: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHYg31l2xrF-Bj859nsOfnA">https://www.youtube.com/channel/UCHYg31l2xrF-Bj859nsOfnA</a><br /><br />To enquire about licensing Sky News content, you can find more information here:  <a rel="nofollow" target="blank" href="https://news.sky.com/info/library-sales">https://news.sky.com/info/library-sales</a>{% endraw %}
