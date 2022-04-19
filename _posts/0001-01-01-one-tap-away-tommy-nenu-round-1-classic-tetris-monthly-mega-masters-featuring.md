@@ -1,0 +1,15 @@
+---
+title: "ONE TAP AWAY! Tommy Nenu | Round 1 | Classic Tetris Monthly MEGA MASTERS"
+image: "https:\/\/i.ytimg.com\/vi\/NzbhEKcEhvo\/hqdefault.jpg"
+vid_id: "NzbhEKcEhvo"
+categories: "Gaming"
+tags: ["classic tetris monthly","tetris","nes tetris"]
+date: "2022-04-20T01:48:41+03:00"
+vid_date: "2022-04-19T14:00:08Z"
+duration: "PT51M1S"
+viewcount: "1586"
+likeCount: "61"
+dislikeCount: ""
+channel: "Classic Tetris Monthly"
+---
+{% raw %}Featuring two more former champions in Tommy and Nenu, hosted by vandweller!<br /><br />Tune into our events on our official Twitch streams!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://twitch.tv/MonthlyTetris">https://twitch.tv/MonthlyTetris</a><br />   ▶︎ <a rel="nofollow" target="blank" href="https://twitch.tv/MonthlyTetris2">https://twitch.tv/MonthlyTetris2</a><br /><br />If you want to learn more about CTM or even participate in our events, join the Discord Server!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://ctm.gg/discord">https://ctm.gg/discord</a><br /><br />Contribute to the April Masters prize pool! Note: The bracket may contain spoilers.<br />   ▶︎ <a rel="nofollow" target="blank" href="https://ctm.gg/matcherino">https://ctm.gg/matcherino</a><br /><br />Support us on Patreon!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://patreon.com/vandweller">https://patreon.com/vandweller</a><br /><br />Support us by purchasing merch!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://store.streamelements.com/monthlytetris">https://store.streamelements.com/monthlytetris</a><br /><br />Support us with select Amazon purchases!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://ctm.gg/amazon">https://ctm.gg/amazon</a><br /><br />Classic Tetris Monthly is a series of monthly Nintendo Tetris tournaments, started by founding mother fridaywitch in December 2017, and resurrected by vandweller in October 2018. Nowadays, it's become the biggest online NES Tetris tournament, expanding to seven events: The Masters Event, the Challengers Circuit, the Futures Circuit, the Hopefuls Circuit, the Community Tournament, Tetris Deathmatch and Monday Night Chasedown (with more events to come!) <br /><br />Music by Flexstyle: <a rel="nofollow" target="blank" href="https://flexstyle.bandcamp.com">https://flexstyle.bandcamp.com</a><br />Hosted by vandweller: <a rel="nofollow" target="blank" href="https://twitch.tv/vandweller">https://twitch.tv/vandweller</a><br />YouTube uploads by pumpyheart and danvweller: <a rel="nofollow" target="blank" href="https://twitch.tv/pumpyheart">https://twitch.tv/pumpyheart</a> <a rel="nofollow" target="blank" href="https://twitch.tv/danvweller">https://twitch.tv/danvweller</a><br /><br />Player Twitch (as of upload date)<br />Tommy: <a rel="nofollow" target="blank" href="https://twitch.tv/TommyNTG">https://twitch.tv/TommyNTG</a><br />Nenu: <a rel="nofollow" target="blank" href="https://twitch.tv/ZefanyaNenu">https://twitch.tv/ZefanyaNenu</a>{% endraw %}
