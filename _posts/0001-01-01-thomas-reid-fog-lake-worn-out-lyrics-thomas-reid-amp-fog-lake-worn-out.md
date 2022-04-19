@@ -1,0 +1,15 @@
+---
+title: "Thomas Reid & Fog Lake - Worn Out (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/G1EOcEZgL58\/hqdefault.jpg"
+vid_id: "G1EOcEZgL58"
+categories: "Music"
+tags: ["Worn Out","Worn Out Lyrics","Thomas Reid Worn Out"]
+date: "2022-04-19T10:00:14+03:00"
+vid_date: "2021-09-19T16:10:39Z"
+duration: "PT2M41S"
+viewcount: "7715"
+likeCount: "139"
+dislikeCount: ""
+channel: "TheGoodVibe"
+---
+{% raw %}♫Thomas Reid &amp; Fog Lake - Worn Out<br />Stream &amp; Download: <a rel="nofollow" target="blank" href="https://spoti.fi/3klJISv">https://spoti.fi/3klJISv</a><br /><br />Follow Thomas Reid:<br /><a rel="nofollow" target="blank" href="https://soundcloud.com/thomasreidmusic">https://soundcloud.com/thomasreidmusic</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/thomasreidmusic">https://instagram.com/thomasreidmusic</a><br /><br />Follow Fog Lake:<br /><a rel="nofollow" target="blank" href="https://soundcloud.com/foglake">https://soundcloud.com/foglake</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/foglake_">https://instagram.com/foglake_</a><br /><br />Become our friend:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/allGoodvibe">https://www.facebook.com/allGoodvibe</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/GoodVibesAllDay">https://www.youtube.com/GoodVibesAllDay</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/allGoodvibe">https://soundcloud.com/allGoodvibe</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/good_vibe/">https://www.instagram.com/good_vibe/</a><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/user/thegoodfm">https://open.spotify.com/user/thegoodfm</a><br /><br />(Lyrics):<br />I hope you laugh a lot more now<br />You always looked so worn out<br />Hated to see your eyes like that<br /><br />I hope he’s keeping you warm now<br />Rose petals to your door how does he have all that I lack?<br /><br />I keep the photos in a box now<br />They always looked a bit washed out<br />At least to me but not to them<br />(At least to me but not to them)<br /><br />A little higher of a dose now<br />Sunrise till the sundown<br />Wouldn't know where to begin<br />(Wouldn't know where to begin)<br /><br />I hope you laugh a lot more now<br />You always looked so worn out<br />Hated to see your eyes like that<br /><br />I hope he’s keeping you warm now<br />Rose petals to your door how does he have all that I lack?<br /><br />(I hope you laugh a lot more now)<br />(You always looked so worn out)<br />(I hope you laugh a lot more now)<br /><br />Tags:<br />Worn Out<br />Worn Out Lyrics<br />Thomas Reid Worn Out<br />Worn Out Thomas Reid<br />Thomas Reid &amp; Fog Lake<br />Fog Lake &amp; Thomas Reid<br />Thomas Reid Worn Out Lyrics<br />Worn Out Thomas Reid Lyrics<br />Thomas Reid &amp; Fog Lake Lyrics<br />Fog Lake &amp; Thomas Reid Lyrics<br /><br />#ThomasReid #WornOut #Lyrics<br /><br />Contact: ypmamusic@gmail.com{% endraw %}
