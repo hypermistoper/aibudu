@@ -1,0 +1,15 @@
+---
+title: "'Utd difficult situation will not last forever! They'll STRIKE BACK' | Liverpool 4-0 Man Utd | Klopp"
+image: "https:\/\/i.ytimg.com\/vi\/wOBShzRZ8aQ\/hqdefault.jpg"
+vid_id: "wOBShzRZ8aQ"
+categories: "Sports"
+tags: ["Football","Soccer","Beanyman"]
+date: "2022-04-20T01:53:54+03:00"
+vid_date: "2022-04-19T22:11:39Z"
+duration: "PT8M45S"
+viewcount: "787"
+likeCount: "23"
+dislikeCount: ""
+channel: "BeanymanSports"
+---
+{% raw %}Jurgen Klopp speaks after Liverpool's 4-0 Premier League win over Manchester United.<br /><br />Please subscribe, like the video and share wherever you can!<br /><br />Help support the channel from only £0.99p a month!!<br />Get special loyalty badges next to your name in comments and live chat! You'll also get team badge emojis from your favourite team to use in live chat and premieres!! Click 'Join' below the video for more info or visit = <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCiVg6vRhuyjsWgHkDNOig6A/join">https://www.youtube.com/channel/UCiVg6vRhuyjsWgHkDNOig6A/join</a><br /><br />**DO NOT copy and re-upload any part of this video anywhere otherwise copyright strikes will be made! You do not have my permission** <br />I have all the necessary rights to use this footage, all my footage is licensed, please contact me if you're unsure, you can find my email address on my 'about' page.<br /><br />To make sure you don't miss any of my videos<br />on this and my other channels please:<br /><br />Subscribe here!: <a rel="nofollow" target="blank" href="http://bit.ly/BeanymanSportsSub">http://bit.ly/BeanymanSportsSub</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/BeanymanSports">http://www.twitter.com/BeanymanSports</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@BeanymanSports">https://www.tiktok.com/@BeanymanSports</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/BeanymanSports">https://www.instagram.com/BeanymanSports</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/BeanymanSports">https://www.facebook.com/BeanymanSports</a><br /><br />You can now listen to my press conferences on Spotify!<br />Follow me here! = <a rel="nofollow" target="blank" href="https://open.spotify.com/show/2BP8X4mkrrnliD6hDNIWrU">https://open.spotify.com/show/2BP8X4mkrrnliD6hDNIWrU</a><br />This will be perfect to listen to when you're travelling to work or something and you can't watch the video.<br /><br />If you want to help with the costs involved with running the channel you can also support me on my Patreon here = <a rel="nofollow" target="blank" href="https://www.patreon.com/BeanymanSports">https://www.patreon.com/BeanymanSports</a><br /><br />Timeline courtesy of Warrior J93<br />0:00 Intro<br />0:14 Jurgen Klopp Verdict<br />1:34 Klopp on Thiago, Mohammad Salah Performance<br />3:40 Thiago Update “He ripped his pants”<br />4:15 Klopp on Manchester United Situation<br />5:37 Klopp on First Half performance<br />7:53 Would Klopp watch Man City vs Brighton?<br />8:19 Outro | Please like the video and subscribe!{% endraw %}
