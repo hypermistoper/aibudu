@@ -1,0 +1,15 @@
+---
+title: "ECOLOGICAL HOME CLEANING FOR FREE ♻️- Tips & Tricks 💚"
+image: "https:\/\/i.ytimg.com\/vi\/dViIKnE5xjA\/hqdefault.jpg"
+vid_id: "dViIKnE5xjA"
+categories: "People-Blogs"
+tags: ["ECOLOGICAL","CLEANING","♻️-"]
+date: "2022-04-20T17:09:41+03:00"
+vid_date: "2022-04-17T16:55:59Z"
+duration: "PT23M43S"
+viewcount: "406949"
+likeCount: "21267"
+dislikeCount: ""
+channel: "Aurikatariina"
+---
+{% raw %}Hi i’m Aurikatariina and I deep clean my followers homes for free! 💚This house owner a young girl had lost her beloved pet bunny and the control over her apartment 🥺I cleaned this home Ecologically with my friend @boniasiivous. ♻️<br />We also showed you some amazing eco cleaning tips.♻️💯<br />Bathroom cleaning, kitchen cleaning, living room cleaning, Organizing, before and after pictures, satisfying results DIY cleaning spray! <br /><br />Products that I use:<br /><br />💚Scrub daddy<br /><a rel="nofollow" target="blank" href="https://amzn.to/3DfAqPZ">https://amzn.to/3DfAqPZ</a><br /><br />💚Scrub mommy<br /><a rel="nofollow" target="blank" href="https://amzn.to/3DfvUkn">https://amzn.to/3DfvUkn</a><br /><br />💚Alternative &quot;Steel Daddy&quot;<br /><a rel="nofollow" target="blank" href="https://amzn.to/3iIfrf7">https://amzn.to/3iIfrf7</a><br /><br />💚Power Paste<br /><a rel="nofollow" target="blank" href="https://amzn.to/3DdFtjL">https://amzn.to/3DdFtjL</a><br /><br />💚Oven cleaner<br /><a rel="nofollow" target="blank" href="https://amzn.to/3JVpgSE">https://amzn.to/3JVpgSE</a><br /><br />💚Scraper<br /><a rel="nofollow" target="blank" href="https://amzn.to/37TYD2q">https://amzn.to/37TYD2q</a><br /><br />💚Floor Squeegee<br /><a rel="nofollow" target="blank" href="https://amzn.to/3Dd5nnQ">https://amzn.to/3Dd5nnQ</a><br /><br />💚Microfiber cloths<br /><a rel="nofollow" target="blank" href="https://amzn.to/3Dfg21e">https://amzn.to/3Dfg21e</a><br /><br />💚Nord Clean:<br /><a rel="nofollow" target="blank" href="https://nordclean.info/">https://nordclean.info/</a><br /><br /><br />Summary:<br /><br />00:00 Intro<br />01:13 Coming up in this video<br />01:27 Collecting hallway trashes<br />02:27 Washing the kitchen sink<br />03:35 Washing the dishwasher<br />03:59 Bathroom trashes<br />04:21 Washing the bathroom sink<br />05:02 Washing the shower<br />05:49 Washing the Washing machine<br />06:12 Toothpaste surprise<br />06:34 Organizing the bathroom<br />07:05 Washing the bathroom floor<br />08:10 Organization magic<br />08:17 Washing the light switch<br />08:30 Gift for the house owner<br />08:44 Living room trashes<br />09:31 Hay surprise<br />10:25 Something sticky<br />11:01 Dusting<br />11:29 Recycling<br />12:05 Kitchen trashes<br />13:35 Washing the induktion stove<br />14:50 Organizing the utensils<br />15:18 Organizing the kitchen cupboards<br />16:44 Washing the hallway floor<br />17:53 Finding surprises in the couch<br />19:15 Cleaning the living room table<br />20:10 Wiping the floor<br />20:16 More trashes<br />21:47 Making the bed<br />22:32 Final floor sweep<br />23:08 Clean house tour{% endraw %}
