@@ -1,0 +1,15 @@
+---
+title: "4tv Khabarnama | 20 April 2022 | Hyderabad News"
+image: "https:\/\/i.ytimg.com\/vi\/ZHkNoJ8pBcY\/hqdefault.jpg"
+vid_id: "ZHkNoJ8pBcY"
+categories: "News-Politics"
+tags: ["hyderabad news","telangana news","india news"]
+date: "2022-04-20T22:49:10+03:00"
+vid_date: "2022-04-20T17:48:26Z"
+duration: "PT30M32S"
+viewcount: "2858"
+likeCount: "224"
+dislikeCount: ""
+channel: "4tv News Channel"
+---
+{% raw %}4tv Khabarnama | 20 April 2022 | Hyderabad News<br />#Hyderabad<br /><br />ABOUT OUR CHANNEL<br />4tv News Channel. is a well-known name in the field of Electronic media in the city of heritage Hyderabad. A private limited company engaged in providing services of a Multi-System Operator (MSO) to various local cable TV operators of Hyderabad city was incorporated in the year 2007. 4tv News Channel. is in this line of activity for about 15 years and is well conversant with the cable TV industry. It started as a very small network and gradually it has reached its heights with the help of its dedicated team. Since its inception, we have been piloting the TV network and have seen a massive expansion in coverage and popularity.<br /><br />Under the expansion plans, 4tv News Channel. Launched 4tv News pan India on 02nd April  2014. It’s a full-fledged 24-hour Urdu news channel covering the entire India. Our focal point is to promote Urdu, Islamic, and Indian culture giving due treatment to all newsworthy events, developments, people, institutions, trends, and issues in all important walks of national and international life – politics, government, economy, business, industry, sports, travel, society, entertainment, foreign affairs, education, health, development, the arts, culture, fashion, technology, lifestyle, environment, internal and external security, defense, agriculture, etc. We have a clear vision of where we want to reach and have a well-planned strategy to achieve that.<br /><br />Check out our channel here:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/4tvindia">https://www.youtube.com/4tvindia</a><br />Don’t forget to subscribe!<br /><br />CHECK OUT OUR OTHER VIDEOS<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=rN3YCEDDARo">https://www.youtube.com/watch?v=rN3YCEDDARo</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Fe_tBIRT_hc">https://www.youtube.com/watch?v=Fe_tBIRT_hc</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=lhOmb-Um4UE">https://www.youtube.com/watch?v=lhOmb-Um4UE</a><br /><br />FIND US AT<br /><a rel="nofollow" target="blank" href="https://4tvnews.in">https://4tvnews.in</a><br /><br />GET IN TOUCH<br />Contact us on webadmin@4tvnews.in<br /><br />FOLLOW US ON SOCIAL<br />Get updates or reach out to Get updates on our Social Media Profiles!<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/4tvhyd">https://twitter.com/4tvhyd</a><br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/khabernama4tv">https://facebook.com/khabernama4tv</a>{% endraw %}
