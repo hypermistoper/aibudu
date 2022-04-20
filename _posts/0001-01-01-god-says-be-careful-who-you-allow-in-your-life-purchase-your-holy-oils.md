@@ -1,0 +1,15 @@
+---
+title: "GOD SAYS, BE CAREFUL WHO YOU ALLOW IN YOUR LIFE ‼️"
+image: "https:\/\/i.ytimg.com\/vi\/uFU1lwXjXSs\/hqdefault.jpg"
+vid_id: "uFU1lwXjXSs"
+categories: "Howto-Style"
+tags: ["prophetic word","daily prophetic word","prophetic word for today"]
+date: "2022-04-20T03:15:11+03:00"
+vid_date: "2022-04-19T18:22:19Z"
+duration: "PT9M1S"
+viewcount: "2634"
+likeCount: "711"
+dislikeCount: ""
+channel: "Alicia Motley"
+---
+{% raw %}PURCHASE YOUR HOLY OILS HERE: <a rel="nofollow" target="blank" href="https://www.etsy.com/listing/1213200621/angels-holy-anointing-oil">https://www.etsy.com/listing/1213200621/angels-holy-anointing-oil</a><br /><br />🦁 OILS RESTOCKED ‼️ LIMITED QUANTITY 📢 GET YOUR OILS FAMILY, THEY SOLD OUT IN 24 HOURS THE FIRST BATCH 🎉<br /><br />#propheticwordtoday<br />#dailypropheticword #propheticwordforApril2022 #propheticword<br /><br />OFFER INTO MY MINISTRY IF GOD LEADS YOU ON CASH APP @GodsQueen101 OR PAYPAL: ALICIAINSPIRES@YAHOO.COM <br /><br />CHECK OUT MY SPIRITUAL PLAYLIST HERE: 🛑 ⬇<br />PROPHETIC WORD &amp; CHRISTIAN MINDSET VIDEOS: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLL0yi3bgmWLa2Z363K6dC7QIVdmeoAbzm">https://www.youtube.com/playlist?list=PLL0yi3bgmWLa2Z363K6dC7QIVdmeoAbzm</a><br /><br />SHOP MY SUNGLASSES STORE: <a rel="nofollow" target="blank" href="https://www.shop9nineteenframes.com/">https://www.shop9nineteenframes.com/</a><br />NEED WHOLESALE VENDORS : <a rel="nofollow" target="blank" href="https://www.shop9nineteenframes.com/wholesale">https://www.shop9nineteenframes.com/wholesale</a><br /><br />Music by Joey Burbach:<br /><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/6RB4h3XIdZKL0v8jWM1Sk1?si=8baPmKGdQqeIicUN_ULn-w">https://open.spotify.com/artist/6RB4h3XIdZKL0v8jWM1Sk1?si=8baPmKGdQqeIicUN_ULn-w</a><br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/joeyburbach">https://www.youtube.com/joeyburbach</a><br /><br />INTRO &amp; BANNER DONE BY: GLAM GIRL EDITS (1 OF MY ANGELS😇)<br /><a rel="nofollow" target="blank" href="https://instagram.com/glamgirledits?utm_medium=copy_link">https://instagram.com/glamgirledits?utm_medium=copy_link</a><br /><br /><br />💖NEW VIDEOS WEEKLY💖<br /><br />💖WELCOME ALICIA'S ANGELS 💖<br /><br />💖 Please SUBSCRIBE: <a rel="nofollow" target="blank" href="https://goo.gl/hzTL1N">https://goo.gl/hzTL1N</a>  💖  ✔&amp; TURN YOUR POST 🔊NOTIFICATIONS 🔊 ON 📲<br /><br />💖For Business &amp; Branding Opportunities💖<br />💟Contact: Aliciainspires@yahoo.com💟<br /><br />💖Philadelphia, PA💖<br /><br />SEND ME FAN MAIL: <br />Alicia Motley<br />PO BOX <br />    <br />💖Connect With Me💖<br />Instagram:  <a rel="nofollow" target="blank" href="https://www.instagram.com/msmotley89/">https://www.instagram.com/msmotley89/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/aliciainspires">https://www.facebook.com/aliciainspires</a><br /><br />……………………………………………….<br /><br />FTC: Not sponsored. Affiliate links are use{% endraw %}
