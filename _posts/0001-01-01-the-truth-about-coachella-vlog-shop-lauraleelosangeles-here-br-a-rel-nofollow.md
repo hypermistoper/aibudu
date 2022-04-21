@@ -1,0 +1,15 @@
+---
+title: "the truth about Coachella | vlog"
+image: "https:\/\/i.ytimg.com\/vi\/2Kie-ixYwGE\/hqdefault.jpg"
+vid_id: "2Kie-ixYwGE"
+categories: "People-Blogs"
+tags: ["laura lee","laura lee vlogs","COACHELLA"]
+date: "2022-04-21T11:01:33+03:00"
+vid_date: "2022-04-20T00:38:16Z"
+duration: "PT19M4S"
+viewcount: "79937"
+likeCount: "3989"
+dislikeCount: ""
+channel: "Laura Lee Vlogs"
+---
+{% raw %}SHOP LauraLeeLosAngeles here:<br /><a rel="nofollow" target="blank" href="https://www.lauraleelosangeles.com/">https://www.lauraleelosangeles.com/</a><br /><br />Products Mentioned:<br />Steamer <a rel="nofollow" target="blank" href="https://bit.ly/3uWdD91">https://bit.ly/3uWdD91</a><br />Converse <a rel="nofollow" target="blank" href="https://bit.ly/3jWisZG">https://bit.ly/3jWisZG</a><br />white boots <a rel="nofollow" target="blank" href="https://www.12thtribe.com/products/billini-urson-white-boot?variant=32499709214782&amp;currency=USD&amp;utm_medium=product_sync&amp;utm_source=google&amp;utm_content=sag_organic&amp;utm_campaign=sag_organic&amp;gclid=CjwKCAjwu_mSBhAYEiwA5BBmf6TF8NMPBJp2FHryVVWbjpLfa7gprgVXoVVorVmzmujGHBNvdlFUFBoCDvQQAvD_BwE">https://www.12thtribe.com/products/billini-urson-white-boot?variant=32499709214782&amp;currency=USD&amp;utm_medium=product_sync&amp;utm_source=google&amp;utm_content=sag_organic&amp;utm_campaign=sag_organic&amp;gclid=CjwKCAjwu_mSBhAYEiwA5BBmf6TF8NMPBJp2FHryVVWbjpLfa7gprgVXoVVorVmzmujGHBNvdlFUFBoCDvQQAvD_BwE</a><br />Jeffery Campbell boots <a rel="nofollow" target="blank" href="https://jeffreycampbellshoes.com/products/rancher-k">https://jeffreycampbellshoes.com/products/rancher-k</a><br />Hair Straightener GHD <a rel="nofollow" target="blank" href="https://bit.ly/3OlrKMV">https://bit.ly/3OlrKMV</a><br />Adidas Favorite sneakers <a rel="nofollow" target="blank" href="https://bit.ly/3jUVt1m">https://bit.ly/3jUVt1m</a><br />My Liquid Lipsticks <a rel="nofollow" target="blank" href="https://www.lauraleelosangeles.com/">https://www.lauraleelosangeles.com/</a><br />LLLA Makeup Brushes <a rel="nofollow" target="blank" href="https://www.lauraleelosangeles.com/collections/brushes">https://www.lauraleelosangeles.com/collections/brushes</a><br />Fragrance I wore <a rel="nofollow" target="blank" href="https://bit.ly/2SqhWW9">https://bit.ly/2SqhWW9</a><br />My luggage <a rel="nofollow" target="blank" href="https://bit.ly/3MyY0L1">https://bit.ly/3MyY0L1</a><br />Beis Backpack <a rel="nofollow" target="blank" href="https://bit.ly/3vx0uCE">https://bit.ly/3vx0uCE</a><br />Beis Duffle bag <a rel="nofollow" target="blank" href="https://bit.ly/3uXhPWd">https://bit.ly/3uXhPWd</a><br />Shein rubber bands <a rel="nofollow" target="blank" href="https://bit.ly/3xFX8Qu">https://bit.ly/3xFX8Qu</a><br />Raybans <a rel="nofollow" target="blank" href="https://bit.ly/3jVTUQO">https://bit.ly/3jVTUQO</a><br />Marc Tote bag <a rel="nofollow" target="blank" href="https://bit.ly/37Zgy81">https://bit.ly/37Zgy81</a><br /><br />Email: laura88lee@gmail.com<br /><br />SOCIAL MEDIA:<br />INSTAGRAM:  Larlarlee<br />TIKTOK:  Laura88lee<br /><br /><br />All Rights Reserved © 2022,  Laura Lee{% endraw %}
