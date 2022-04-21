@@ -1,0 +1,15 @@
+---
+title: "How Do You Help Someone Who's Lost? | Jordan Peterson Life Advice"
+image: "https:\/\/i.ytimg.com\/vi\/W_I6n1tE4JE\/hqdefault.jpg"
+vid_id: "W_I6n1tE4JE"
+categories: "Education"
+tags: ["jordan peterson","12 rules to live by","dr peterson"]
+date: "2022-04-21T05:20:46+03:00"
+vid_date: "2019-09-25T14:00:17Z"
+duration: "PT4M7S"
+viewcount: "336558"
+likeCount: "15737"
+dislikeCount: ""
+channel: "WordToTheWise"
+---
+{% raw %}Dr. Peterson responds to a difficult question posed by an audience member during his lecture.<br />Try Audible's free 30-day trial and enjoy 2 free audiobooks here: <a rel="nofollow" target="blank" href="https://amzn.to/2MRvzxL">https://amzn.to/2MRvzxL</a><br />If you like Jordan Peterson, check out his book &quot;12 Rules for Life&quot;: <a rel="nofollow" target="blank" href="https://amzn.to/2Pg6Ws8">https://amzn.to/2Pg6Ws8</a><br /><br />&quot;Don't cast pearls before swine.&quot;<br />▂▂▂▂▂▂▂▂▂▂▂▂▂<br /><br />➤➤Speaker:<br />Jordan Peterson<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/JordanPetersonVideos">https://www.youtube.com/user/JordanPetersonVideos</a><br /><a rel="nofollow" target="blank" href="https://jordanbpeterson.com/">https://jordanbpeterson.com/</a><br /><br />➤➤Video Sources:<br />&quot;Biblical Series VII: Walking with God: Noah and the Flood (corrected)&quot; by Jordan B Peterson<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=6gFjB9FTN58">https://www.youtube.com/watch?v=6gFjB9FTN58</a><br /><br />➤➤Music:<br />Music by Borrtex<br /><br />➤➤Editor &amp; Producer:<br />WordToTheWise<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/wordtothewise">https://www.youtube.com/wordtothewise</a><br /><br />➤➤Editing Setup:<br />ASUS ROG Strix GL702VM Laptop: <a rel="nofollow" target="blank" href="https://amzn.to/2DhvVGI">https://amzn.to/2DhvVGI</a><br />Cooler Master NotePal X3 Cooling Pad: <a rel="nofollow" target="blank" href="https://amzn.to/2DkNl59">https://amzn.to/2DkNl59</a><br />Sony MDRXB50AP Extra Bass Earbuds: <a rel="nofollow" target="blank" href="https://amzn.to/2VQuRB1">https://amzn.to/2VQuRB1</a><br />Logitech M720 Triathalon Mouse: <a rel="nofollow" target="blank" href="https://amzn.to/2GoOXM7">https://amzn.to/2GoOXM7</a><br />SteelSeries QcK Mouse Pad: <a rel="nofollow" target="blank" href="https://amzn.to/2IsTLTV">https://amzn.to/2IsTLTV</a><br /><br />▂▂▂▂▂▂▂▂▂▂▂▂▂<br /><br />Fair Use Disclaimer:<br /><br />Our purpose is to produce quality, educational and motivational video content, and to share it with our viewers.<br /><br />This video has no negative impact on the original works.<br />This video is used for educational purposes.<br />This video is transformative in nature.<br />This channel’s owner claims no copyright, and cannot be held accountable.<br /><br />If you are the legal content owner of any videos used here and would like them removed, please contact wordtothewise.yt@gmail.com.  Any infringement was not done on purpose and will be rectified to the satisfaction of all parties.{% endraw %}
