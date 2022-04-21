@@ -1,0 +1,15 @@
+---
+title: "Cat Power - A Pair Of Brown Eyes (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/FirP6JK-VrQ\/hqdefault.jpg"
+vid_id: "FirP6JK-VrQ"
+categories: "Music"
+tags: ["domino","domino recording co","domino records"]
+date: "2022-04-21T15:54:14+03:00"
+vid_date: "2022-04-20T14:00:08Z"
+duration: "PT3M43S"
+viewcount: "9230"
+likeCount: "380"
+dislikeCount: ""
+channel: "CatPowerVEVO"
+---
+{% raw %}Cat Power - &quot;A Pair Of Brown Eyes&quot;, from the album 'Covers,' out now on Domino Record Co.<br />Subscribe to Cat Power on Youtube: <a rel="nofollow" target="blank" href="http://smarturl.it/CatPowerYT">http://smarturl.it/CatPowerYT</a><br /><br />Order &amp; stream 'Covers': <a rel="nofollow" target="blank" href="https://catpower.ffm.to/covers">https://catpower.ffm.to/covers</a><br /><br />Follow Cat Power:<br />YouTube: <a rel="nofollow" target="blank" href="http://smarturl.it/CatPowerYT">http://smarturl.it/CatPowerYT</a><br />Website: <a rel="nofollow" target="blank" href="http://smarturl.it/CatPowerWB">http://smarturl.it/CatPowerWB</a><br />Facebook: <a rel="nofollow" target="blank" href="http://smarturl.it/CatPowerFB">http://smarturl.it/CatPowerFB</a><br />Twitter: <a rel="nofollow" target="blank" href="http://smarturl.it/CatPowerTW">http://smarturl.it/CatPowerTW</a><br />Instagram: <a rel="nofollow" target="blank" href="http://smarturl.it/CatPowerIN">http://smarturl.it/CatPowerIN</a><br /><br />Follow Domino Record Co:<br />YouTube: <a rel="nofollow" target="blank" href="http://smarturl.it/DominoYT">http://smarturl.it/DominoYT</a><br />Website: <a rel="nofollow" target="blank" href="http://smarturl.it/DominoRecordCo">http://smarturl.it/DominoRecordCo</a><br />Facebook: <a rel="nofollow" target="blank" href="http://smarturl.it/DominoFB">http://smarturl.it/DominoFB</a><br />Twitter: <a rel="nofollow" target="blank" href="http://smarturl.it/DominoTW">http://smarturl.it/DominoTW</a><br />Instagram: <a rel="nofollow" target="blank" href="http://smarturl.it/DominoIN">http://smarturl.it/DominoIN</a><br /><br />Directed by: Jim Jarmusch<br />Produced by: Carter Logan<br />Director of Photography: Frederick Elmes<br />Edited by: Affonso Gonçalves<br /><br />1st AC: Govinda Angulo<br />2nd AC: Brett Norman<br />Gaffer: John Raugalis<br />Key Grip: Tim Smythe<br />Swing G&amp;E: Angelos Rompolis<br />DIT: Dan Gutt<br />Sound: Nick Cageo<br />Hair: Seiji<br />Make-up: Yumi Mori<br />Assistant to the Director: Arielle de Saint Phalle<br />PAs: Jessica Holguin, Natalia Loff<br /><br />Co-Producers: Julie Stahl, Ann Lawlor<br />Production Services: Blonde + Co<br /><br />Assistant Editor: Jaime Sukonnik<br />Post Production Services: Harbor Picture Company<br />Colourist: Adrian Seery<br />Color Assistant: Scarlett Thiele<br />Color Producer: Rebecca Mitchell<br />Flame Artist: Pete DeAndrea<br />Flame Assistant: Jacob Robinson<br />Associate VFX and Finishing Producer: Kalisha Allen<br /><br /><a rel="nofollow" target="blank" href="http://vevo.ly/USEWuH">http://vevo.ly/USEWuH</a>{% endraw %}
