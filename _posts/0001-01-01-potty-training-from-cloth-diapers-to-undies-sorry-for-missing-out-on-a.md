@@ -1,0 +1,15 @@
+---
+title: "Potty Training - From Cloth Diapers To Undies"
+image: "https:\/\/i.ytimg.com\/vi\/QUxfIuwonM4\/hqdefault.jpg"
+vid_id: "QUxfIuwonM4"
+categories: "People-Blogs"
+tags: ["Potty Training","Potty","Learning"]
+date: "2022-04-21T14:11:15+03:00"
+vid_date: "2015-12-09T21:49:30Z"
+duration: "PT14M24S"
+viewcount: "16970"
+likeCount: "104"
+dislikeCount: ""
+channel: "DainaG23"
+---
+{% raw %}Sorry for missing out on a day.. my computer doesn't agree with so many uploads! <br /><br />- Our potty seat <a rel="nofollow" target="blank" href="http://amzn.to/1Nj8Wql">http://amzn.to/1Nj8Wql</a><br />- Our car seat protector <a rel="nofollow" target="blank" href="http://amzn.to/1IVIdya">http://amzn.to/1IVIdya</a> (Though it didnt work as well as we hoped it would)<br />- Our Favorit Cloth Diaper Shop (&amp; to buy trainers &amp; Wetbags!) <a rel="nofollow" target="blank" href="http://www.nickisdiapers.com/?AffId=142">http://www.nickisdiapers.com/?AffId=142</a><br />Use Coupon Code &quot; FIVE &quot; For 5% Off Your Order!<br />- Gerber Training Underwear <a rel="nofollow" target="blank" href="http://amzn.to/1IVIm4K">http://amzn.to/1IVIm4K</a><br /><br /><br /><br />LINKKSS<br /><br />For cloth diapers:<br /> <a rel="nofollow" target="blank" href="http://www.lagoonbaby.com/?AffId=17&quot;">http://www.lagoonbaby.com/?AffId=17&quot;</a> <br /><br /><a rel="nofollow" target="blank" href="http://www.nickisdiapers.com/?AffId=142">http://www.nickisdiapers.com/?AffId=142</a><br />Use Coupon Code &quot; FIVE &quot; For 5% Off Your Order!<br /><br />GET 10% OFF YOUR FIRST ORDER  @ mylittlesweetpea (Canadian)<br /><a rel="nofollow" target="blank" href="http://refs.cc/Om81Tur4">http://refs.cc/Om81Tur4</a><br /><br />Get $10 off Your First Order OF $40 at well.ca with the coupon code &quot; YTDG23&quot; <br /><a rel="nofollow" target="blank" href="http://www.kqzyfj.com/click-7856373-12253850-1435595148000">http://www.kqzyfj.com/click-7856373-12253850-1435595148000</a><br /><br />My favorite amber necklace shop: <a rel="nofollow" target="blank" href="https://www.balticcreations.net/">https://www.balticcreations.net/</a>  | Use coupon code DainaG23 for 5% off! |<br /><br />www.zulily.com/invite/dg23<br /><br />I had to share my ebates because its a site i truly love! In the past 3 years alone ive made almost $100 from using their website!<br /><a rel="nofollow" target="blank" href="http://www.ebates.ca/referrer?referrerid=PJ%2BrzN4YWYk%3D">http://www.ebates.ca/referrer?referrerid=PJ%2BrzN4YWYk%3D</a><br /><br />Get 101 Free Prints From Shutterfly With This Link! -- <br /><a rel="nofollow" target="blank" href="https://invite-shutterfly.com/x/jXR7Bb">https://invite-shutterfly.com/x/jXR7Bb</a><br /><br />Shop.ca (register your CAA card to ger $50 off $100 Purchase!..its awesome.. I used mine to buy cloth diapers!)<br /><a rel="nofollow" target="blank" href="http://www.shop.ca?plcktb=">http://www.shop.ca?plcktb=</a><br /><br />* Some of the links above contain affiliate links, but only to websites i truly love!*<br /><br />** For business inquiries only. Please send me a email dainag23@hotmail.com{% endraw %}
