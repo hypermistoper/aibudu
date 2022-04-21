@@ -1,0 +1,15 @@
+---
+title: "Surprise Birthday Trip | Where Are We Going?"
+image: "https:\/\/i.ytimg.com\/vi\/xT87gL7_LMk\/hqdefault.jpg"
+vid_id: "xT87gL7_LMk"
+categories: "Entertainment"
+tags: ["surprise birthday trip","birthday trip","surprise trip"]
+date: "2022-04-22T01:44:34+03:00"
+vid_date: "2022-04-21T16:45:00Z"
+duration: "PT26M29S"
+viewcount: "56730"
+likeCount: "4691"
+dislikeCount: ""
+channel: "Crazy Pieces"
+---
+{% raw %}Surprise Birthday Trip | Where Are We Going?<br />Someone is having a very special birthday, and we get invited to go on a surprise birthday trip. Where are we going and does it work out?<br /><br />Our Favorite Things! : <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/crazypieces">https://www.amazon.com/shop/crazypieces</a><br /><br />Fan mail: <br />Crazy Pieces<br />P.O. Box 21360<br />Mesa, AZ 85277<br /><br />♥FOLLOW US ON SOCIAL MEDIA♥ <br />Instagram:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/CrazyPieces/">https://www.instagram.com/CrazyPieces/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/aaron_crazypieces/">https://www.instagram.com/aaron_crazypieces/</a><br /><br />TikTok:<br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@crazypieces?lang=en">https://www.tiktok.com/@crazypieces?lang=en</a><br /><br />Facebook:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/OurCrazyPieces">https://www.facebook.com/OurCrazyPieces</a><br /><br /><br />♥OUR CHANNELS♥<br /><br />CRAZY MOM HUSTLE: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCK6MMBnp2haq-eJsq6g-mAA">https://www.youtube.com/channel/UCK6MMBnp2haq-eJsq6g-mAA</a><br /><br />Ariana Pettit: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCvs9jEtsu-JC54GDSxkd5JQ">https://www.youtube.com/channel/UCvs9jEtsu-JC54GDSxkd5JQ</a><br /><br />Alex Pettit:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC6r1dgKTEzU5Z7zhEDKTh0Q">https://www.youtube.com/channel/UC6r1dgKTEzU5Z7zhEDKTh0Q</a><br /><br />Crazy Treasures: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCXHo3WkcSvO4LXn5bkCVUtA">https://www.youtube.com/channel/UCXHo3WkcSvO4LXn5bkCVUtA</a><br /><br />Beyond Crazy:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCkWP1GvyC2gVfZ1WYQhj98w">https://www.youtube.com/channel/UCkWP1GvyC2gVfZ1WYQhj98w</a><br /><br />CRAZY MIDDLES:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCzVxzz60KHq5Bgqf1zqoocg">https://www.youtube.com/channel/UCzVxzz60KHq5Bgqf1zqoocg</a><br /><br />Crazy Good Life:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC-MDdSfH-QcNUqfDB_qq6Cw">https://www.youtube.com/channel/UC-MDdSfH-QcNUqfDB_qq6Cw</a><br /><br />Reidhead Homestead: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC7pW35DOzas7ZMu4uR4ACgA">https://www.youtube.com/channel/UC7pW35DOzas7ZMu4uR4ACgA</a>{% endraw %}
