@@ -1,0 +1,15 @@
+---
+title: "Investors are About to Get Sucked Into THIS Historical SP500 Move | FOMO Right Ahead"
+image: "https:\/\/i.ytimg.com\/vi\/f6uJSvuxlzs\/hqdefault.jpg"
+vid_id: "f6uJSvuxlzs"
+categories: "Education"
+tags: ["investing strategies","investing short term","stock market crash"]
+date: "2022-04-21T16:04:47+03:00"
+vid_date: "2022-04-20T16:00:31Z"
+duration: "PT14M27S"
+viewcount: "56855"
+likeCount: "4319"
+dislikeCount: ""
+channel: "Game of Trades"
+---
+{% raw %}♟️ Game of Trades Investment &amp; Trading Insights: <a rel="nofollow" target="blank" href="https://www.gameoftrades.net/">https://www.gameoftrades.net/</a><br />We are HIRING ➡️  <a rel="nofollow" target="blank" href="https://smrtr.io/8F54n">https://smrtr.io/8F54n</a><br /><br />Don’t forget to subscribe to the channel! <a rel="nofollow" target="blank" href="https://bit.ly/3u8czff">https://bit.ly/3u8czff</a><br /><br />TradingView: “GOT All-Around Charting Platform”<br />📈<a rel="nofollow" target="blank" href="https://www.tradingview.com/?offer_id=10&amp;aff_id=21964">https://www.tradingview.com/?offer_id=10&amp;aff_id=21964</a><br /><br />Follow us on Twitter for FREE content: <br />🐦  <a rel="nofollow" target="blank" href="https://twitter.com/gameoftrades_">https://twitter.com/gameoftrades_</a><br /><br />Want to see more of [ subject of video ]? Check out our playlists:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/GameofTrades/playlists">https://www.youtube.com/c/GameofTrades/playlists</a><br /><br /><br />Welcome to the Game of Trades Channel!<br /><br />From beginning stock traders to more experienced ones, the videos on this channel can help you learn simple Technical Analysis, Effective Chart Patterns, Measure Trade Targets, Identify good stops for trades, and, most importantly, help you get into the right mindset to trade and invest efficiently.<br /><br />Subscribe to the channel to never miss out on another analysis!<br /><br />Game of Trades provides financial market insight and analysis for the individual investor using technical analysis, research, and psychology as a risk management approach.<br /><br />With the abundance of conflicting information in this day and age, Game of Trades was born out of a need for online high-quality investment research and guidance, which have so far only been accessible to institutional investors. Game of Trades will help you take your trading and investing to the next level and become Smart Money.<br /><br />We review the SP500, Precious Metals, Commodities, and Cryptocurrencies through a technical and Fundamental Analysis blend with a good amount of historical research. We use simple momentum indicators like the MACD and RSI to analyze and predict trends using divergence and overbought/oversold readings. We show you these in a way that is easy to understand for everyone.<br /><br />DISCLAIMER: This video is for entertainment purposes only. We are not financial advisers, and you should do your own research and go through your own thought process before investing in a position. Trading is risky; best of luck!{% endraw %}
