@@ -1,0 +1,15 @@
+---
+title: "RobbieG & Bissett - Just Enough"
+image: "https:\/\/i.ytimg.com\/vi\/iXICoa0_LlY\/hqdefault.jpg"
+vid_id: "iXICoa0_LlY"
+categories: "People-Blogs"
+tags: ["RobbieG","Bissett","Enough"]
+date: "2022-04-21T12:18:55+03:00"
+vid_date: "2021-12-18T14:04:32Z"
+duration: "PT3M59S"
+viewcount: "9373"
+likeCount: "163"
+dislikeCount: ""
+channel: "Vibe Dealers."
+---
+{% raw %}RobbieG &amp; Bissett decided to drop this fire track to give us a little preview of what they've been cooking up in the studio and boy did they deliver !! In 2022 , RobbieG , Bissett &amp; the Belters Only movements are going to the top of the mountain ! Keep your eyes and ears pealed for more masterful vibes !<br /><br />Subscribe for the very best daily Dance Music !<br /><br />#VibeDealers #RobbieG #Bissett #DanceMusic #YKTV <br /><br />Follow Vibe Dealers:<br />Online Shop: <a rel="nofollow" target="blank" href="https://vibe-dealers.myshopify.com">https://vibe-dealers.myshopify.com</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/vibedealers_official/">http://instagram.com/vibedealers_official/</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/vibedealers_official">https://soundcloud.com/vibedealers_official</a><br />Apple Music : <a rel="nofollow" target="blank" href="https://music.apple.com/profile/VibeDealers">https://music.apple.com/profile/VibeDealers</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/user/5wuvmuizhk6q9zgwwzp80e7gx?si=qPv_IXNGRie6gTrS4uJNfA">https://open.spotify.com/user/5wuvmuizhk6q9zgwwzp80e7gx?si=qPv_IXNGRie6gTrS4uJNfA</a><br />Tik Tok: <a rel="nofollow" target="blank" href="https://vm.tiktok.com/TTPd6UmrdM/">https://vm.tiktok.com/TTPd6UmrdM/</a><br />YKTV Music Entertainment :<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCVRYerMndunia-pyKmd3eSg">https://www.youtube.com/channel/UCVRYerMndunia-pyKmd3eSg</a><br /><br />Follow RobbieG:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/RobbieGoffic...">https://www.facebook.com/RobbieGoffic...</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/robbiegmusic">https://soundcloud.com/robbiegmusic</a><br />Instagram:  <a rel="nofollow" target="blank" href="http://instagram.com/robbiegdublin">http://instagram.com/robbiegdublin</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/2NWRfNAjBd2cUOKbE9Isda">https://open.spotify.com/artist/2NWRfNAjBd2cUOKbE9Isda</a><br /><br />Follow Bissett:<br />BOOKING INFORMATION USE EMAIL BELOW<br />Email Address: paul@industryentertainment.ie<br />Facebook: www.facebook.com/BissettProducer<br />Instagram: www.instagram.com/_bissett_/ <br />Snapchat: Scbissett23<br /><br />Image:<br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/jessicaannelowe">http://instagram.com/jessicaannelowe</a>  <br /><br />For any business enquiries, photo and song submissions or any copyright issues, please get in touch:<br />thevibedealerspromotion@gmail.com{% endraw %}
