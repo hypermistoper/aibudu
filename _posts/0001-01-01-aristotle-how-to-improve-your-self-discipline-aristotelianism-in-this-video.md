@@ -1,0 +1,15 @@
+---
+title: "Aristotle - ​​How To Improve Your Self Discipline (Aristotelianism)"
+image: "https:\/\/i.ytimg.com\/vi\/OvL-UZaBlUs\/hqdefault.jpg"
+vid_id: "OvL-UZaBlUs"
+categories: "Education"
+tags: ["Aristotle","how to improve your self discipline","how to be build your self discipline"]
+date: "2022-04-22T03:40:41+03:00"
+vid_date: "2022-04-15T22:30:01Z"
+duration: "PT21M40S"
+viewcount: "46208"
+likeCount: "1975"
+dislikeCount: ""
+channel: "Philosophies for Life"
+---
+{% raw %}In this video we bring you 5 ways to improve and manage your self discipline from the philosophy of Aristotle. His philosophy is often referenced as Aristotelianism. <br /><br />Self discipline can be described as endurance in the face of tempting pleasures or endurance in the face of challenging situations which makes you feel like you want to give in to your basic impulses or give up on your goals. To help you learn ways to improve and manage your self discipline, today we’re bringing you 5 relevant teachings from the philosophy of Aristotle: <br />01. Believe you have free will <br />02. Strengthen your moral principles <br />03. Overcome your desires<br />04. Be temperate in your reactions<br />05. Practice self discipline daily<br />I hope you enjoyed watching the video and hope these 5 ways to improve and manage your self discipline from the philosophy of Aristotle will add value to your life. <br /><br />Aristotle is a Promethean figure in the history of the world, who lived between 384–322 BC, He is considered &quot;the father” of logic, biology, political science, zoology, embryology, of natural law, scientific method, rhetoric, psychology, realism and even of meteorology. He was first a student of Plato, then, when Plato retired, he left the Academia which Plato founded, and he became the tutor of Alexander The Great, and the two other future kings: Ptolemy and Cassander. He established a library in the Lyceum which helped him to produce many of his hundreds of books on papyrus scrolls. Unfortunately, only a third of his magnificent work has survived. For example, the  treatises “Physics”, “Metaphysics”, “Nicomachean Ethics”, “Politics”, “On the Soul” and “Poetics”, have influenced more than two millennia of scientists and theologians alike, both fascinated by his ideas. <br /><br />Research/Writing: Bianca-Adina Szasz<br /><a rel="nofollow" target="blank" href="https://biancaszasz.com/">https://biancaszasz.com/</a><br /><br />Narration/Audio Editing: Dan Mellins-Cohen<br /><a rel="nofollow" target="blank" href="https://www.dmcvoiceovers.com">https://www.dmcvoiceovers.com</a><br /><br />Music: Enchanting Inspirational Music - Royalty Free - This Moment<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=VObTSz0ufhQ">https://www.youtube.com/watch?v=VObTSz0ufhQ</a><br /><br />Subscribe To Philosophies for Life<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCp1mRTkVlqDnxz_9S0YD9YQ">https://www.youtube.com/channel/UCp1mRTkVlqDnxz_9S0YD9YQ</a>{% endraw %}
