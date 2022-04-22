@@ -1,0 +1,15 @@
+---
+title: "Integra Resources (ITR) - NEW Approach with Notably Improved Economics"
+image: "https:\/\/i.ytimg.com\/vi\/SOJeB_F9htM\/hqdefault.jpg"
+vid_id: "SOJeB_F9htM"
+categories: "Education"
+tags: ["mining","gold","nickel"]
+date: "2022-04-22T21:23:58+03:00"
+vid_date: "2022-04-21T16:00:12Z"
+duration: "PT27M10S"
+viewcount: "1868"
+likeCount: "49"
+dislikeCount: ""
+channel: "Crux Investor"
+---
+{% raw %}Sign up for Crux Investor: <a rel="nofollow" target="blank" href="https://cruxinvestor.com">https://cruxinvestor.com</a><br /><br />Interview with George Salamis, President &amp; CEO of Integra Resources (TSX-V: ITR)<br /><br />Our previous interview: <a rel="nofollow" target="blank" href="https://youtu.be/YHyU9N56xOc">https://youtu.be/YHyU9N56xOc</a><br /><br />Integra Resources is a development-stage mining company focused on the exploration and de-risking of the past producing DeLamar Gold-Silver Project in Idaho, USA. Integra Resources is led by the management team from Integra Gold Corp. which successfully grew, developed and sold the Lamaque Project, in Quebec, for C$600 M in 2017. Since acquiring the DeLamar Project, which includes the adjacent DeLamar and Florida Mountain gold and silver Deposits, in late 2017, the Company has demonstrated significant resource growth and conversion while providing a robust economic study in its maiden Preliminary Economic Assessment. The Company is currently focused on resource growth through brownfield and greenfield exploration and the start of advanced studies designed to de-risk the DeLamar Project and move it towards a potential development decision. For additional information, please reference the “Technical Report and Preliminary Economic Assessment for the DeLamar and Florida Mountain Gold – Silver Project, Owyhee County, Idaho, USA (October 22, 2019).”<br /><br />0:00 - Company Overview<br />0:24 - Reason for Releasing a Simplified Strategy Document<br />2:14 - Realities of Releasing and Doing PFS Today<br />3:26 - Proving The “Better Solution”<br />4:52 - Expected Production Numbers from Heap Leaching<br />6:18 - Projected Costs and Delivery Time of Delivery Program<br />7:45 - Permitting Situation Overview<br />8:22 - Milling Process Overview<br />8:51 - Expected Time of Getting into Cash Flowing Position and Produce Gold<br />13:00 | 18:23 - Why should People Invest despite the Long Delivery Time?<br />15:29 - Sustaining Investors' Interest and Growth of the Company<br />22:11 - Possible Catalyst for Share Price Increase<br />23:32 - Reason for Opting for the Milling Route<br />24:46 - Message to the Retail Investors<br />27:03 - Outro<br /><br />—<br /><br />Crux Investor is an investing app for busy people. For a small, monthly membership fee you’ll receive a single stock recommendation each month, curated by industry experts and presented in a clear and focused one-page memo. Head to Crux Investor to learn more and to sign up for your time-saving, stress-slaying membership today.<br /><br />Learn more: <a rel="nofollow" target="blank" href="https://cruxinvestor.com">https://cruxinvestor.com</a>{% endraw %}
