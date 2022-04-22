@@ -1,0 +1,15 @@
+---
+title: "unbiased ranking of the queendom 2 performances in different categories (round 2)"
+image: "https:\/\/i.ytimg.com\/vi\/cnILH-5mXpw\/hqdefault.jpg"
+vid_id: "cnILH-5mXpw"
+categories: "Music"
+tags: ["unbiased","ranking","queendom"]
+date: "2022-04-22T08:48:33+03:00"
+vid_date: "2022-04-21T20:37:48Z"
+duration: "PT11M51S"
+viewcount: "1169"
+likeCount: ""
+dislikeCount: ""
+channel: "QUEEZDOM"
+---
+{% raw %}What a round huh. What were your rankings?<br /><br />Thank you for watching! If you like my content, subscribe to my channel and tap the notification bell to be notified for any upcoming videos! ✧.*: ̗̀➛<br /><br />- ̥۪͙۪˚┊❛ QUEEZDOM ❜┊˚ ̥۪͙۪◌<br />GAMES ~ QUIZZES ~ REVIEWS ~ AND MORE!<br /><br />.・。.・゜✭・.・✫・゜・。.<br /><br />⧖ Pronouns: she/her<br />⧖ Stan list: ateez, bts, dreamcatcher, mamamoo and more<br />⧖ Outro: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=X5ksH1WYnHU">https://www.youtube.com/watch?v=X5ksH1WYnHU</a><br />Cover used for this video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ZB2EpC0S48E">https://www.youtube.com/watch?v=ZB2EpC0S48E</a><br /><br /><br />.・。.・゜✭・.・✫・゜・。.<br /> <br />0:00 Intro<br />0:15 Disclaimers<br />2:05 Vocal Ranking<br />3:13 Choreography Ranking<br />4:30 Stage Presence Ranking<br />5:46 Outfit Ranking<br />7:27 Overall Ranking and Grading<br />11:05 Outro<br /><br /><br />I do not own any of these pictures, clips, music, and others. I ONLY own the animations and edit of the video. Credits to all the respective owners.<br /><br />Tags: <br />Kpop, BTS, Blackpink, Monsta X, EXO, ATEEZ, Seventeen, LOONA, TWICE, Red Velvet, Dreamcatcher, Brave Girls, NCT, NCT 127, NCT DREAM, NCT U, Stray Kid,s iKON, Treasure, Got7, Day6, ITZY, IU, Chungha, Sunmi, Kang Daniel, MCND, HyunA, Dawn, Pentagon, Kep1er, IVE Xdinary Heroes,  Nu'est, Pristin, IOI, I.O.I WJSN, Weki Meki, UP10TION, woo ah, woo!ah! CIX, GFRIEND, Mamamoo, GWSN, SNSD, Vixx, Girls' Generation, IZ*ONE, Wanna One, X1, Shinee, Super Junior, Jessi, Orange Caramel, Miss A, Block B, Oh My Girl, APRIL, Tri.be, Momoland, BoA, CLC, Somi, SISTAR, AOA, 2PM, EXID, TXT, Tomorrow By Together, Bighit, JYP, SM, YG, BigBang, Winner, The Boyz, Rocket Punch, Everglow, Weeekly, (G)I-dle, Gidle,, AB6IX, Cravity, StayC, Chung-Ha, Kingdom, ELRIS, ONF, WOODZ, SuperM, Verivery, CIX, 1THE9, Lucy TO1, TOO, Golden Child, ONEUS, WayV, TXT, E'LAST, T1419, Drippin, BDC, Enhypen, D-CRUNCH, OnlyOneOf, Wei, P1Harmony, Bae173, UNB, D1CE, Dongkiz, Ghost9, DreamNote, Billlie, 1Team, 2Z, Pinkfantasy, Survival Show, Epex, Lightsum, Hot Issue, Cignature, Secret Number, viviz, nmixx, tempest, idols, game, kpop quiz, kpop game, choreography, dance quizz, reactions, reaction, 2022, 2021, 2020, 2019, Mnet, twice, blackpink, izone, rosé, lisa, jennie, jimin, taehyung, jungkook, hongjoong, san, army, blink, once, ikonic, atiny, moa, nctizen, monbebe, performance, kpop, k-pop, k pop, queendom, road to kingdom, kingdom, queendom 2,<br /><br />#KPOP #BTS #BLACKPINK #TWICE{% endraw %}
