@@ -1,0 +1,15 @@
+---
+title: "FINALLY a PC laptop to take on the M1 Max MacBook Pro..."
+image: "https:\/\/i.ytimg.com\/vi\/3-HeirOxbnM\/hqdefault.jpg"
+vid_id: "3-HeirOxbnM"
+categories: "Science-Technology"
+tags: ["macbook","macbook pro","m1 max"]
+date: "2022-04-22T04:36:40+03:00"
+vid_date: "2022-04-09T15:02:50Z"
+duration: "PT17M1S"
+viewcount: "102149"
+likeCount: "3603"
+dislikeCount: ""
+channel: "Luke Miani"
+---
+{% raw %}Thanks to MSI for sponsoring! Check out the Creator Z16P:<br />Learn More: <a rel="nofollow" target="blank" href="https://msi.gm/3Jl3UNO">https://msi.gm/3Jl3UNO</a><br />Buy Now: <a rel="nofollow" target="blank" href="https://msi.gm/creatorz16pLM">https://msi.gm/creatorz16pLM</a><br />*IMPORTANT NOTE*<br />MSI sponsored a portion of this video but had no say in my coverage beyond the sponsored segment at the beginning. No other part was influenced, scripted, or requested by MSI.<br /><br />Apple shook up the industry when they released the M1 Pro and M1 Max MacBook Pros last year, not just in terms of insane performance, but efficiency, battery life, form factor, and display technology. Meanwhile, MSI's new Creator Z16P promises to deliver many of these benefits for creative professionals, while claiming to also be much faster! Today we'll pit the M1 Max MacBook Pro against the MSI Creator Z16P with Alder Lake Intel Core i7 12700h and Nvidia RTX 3080!<br /><br />Time stamps:<br />0:00 Intro<br />2:15 Specs compared<br />3:17 Performance comparisons<br />3:35 Synthetics (GPU &amp; CPU)<br />5:06 Video editing<br />5:42 3D modeling<br />6:54 Thermal comparison<br />9:44 Battery life test<br />11:05 Display comparison<br />12:10 Trackpad vs touch screen<br />12:48 Keyboards<br />13:35 Speaker test<br />14:30 Ports<br />14:55 Upgradability<br />15:45 Closing thoughts<br /><br />Follow me on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/LukeMiani">https://twitter.com/LukeMiani</a><br /><br />Follow me on Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/lukemiani">https://www.twitch.tv/lukemiani</a><br /><br />Join my Subreddit! <a rel="nofollow" target="blank" href="https://www.reddit.com/r/lukemianiyoutube">https://www.reddit.com/r/lukemianiyoutube</a><br /><br />Gear: <br />iFixit Pro Toolkit: <a rel="nofollow" target="blank" href="https://amzn.to/3bYIzdM">https://amzn.to/3bYIzdM</a><br />Panasonic Lumix GH5: <a rel="nofollow" target="blank" href="https://amzn.to/3b3oMtj">https://amzn.to/3b3oMtj</a><br />Leica 12-60MM Lens: <a rel="nofollow" target="blank" href="https://amzn.to/3hQ5URf">https://amzn.to/3hQ5URf</a><br />Sennheiser MKH 416: <a rel="nofollow" target="blank" href="https://amzn.to/31zGwt2">https://amzn.to/31zGwt2</a> <br />Zoom H6: <a rel="nofollow" target="blank" href="https://amzn.to/2ECYSk6">https://amzn.to/2ECYSk6</a><br />Sennheiser MKE 440: <a rel="nofollow" target="blank" href="https://amzn.to/2JRwIRU">https://amzn.to/2JRwIRU</a><br />Edelkrone SliderOne V2: <a rel="nofollow" target="blank" href="https://amzn.to/33mTZmt">https://amzn.to/33mTZmt</a><br />*Amazon Links are affiliate codes and generate small commission to support the channel*{% endraw %}
