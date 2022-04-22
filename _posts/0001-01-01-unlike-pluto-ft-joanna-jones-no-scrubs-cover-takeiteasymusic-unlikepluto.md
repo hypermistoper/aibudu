@@ -1,0 +1,15 @@
+---
+title: "Unlike Pluto ft. Joanna Jones - No Scrubs (Cover)"
+image: "https:\/\/i.ytimg.com\/vi\/2xC82vebOAE\/hqdefault.jpg"
+vid_id: "2xC82vebOAE"
+categories: "Music"
+tags: ["relax","rap","hip-hop"]
+date: "2022-04-22T07:58:11+03:00"
+vid_date: "2017-06-16T15:11:37Z"
+duration: "PT3M26S"
+viewcount: "17068594"
+likeCount: "71320"
+dislikeCount: ""
+channel: "Take It Easy"
+---
+{% raw %}#TakeItEasyMusic #UnlikePluto #DeepHouse<br /><br />✖ Take It Easy<br />☛ Track: Unlike Pluto ft. Joanna Jones - No Scrubs (Cover)<br />☛ Facebooke Private: <a rel="nofollow" target="blank" href="https://bit.ly/34jwfRu">https://bit.ly/34jwfRu</a><br />☛ Facebook Page: <a rel="nofollow" target="blank" href="https://bit.ly/3e2w1ma">https://bit.ly/3e2w1ma</a><br />☛ Soundcloud: <a rel="nofollow" target="blank" href="https://bit.ly/2XiGynm">https://bit.ly/2XiGynm</a><br />☛ Youtube Rec: <a rel="nofollow" target="blank" href="https://bit.ly/2RhHm8e">https://bit.ly/2RhHm8e</a><br />☛ Instagram Private: <a rel="nofollow" target="blank" href="https://bit.ly/2V4RySI">https://bit.ly/2V4RySI</a><br />☛ Instagram Page: <a rel="nofollow" target="blank" href="https://bit.ly/39LMyrq">https://bit.ly/39LMyrq</a><br /><br />✖ Subscribe More Channels:<br />☛ Noostalgic Mood: <a rel="nofollow" target="blank" href="https://goo.gl/LF0B19">https://goo.gl/LF0B19</a><br />☛ Take It Easy : <a rel="nofollow" target="blank" href="https://goo.gl/vDDBGm">https://goo.gl/vDDBGm</a><br />☛ InfinitySound: <a rel="nofollow" target="blank" href="https://goo.gl/GYI6Qw">https://goo.gl/GYI6Qw</a><br />☛ GanjaMusicHD: <a rel="nofollow" target="blank" href="https://goo.gl/YxqIIr">https://goo.gl/YxqIIr</a><br /><br />✖ Free Download: <br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/5y38Jt">https://goo.gl/5y38Jt</a><br /><br />✖ Follow / Unlike Pluto:<br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/4Ki4FJ">https://goo.gl/4Ki4FJ</a><br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/Cd51Tg">https://goo.gl/Cd51Tg</a><br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/n4sFmz">https://goo.gl/n4sFmz</a><br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/pKaGbQ">https://goo.gl/pKaGbQ</a><br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/TMr6zE">https://goo.gl/TMr6zE</a><br /><br />✖ Follow / Joanna Jones:<br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/9dxehq">https://goo.gl/9dxehq</a><br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/ffUMs4">https://goo.gl/ffUMs4</a><br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/tV1c37">https://goo.gl/tV1c37</a><br /><br />✖ Picture by Josias Teófilo:<br />☛ <a rel="nofollow" target="blank" href="https://goo.gl/2zcTyb">https://goo.gl/2zcTyb</a><br /><br />✖ TO OWNERS &amp; COPYRIGHT HOLDERS:<br />This channel is created to promote magnificent songs, and as well, producers. Absolutely, NO COPYRIGHT INFRINGEMENT INTENDED. This CHANNEL CLAIMS NO RIGHTS OR OWNERSHIP over the contents posted. If you wish for a track to be removed, please let us know so we can remove it from our feed immediately: TakeeItEassy@gmail.com{% endraw %}
