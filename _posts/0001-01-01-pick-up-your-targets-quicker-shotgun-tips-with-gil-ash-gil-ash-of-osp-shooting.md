@@ -1,0 +1,15 @@
+---
+title: "Pick Up Your Targets Quicker | Shotgun Tips with Gil Ash"
+image: "https:\/\/i.ytimg.com\/vi\/4LStsNHi8CM\/hqdefault.jpg"
+vid_id: "4LStsNHi8CM"
+categories: "Sports"
+tags: ["#LetsGoHunting","Shotgun","firearm education"]
+date: "2022-04-22T23:46:43+03:00"
+vid_date: "2011-03-16T14:45:27Z"
+duration: "PT3M21S"
+viewcount: "318522"
+likeCount: "1143"
+dislikeCount: ""
+channel: "NSSF—The Firearm Industry Trade Association"
+---
+{% raw %}Gil Ash of OSP Shooting Schools shares the secret to getting a hard focus on the bird faster and more clearly with this valuable tip about how the eyes work.  (NSSF Video) #LetsGoShooting #NSSF<br />#LetsGoHunting #NSSF<br />____<br />Subscribe to theNSSF channel: <a rel="nofollow" target="blank" href="http://nssf.it/youtube">http://nssf.it/youtube</a><br />____<br />Visit and follow us:<br />____<br />Let's Go Shooting [<a rel="nofollow" target="blank" href="http://LetsGoShooting.org]:">http://LetsGoShooting.org]:</a><br /><a rel="nofollow" target="blank" href="http://facebook.com/letsgoshootingusa">http://facebook.com/letsgoshootingusa</a> | <a rel="nofollow" target="blank" href="http://twitter.com/LetsGoShootUSA">http://twitter.com/LetsGoShootUSA</a> | <a rel="nofollow" target="blank" href="http://instagram.com/letsgoshootingusa">http://instagram.com/letsgoshootingusa</a><br />____<br />Let's Go Hunting [<a rel="nofollow" target="blank" href="http://LetsGoHunting.org]">http://LetsGoHunting.org]</a><br /><a rel="nofollow" target="blank" href="http://facebook.com/letsgohuntingusa">http://facebook.com/letsgohuntingusa</a> | <a rel="nofollow" target="blank" href="http://instagram.com/letsgohuntingusa">http://instagram.com/letsgohuntingusa</a> | <a rel="nofollow" target="blank" href="http://twitter.com/LetsGoHuntUSA">http://twitter.com/LetsGoHuntUSA</a><br />____<br />#GunOwnersCare [<a rel="nofollow" target="blank" href="http://GunOwnersCare.org]">http://GunOwnersCare.org]</a><br /><a rel="nofollow" target="blank" href="http://facebook.com/gunownerscare">http://facebook.com/gunownerscare</a> | <a rel="nofollow" target="blank" href="http://instagram.com/gunownerscare">http://instagram.com/gunownerscare</a> | <a rel="nofollow" target="blank" href="http://twitter.com/GunOwnersCare">http://twitter.com/GunOwnersCare</a><br />____<br />Find a place to shoot: <a rel="nofollow" target="blank" href="http://wheretoshoot.org">http://wheretoshoot.org</a><br />____<br />NSSF [<a rel="nofollow" target="blank" href="http://NSSF.org]">http://NSSF.org]</a><br /><a rel="nofollow" target="blank" href="http://Facebook.com/NSSFcomm">http://Facebook.com/NSSFcomm</a> | <a rel="nofollow" target="blank" href="http://instagram.com/thenssf">http://instagram.com/thenssf</a><br /><a rel="nofollow" target="blank" href="http://Twitter.com/NSSF">http://Twitter.com/NSSF</a> | <a rel="nofollow" target="blank" href="http://linkedin.com/company/349673">http://linkedin.com/company/349673</a><br />____<br />#NSSF | #PlusOneMovement | #LetsGoShooting | #LetsGoHunting{% endraw %}
