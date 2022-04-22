@@ -1,0 +1,15 @@
+---
+title: "Python Tutorial: Logging Basics - Logging to Files, Setting Levels, and Formatting"
+image: "https:\/\/i.ytimg.com\/vi\/-ARI4Cz-awo\/hqdefault.jpg"
+vid_id: "-ARI4Cz-awo"
+categories: "Education"
+tags: ["Python","Logging","Python Logging"]
+date: "2022-04-23T02:34:59+03:00"
+vid_date: "2017-03-15T16:00:00Z"
+duration: "PT14M25S"
+viewcount: "374425"
+likeCount: "9737"
+dislikeCount: ""
+channel: "Corey Schafer"
+---
+{% raw %}In this Python Tutorial, we will be going over the basics of logging. We will learn how to switch out our print statements for logs, change the logging level, add logs to files, and also how to change the format of those logs. Let's get started.<br /><br />Advanced Logging Video - <a rel="nofollow" target="blank" href="https://youtu.be/jxmzY9soFXg">https://youtu.be/jxmzY9soFXg</a><br />Log Record Attribute Docs: <a rel="nofollow" target="blank" href="https://docs.python.org/3/library/logging.html#logrecord-attributes">https://docs.python.org/3/library/logging.html#logrecord-attributes</a><br /><br />The code from this video can be found at:<br /><a rel="nofollow" target="blank" href="https://github.com/CoreyMSchafer/code_snippets/tree/master/Logging-Basics">https://github.com/CoreyMSchafer/code_snippets/tree/master/Logging-Basics</a><br /><br /><br />✅ Support My Channel Through Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/coreyms">https://www.patreon.com/coreyms</a><br /><br />✅ Become a Channel Member:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCCezIgC97PvUuR4_gbFUs5g/join">https://www.youtube.com/channel/UCCezIgC97PvUuR4_gbFUs5g/join</a><br /><br />✅ One-Time Contribution Through PayPal:<br /><a rel="nofollow" target="blank" href="https://goo.gl/649HFY">https://goo.gl/649HFY</a><br /><br />✅ Cryptocurrency Donations:<br />Bitcoin Wallet - 3MPH8oY2EAgbLVy7RBMinwcBntggi7qeG3<br />Ethereum Wallet - 0x151649418616068fB46C3598083817101d3bCD33<br />Litecoin Wallet - MPvEBY5fxGkmPQgocfJbxP6EmTo5UUXMot<br /><br />✅ Corey's Public Amazon Wishlist<br /><a rel="nofollow" target="blank" href="http://a.co/inIyro1">http://a.co/inIyro1</a><br /><br />✅ Equipment I Use and Books I Recommend:<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/coreyschafer">https://www.amazon.com/shop/coreyschafer</a><br /><br />▶️ You Can Find Me On:<br />My Website - <a rel="nofollow" target="blank" href="http://coreyms.com/">http://coreyms.com/</a><br />My Second Channel - <a rel="nofollow" target="blank" href="https://www.youtube.com/c/coreymschafer">https://www.youtube.com/c/coreymschafer</a><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/CoreyMSchafer">https://www.facebook.com/CoreyMSchafer</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/CoreyMSchafer">https://twitter.com/CoreyMSchafer</a><br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/coreymschafer/">https://www.instagram.com/coreymschafer/</a><br /><br />#Python{% endraw %}
