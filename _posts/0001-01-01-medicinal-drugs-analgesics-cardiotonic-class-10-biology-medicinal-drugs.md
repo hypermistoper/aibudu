@@ -1,0 +1,15 @@
+---
+title: "Medicinal Drugs | Analgesics | Cardiotonic | Class 10 Biology"
+image: "https:\/\/i.ytimg.com\/vi\/2ZAsWQIwXlI\/hqdefault.jpg"
+vid_id: "2ZAsWQIwXlI"
+categories: "Education"
+tags: ["Medicinal Drugs","Medicinal Drugs in urdu","Medicinal Drugs in hindi"]
+date: "2022-04-23T21:18:01+03:00"
+vid_date: "2021-12-30T13:43:52Z"
+duration: "PT3M57S"
+viewcount: "572"
+likeCount: "23"
+dislikeCount: ""
+channel: "ALI ACADEMY BIOLOGY LECTURES"
+---
+{% raw %}Medicinal Drugs | Analgesics | Cardiotonic | Class 10 Biology<br /><br />About This Video ........................<br />In This Video Lecture You Will Learn Basic Concept<br /><br />A medication (also called  medicament, medicine, pharmaceutical drug, medicinal drug or simply drug) is a drug  used to  diagnose,  cure,  treat, or prevent disease.<br /><br />About This Channel.....................<br /><br />I make these videos cause I love to draw and connect the complexity of science and medicine into art. I'm not saying. I'm 100% correct in all my videos, but I do try to obtain the information from credible sources. <br /> One-stop destination for all biology lectures. <br />_ students in class 11, 12 or appearing for competitive medical exams ( NMDCAT ) will find it very beneficial <br />_ The videos are categories under various heading to make the students life simplified <br /><br />Visit My Other Channel Playlist .....................<br /><br />NMDCAT PART 1: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLSXzOBvA_c1Mwe5KZtn9NXyHWPHvPTPG2">https://youtube.com/playlist?list=PLSXzOBvA_c1Mwe5KZtn9NXyHWPHvPTPG2</a><br /><br />NMDCAT PART 2: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLSXzOBvA_c1MkXL0rEFZgTYI8rkpxYiZh">https://youtube.com/playlist?list=PLSXzOBvA_c1MkXL0rEFZgTYI8rkpxYiZh</a><br /><br />Class 11th Lectures: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLSXzOBvA_c1Mwe5KZtn9NXyHWPHvPTPG2">https://youtube.com/playlist?list=PLSXzOBvA_c1Mwe5KZtn9NXyHWPHvPTPG2</a><br /><br />Class 12th Lectures: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLSXzOBvA_c1MkXL0rEFZgTYI8rkpxYiZh">https://youtube.com/playlist?list=PLSXzOBvA_c1MkXL0rEFZgTYI8rkpxYiZh</a><br /><br />Class 10th Lectures:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLSXzOBvA_c1PzItWzs9PNc3R-ALvCCBd1">https://youtube.com/playlist?list=PLSXzOBvA_c1PzItWzs9PNc3R-ALvCCBd1</a><br /><br />Subscribe My Channel:<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/ALIACADEMYA7R">https://youtube.com/c/ALIACADEMYA7R</a><br /><br />Subscribe My other channel for federal and KPK board Lectures:<br /><a rel="nofollow" target="blank" href="https://youtube.com/channel/UC5PnwruPWPetHvskbVOKHWQ">https://youtube.com/channel/UC5PnwruPWPetHvskbVOKHWQ</a><br /><br />Social Link........................<br />Instagram:<br /><a rel="nofollow" target="blank" href="https://instagram.com/ranaalibiologist?utm_medium=copy_linkIDENTICAL">https://instagram.com/ranaalibiologist?utm_medium=copy_linkIDENTICAL</a> TWINS{% endraw %}
