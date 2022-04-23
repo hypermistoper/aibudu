@@ -1,0 +1,15 @@
+---
+title: "Russian Circles - Sinaia | Audiotree Far Out"
+image: "https:\/\/i.ytimg.com\/vi\/noApRfRztHs\/hqdefault.jpg"
+vid_id: "noApRfRztHs"
+categories: "Music"
+tags: ["audiotree live","in studio recording","chicago"]
+date: "2022-04-23T19:23:35+03:00"
+vid_date: "2020-01-14T17:28:22Z"
+duration: "PT8M54S"
+viewcount: "801853"
+likeCount: "15524"
+dislikeCount: ""
+channel: "Audiotree"
+---
+{% raw %}Download &amp; Stream Russian Circles Far Out — <a rel="nofollow" target="blank" href="http://smarturl.it/ATFO-Russian-Circles">http://smarturl.it/ATFO-Russian-Circles</a><br /><br />Russian Circles is an iconic instrumental post metal band signed to Sargent House. They're known among their peers for gargantuan riffs, precisely dialed in gear and smashing constructions that yield catharsis for all who listen. Check out the killer performance by Russian Circles recorded at Mayslake Peabody Estate in Oakbrook, IL.<br /><br />Far Out is an Audiotree series where we step outside our studio to record artists in unusual environments.<br /><br />Keep up with the band: <a rel="nofollow" target="blank" href="https://russiancirclesband.com/">https://russiancirclesband.com/</a><br /><br />Behind the scenes: <a rel="nofollow" target="blank" href="https://audiotree.tv/farout/russian-circles">https://audiotree.tv/farout/russian-circles</a><br /><br />Watch more Far Out: <a rel="nofollow" target="blank" href="http://bit.ly/36TCpbD">http://bit.ly/36TCpbD</a><br /><br />⎻⎻<br /><br />Watch more → <a rel="nofollow" target="blank" href="http://audiotree.tv">http://audiotree.tv</a><br /><br />Subscribe<br />Spotify → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-Spotify">http://smarturl.it/Audiotree-Spotify</a><br />Apple Music → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-AppleMusic">http://smarturl.it/Audiotree-AppleMusic</a><br />Bandcamp → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-Bandcamp">http://smarturl.it/Audiotree-Bandcamp</a><br />YouTube → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-YouTube">http://smarturl.it/Audiotree-YouTube</a><br />Google Play → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-GooglePlay">http://smarturl.it/Audiotree-GooglePlay</a><br />Amazon MP3 → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-AmazonMP3">http://smarturl.it/Audiotree-AmazonMP3</a><br /><br />Follow<br />Instagram → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-IG">http://smarturl.it/Audiotree-IG</a><br />Twitter → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-TW">http://smarturl.it/Audiotree-TW</a><br />Facebook → <a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-FB">http://smarturl.it/Audiotree-FB</a><br /><br />Audiotree T-Shirts, Hats &amp; More<br /><a rel="nofollow" target="blank" href="http://smarturl.it/Audiotree-Shop">http://smarturl.it/Audiotree-Shop</a>{% endraw %}
