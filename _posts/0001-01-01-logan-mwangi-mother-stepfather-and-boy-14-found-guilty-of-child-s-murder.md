@@ -1,0 +1,15 @@
+---
+title: "Logan Mwangi: Mother, stepfather and boy, 14, found guilty of child's murder"
+image: "https:\/\/i.ytimg.com\/vi\/kNLEyYiISjg\/hqdefault.jpg"
+vid_id: "kNLEyYiISjg"
+categories: "News-Politics"
+tags: ["sky news","logan","williamson"]
+date: "2022-04-23T12:51:12+03:00"
+vid_date: "2022-04-21T14:40:23Z"
+duration: "PT5M40S"
+viewcount: "28268"
+likeCount: "278"
+dislikeCount: ""
+channel: "Sky News"
+---
+{% raw %}The mother of a five-year-boy whose body was dumped in the River Ogmore near Sarn in Bridgend has been found guilty of his murder. <br /><br />The trial at Cardiff Crown Court heard that Logan Mwangi was found to have more than 50 cuts and bruises and &quot;catastrophic&quot; internal injuries.<br /><br />After a nine-week trial, it took the jury five hours to find Angharad Williamson, her partner John Cole and a 14-year-old boy all guilty of murder and perverting the course of justice. .<br /><br />WARNING: This report describes the injuries suffered by five-year-old Logan and a distressing 999 call.<br /><br />SUBSCRIBE to our YouTube channel for more videos: <a rel="nofollow" target="blank" href="http://www.youtube.com/skynews">http://www.youtube.com/skynews</a> <br /><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/skynews">https://twitter.com/skynews</a> <br />Like us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/skynews">https://www.facebook.com/skynews</a> <br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/skynews">https://www.instagram.com/skynews</a> <br />Follow us on TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@skynews">https://www.tiktok.com/@skynews</a><br /><br />For more content go to <a rel="nofollow" target="blank" href="http://news.sky.com">http://news.sky.com</a> and download our apps: <br />Apple: <a rel="nofollow" target="blank" href="https://itunes.apple.com/gb/app/sky-news/id316391924?mt=8">https://itunes.apple.com/gb/app/sky-news/id316391924?mt=8</a> <br />Android <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=com.bskyb.skynews.android&amp;hl=en_GB">https://play.google.com/store/apps/details?id=com.bskyb.skynews.android&amp;hl=en_GB</a> <br /><br />Sky News videos are now available in Spanish here/Los video de Sky News están disponibles en español aquí <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/skynewsespanol">https://www.youtube.com/channel/skynewsespanol</a><br />Sky News videos are also available in German here/Hier können Sie außerdem Sky News-Videos auf Deutsch finden: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHYg31l2xrF-Bj859nsOfnA">https://www.youtube.com/channel/UCHYg31l2xrF-Bj859nsOfnA</a><br /><br />To enquire about licensing Sky News content, you can find more information here:  <a rel="nofollow" target="blank" href="https://news.sky.com/info/library-sales">https://news.sky.com/info/library-sales</a>{% endraw %}
