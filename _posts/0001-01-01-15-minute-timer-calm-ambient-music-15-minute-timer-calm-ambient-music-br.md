@@ -1,0 +1,15 @@
+---
+title: "15 Minute Timer - Calm Ambient Music"
+image: "https:\/\/i.ytimg.com\/vi\/IaJ51vYyXX0\/hqdefault.jpg"
+vid_id: "IaJ51vYyXX0"
+categories: "Film-Animation"
+tags: ["relaxing sleep music","yoga music","calming music"]
+date: "2022-04-24T01:43:14+03:00"
+vid_date: "2021-03-02T14:42:13Z"
+duration: "PT15M"
+viewcount: "2188026"
+likeCount: "3660"
+dislikeCount: ""
+channel: "Tick Tock Countdown Timer"
+---
+{% raw %}15 Minute Timer - Calm Ambient Music<br /><br />📜 Message from the Creator of Tick Tock Countdown Timer<br /><br />I am Tom C. and I specialise in the field of Mental Health for a number of years.  I want to place where people can relax, unwind, study and sleep better. <br /><br />My videos are ideal for studying, sleep, relaxation and exercise. My aim is to provide the highest quality relaxing content that doesn’t contain any annoying talking or commentary. Research shows this can be help with mental heath. <br /><br />All my timer videos are made in high quality with editing programs such as Premiere Pro 2020, Photoshop and Luma Fusion. Each video takes many hours of editing and mixing to produce the perfect timer video for my viewers. <br /><br />Some video and audio files are make in collaboration with other video and audio creators with all the licenses and commercial use rights.<br /><br />All videos, audio, effects are mixed and created by myself.<br /><br />⏱ Popular Timers <br /><br />5 Minute Timer - Calm and Relaxing Music: <a rel="nofollow" target="blank" href="https://youtu.be/hso3oR8PJss">https://youtu.be/hso3oR8PJss</a><br />10 Minute Timer - Relaxing Music: <a rel="nofollow" target="blank" href="https://youtu;.be/yxu0qHbG_2c">https://youtu;.be/yxu0qHbG_2c</a><br />15 Minute Timer - No Music: <a rel="nofollow" target="blank" href="https://youtu.be/v-vXDXrGSlI">https://youtu.be/v-vXDXrGSlI</a><br />30 Minute Timer - Instrumental Relaxing Music: <a rel="nofollow" target="blank" href="https://youtu.be/G4X4ZQHsTyE">https://youtu.be/G4X4ZQHsTyE</a><br />45 Minute Timer - Ambient Music: <a rel="nofollow" target="blank" href="https://youtu.be/TKmhQprljAc">https://youtu.be/TKmhQprljAc</a><br />1 Hour Timer - Beautiful Ocean Sunset <a rel="nofollow" target="blank" href="https://youtu.be/TKmhQprljAc">https://youtu.be/TKmhQprljAc</a><br /><br />🎥 Editing<br />-  Luma Fusion<br />-  Premiere Pro 2020<br />- Adobe After Effects<br />- Photoshop<br /><br />📽Video and filming<br />- Sony a6000<br />- Fujifilm X-T3<br />- GoPro Hero8 <br />- Story Blocks<br />-  Pexels<br />-  Pixabay<br />- Adobe Stock<br />- Pond 5<br /><br />🎶Audio<br />- Story Blocks<br />- Youtube Audio Library<br /><br />🎤Microphone<br />- Blue Yeta<br />- Audio-Technica BP4025<br />- Zoom H2N<br /><br /><br />Hashtags<br />#Timer #Relaxation #RelaxingMusic<br /><br />© Copyright Tick Tock Countdown Timer 2021. All rights reserved. Any reproduction or republication of all or part of this video is prohibited. All of the video material on this channel is copyright protected.{% endraw %}
