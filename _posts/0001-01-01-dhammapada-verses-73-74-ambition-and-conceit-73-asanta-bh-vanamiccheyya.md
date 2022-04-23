@@ -1,0 +1,15 @@
+---
+title: "Dhammapada Verses 73 & 74: Ambition and Conceit"
+image: "https:\/\/i.ytimg.com\/vi\/MvpmKbbUjP4\/hqdefault.jpg"
+vid_id: "MvpmKbbUjP4"
+categories: "Education"
+tags: ["Dhammapada","Verses","Ambition"]
+date: "2022-04-23T19:54:50+03:00"
+vid_date: "2015-06-23T02:46:21Z"
+duration: "PT25M"
+viewcount: "6236"
+likeCount: "176"
+dislikeCount: ""
+channel: "Yuttadhammo Bhikkhu"
+---
+{% raw %}73. asantaṃ bhāvanamiccheyya, purekkhārañca bhikkhusu.<br />āvāsesu ca issariyaṃ, pūjā parakulesu ca.<br /><br />74. mameva kata maññantu, gihīpabbajitā ubho.<br />mamevātivasā assu, kiccākiccesu kismici.<br />iti bālassa saṅkappo, icchā māno ca vaḍḍhati.<br /><br />Video 57 in a series on the Dhammapada, a set of 423 verse teachings given by the Buddha, including explanation of the Pali verse, a synopsis of the background story and application of the teaching to our practice.<br /><br />For more information the dhammapada: <br /><br /><a rel="nofollow" target="blank" href="http://www.buddhanet.net/e-learning/buddhism/dpreface.htm">http://www.buddhanet.net/e-learning/buddhism/dpreface.htm</a> <br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - -<br /><br />Our Website:<br /><br /><a rel="nofollow" target="blank" href="http://www.sirimangalo.org/">http://www.sirimangalo.org/</a><br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - -<br /><br />Subscribe for updates here:<br /><br /><a rel="nofollow" target="blank" href="http://www.youtube.com/subscription_center?add_user=yuttadhammo">http://www.youtube.com/subscription_center?add_user=yuttadhammo</a><br /><br />and don't forget to click the 'like' button to help promote these videos!  Thanks for your questions, comments and support for what I do.<br /><br />May all beings be happy.<br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - -<br /><br />Facebook:<br /><br /> <a rel="nofollow" target="blank" href="http://www.facebook.com/yuttadhammo">http://www.facebook.com/yuttadhammo</a><br /><br />Twitter:<br /><br /> <a rel="nofollow" target="blank" href="http://www.twitter.com/yuttadhammo">http://www.twitter.com/yuttadhammo</a><br /><br />Google:<br /><br /> <a rel="nofollow" target="blank" href="http://www.google.com/profiles/yuttadhammo">http://www.google.com/profiles/yuttadhammo</a><br /><br />Weblog:<br /><br /> <a rel="nofollow" target="blank" href="http://yuttadhammo.sirimangalo.org/">http://yuttadhammo.sirimangalo.org/</a><br /><br />Schedule:<br /><br /> <a rel="nofollow" target="blank" href="http://yuttadhammo.sirimangalo.org/schedule">http://yuttadhammo.sirimangalo.org/schedule</a><br /><br />Audio Talks:<br /><br /> <a rel="nofollow" target="blank" href="http://yuttadhammo.sirimangalo.org/audio">http://yuttadhammo.sirimangalo.org/audio</a><br /><br />Book on How To Meditate:<br /><br /> <a rel="nofollow" target="blank" href="http://htm.sirimangalo.org/">http://htm.sirimangalo.org/</a><br /><br />Supporting This Work:<br /><br /> <a rel="nofollow" target="blank" href="http://www.sirimangalo.org/support">http://www.sirimangalo.org/support</a>{% endraw %}
