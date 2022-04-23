@@ -1,0 +1,15 @@
+---
+title: "Minecraft: Wooden Farm House | Simple Survival House Tutorial"
+image: "https:\/\/i.ytimg.com\/vi\/ED0ZDOEXj5E\/hqdefault.jpg"
+vid_id: "ED0ZDOEXj5E"
+categories: "Gaming"
+tags: ["minecraft","How To Build a Simple Survival Wooden House","Wooden House"]
+date: "2022-04-23T05:54:38+03:00"
+vid_date: "2022-04-23T02:24:05Z"
+duration: "PT25M37S"
+viewcount: "153"
+likeCount: "47"
+dislikeCount: ""
+channel: "Rectic 7"
+---
+{% raw %}This video is a small tutorial on how to make a wooden country house in minecraft survival. I hope you enjoy the video and do not forget to follow me on my social networks<br /><br />-------------------------🧱 DETAILS 🧱---------------------------<br />🌸 -Shaders: BLS<br />🔨 -Texture Pack:  Faithful <br /> 👷 -Author: Rectic7<br /><br />---------------------------⏰ TIMESTAMPS⏰ ----------------------------<br />0:00 Animation<br />0:17 Materials<br />0:40 Construction (House)<br />16:23 Interior Decoration<br />22:57 Roof Wall Construction<br />24:11 Results<br /><br />----------------------📱 SOCIAL NETWORKS 📱 ---------------------<br />-Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Rectic7">https://www.facebook.com/Rectic7</a><br />-TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@rectic7_tutor...">https://www.tiktok.com/@rectic7_tutor...</a><br />-Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/rectic7_ideas/">https://www.instagram.com/rectic7_ideas/</a><br />-Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/rectic7_">https://www.twitch.tv/rectic7_</a><br />-Discord: <a rel="nofollow" target="blank" href="https://discord.gg/qtpJtGrENm">https://discord.gg/qtpJtGrENm</a><br />-For business inquiries: rectic7@outlook.com<br /><br />--------------------------🖥️ MY COMPUTER 🖥️ ----------------------------<br />CPU: INTEL CORE I5 10400 = <a rel="nofollow" target="blank" href="https://amzn.to/3LaAovM">https://amzn.to/3LaAovM</a><br />GPU: RTX 2060 = <a rel="nofollow" target="blank" href="https://amzn.to/3rHNgSk">https://amzn.to/3rHNgSk</a><br />RAM: 2 x 8GB HyperX Fury  = <a rel="nofollow" target="blank" href="https://amzn.to/3Lf0YDZ">https://amzn.to/3Lf0YDZ</a><br />POWER SUPPLY: Montech Beta 550W = <a rel="nofollow" target="blank" href="https://amzn.to/3xNLjYw">https://amzn.to/3xNLjYw</a><br />KEYBOARD: HiveNets = <a rel="nofollow" target="blank" href="https://amzn.to/3Owcwor">https://amzn.to/3Owcwor</a><br />MOUSE: Ajazz Firstblood  = <a rel="nofollow" target="blank" href="https://amzn.to/3k0XIAe">https://amzn.to/3k0XIAe</a><br />SPEAKERS: Bluedee  = <a rel="nofollow" target="blank" href="https://amzn.to/3LcfITZ">https://amzn.to/3LcfITZ</a><br /><br />--------------------------🎵 CREDITS 🎵 ----------------------------<br />Music 1: <a rel="nofollow" target="blank" href="https://youtu.be/PDseYny6dG4?list=LL">https://youtu.be/PDseYny6dG4?list=LL</a><br />Music 2: <a rel="nofollow" target="blank" href="https://youtu.be/ZVATs7IgDgU">https://youtu.be/ZVATs7IgDgU</a><br /><br />Tags:<br />#farmhouse #minecrafthouse #minecrafttutorial{% endraw %}
