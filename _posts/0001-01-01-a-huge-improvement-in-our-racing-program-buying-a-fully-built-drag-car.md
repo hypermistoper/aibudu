@@ -1,0 +1,15 @@
+---
+title: "A HUGE IMPROVEMENT IN OUR RACING PROGRAM  BUYING A FULLY BUILT DRAG CAR"
+image: "https:\/\/i.ytimg.com\/vi\/E_MkGHmelIk\/hqdefault.jpg"
+vid_id: "E_MkGHmelIk"
+categories: "Autos-Vehicles"
+tags: ["nitrous","street","street racing"]
+date: "2022-04-24T22:39:48+03:00"
+vid_date: "2022-04-22T16:57:23Z"
+duration: "PT19M4S"
+viewcount: "30926"
+likeCount: "2370"
+dislikeCount: ""
+channel: "DNR Auto"
+---
+{% raw %}Shop Real Carbon Fiber Accessories: <a rel="nofollow" target="blank" href="https://www.SimplyCarbonFiber.com/DNRauto">https://www.SimplyCarbonFiber.com/DNRauto</a> <br />Use &quot;DNRAUTO&quot; for 10% OFF!! <br /><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCpXKBEX8y8HCR32T1_ilx-A/join">https://www.youtube.com/channel/UCpXKBEX8y8HCR32T1_ilx-A/join</a><br /><br />Get the new Jackstand Mafia shirts, hoodies, and zip ups at <a rel="nofollow" target="blank" href="https://shitboxsupply.com">https://shitboxsupply.com</a><br /><br />Some folks have asked for a mailing address, so here it is!<br />Matt Ryce<br />POB 357 <br />Kenton DE 19955<br /><br /><br />None of what we do would be possible without the help of our great sponsors!!<br /><br /><br />The best damn fittings and lines in the game! SHITBOX SUPPLY<br />www.shitboxsupply.com<br /><br />D&amp;S Fabricators LLC. These guys are more than just a team, they are a family. They Helped me build the Brooklyn Dodger and always have my back for anything I need. Real Family. <a rel="nofollow" target="blank" href="https://dandsfabricatorsllc.com">https://dandsfabricatorsllc.com</a><br /><br />Snake Eater Performance *SAVE* with coupon code &quot;DNRAUTO&quot; !!!<br />www.snakeeaterperformance.com<br /><br />Hughes Performance some of the baddest transmission builders and parts! I personally have one of their Pro Series LS converters!<br />www.hughesperformance.com <br /><br />My good friends over at Hot Shots Secret!! The oil and lubricants I use to keep my race car going!<br />www.hotshotsecret.com<br /><br />Jax Wax! The wash and care products I use on my cars<br />Save 15% OFF  without coupon code “Dodger” at checkout<br />www.jaxwax.com <br /><br />Ideal Getaways Travel for all your travel and race stay needs! Call Maggie to get a deal on your upcoming vacation, or even hotel room for a race event. Mention DNR Auto for the best deal! 302-535-2692<br /><br />Nitrous Express! For all your nitrous needs there's no one better than NX!<br /><br />Mike Thomas Fab for all your chassis needs! www.mikethomasfab.com<br /><br /> @Lucore Auto and LucoreRacing  has been absolutely instrumental to my success and progress this year. Great guys that really care about the work they do and making sure its right!!<br /><br />Rocket Glue for some bad A** traction compound. These guys are constantly pushing the limits and trying new formulas to give racers the best edge.<br /><br /> <br /> #nova #foolsgold #lsswap{% endraw %}
