@@ -1,0 +1,15 @@
+---
+title: "'I CAN'T GO FOR THAT 2022 ' (HALL AND OATES) Cover by The HSCC"
+image: "https:\/\/i.ytimg.com\/vi\/_xoYGtQiDjE\/hqdefault.jpg"
+vid_id: "_xoYGtQiDjE"
+categories: "Music"
+tags: ["CAN'T","(HALL","OATES)"]
+date: "2022-04-24T04:16:17+03:00"
+vid_date: "2022-04-21T22:00:11Z"
+duration: "PT4M19S"
+viewcount: "138641"
+likeCount: "8020"
+dislikeCount: ""
+channel: "The Hindley Street Country Club"
+---
+{% raw %}'I CAN'T GO FOR THAT 2022' (HALL &amp; OATES) Performed by The Hindley Street Country Club featuring Danny Lopresto<br /><br />🎟 2022 AUSTRALIAN LIVE CONCERT TOUR TICKETS 🎟 - <br /><a rel="nofollow" target="blank" href="https://linktr.ee/hscclive">https://linktr.ee/hscclive</a> <br /><br />Produced by The HSCC<br />Arranged by Constantine Delo<br />Recorded Live by Jordan Lennon at Cafe Komodo Prospect Adelaide<br />Mixed by Dave Ross<br />Filmed &amp; Edited by Dan Donato<br /><br />Lead Vocals: Danny Lopresto<br />Backing Vocals: Jordan Lennon<br />Drums &amp; Vocals: Brad Polain<br />Saxophone: Jack Degenhart<br />Keyboards: Dave Ross <br />Keyboards: Mark Fogliano<br />Guitar: Jake Milic<br />Percussion: Steve Todd<br />Bass Guitar &amp; Vocals: Constantine Delo <br /><br />Connect with the HSCC<br />Live Concert Tickets: <a rel="nofollow" target="blank" href="https://linktr.ee/hscclive ">https://linktr.ee/hscclive </a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/hindleyscc">https://www.facebook.com/hindleyscc</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/hscc_band">https://www.instagram.com/hscc_band</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/hindleysccmusic">https://twitter.com/hindleysccmusic</a><br /><br />Subscribe to our artist's channels:<br />Jordan Lennon (Vocals): <a rel="nofollow" target="blank" href="https://www.youtube.com/user/yeayya01">https://www.youtube.com/user/yeayya01</a><br /><br />Constantine Delo uses LANEY Amplification &amp; Speakers and Dunlop Strings <br />Laney - <a rel="nofollow" target="blank" href="https://www.laney.co.uk/artists/constantine-delo-hscc-the-hindley-street-country-club">https://www.laney.co.uk/artists/constantine-delo-hscc-the-hindley-street-country-club</a><br />Dunlop Strings - <a rel="nofollow" target="blank" href="https://www.jimdunlop.com/products/strings/">https://www.jimdunlop.com/products/strings/</a><br /><br />HSCC are proud to endorse and use SHURE Microphones &amp; In-Ear Monitor Systems. <br /><a rel="nofollow" target="blank" href="https://www.jands.com.au/brands/shure">https://www.jands.com.au/brands/shure</a><br /><br />Song written Allen, Hall &amp; Oates<br /><br />#nocando #icantgoforthat #hallandoates #darylhall #liveatdarylshouse  #R&amp;B #funk #smoothsoulclassics #yachtrock #billboardhits #vhsnumberones #sunrisesimplyred #bestcoversband #TheHSCC #billboardcharts #usnumberonehits #hindleystreetcountryclub #HSCC #SHURE #JANDS #coverband #yamahabb5000 #fenderguitars #livecoverband #viralvideos #livestudiosessions<br />#livestudiorecording #Laney #Dunlopstrings #absolutelylive{% endraw %}
