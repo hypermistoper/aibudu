@@ -1,0 +1,15 @@
+---
+title: "Sebecosuchians: The Croc Cousins that competed with Theropods"
+image: "https:\/\/i.ytimg.com\/vi\/UUxUOOaFIts\/hqdefault.jpg"
+vid_id: "UUxUOOaFIts"
+categories: "Science-Technology"
+tags: ["Sebecosuchians:","Cousins","competed"]
+date: "2022-04-24T20:20:49+03:00"
+vid_date: "2022-04-24T13:03:19Z"
+duration: "PT14M56S"
+viewcount: "1716"
+likeCount: "309"
+dislikeCount: ""
+channel: "Dr. Polaris"
+---
+{% raw %}Sebecosuchians were a successful group of predatory Notosuchians mostly native to the southern continents (with some notable exceptions). This lineage of hypercarnivorous terrestrial predators thrived in Late Cretaceous and Cenozoic South America, successfully competing with medium sized Theropod dinosaurs in many cases. Possessing xiphodont teeth, boxy laterally compressed skulls and erect limbs, Sebecosuchians spent their entire lives away from water. <br /><br />It was previously assumed that these animals were endemic to South America but later finds have since disproven this, with species native to Africa, Europe and possibly South Asia as well. First appearing in the fossil record about 85 million years ago, phylogenetic studies have suggested that Sebecosuchians probably diverged during the Middle Jurassic in Gondwana. Surviving the K-PG extinction event, these animals produced large and powerful forms in Miocene South America, with the 6m genus Barinasuchus being among the most massive terrestrial predators of the Cenozoic. Sebecosuchians died out during the later Miocene as their island continent began to cool and develop more arid, open conditions, with preferred Notoungulate prey becoming rarer and less diverse. <br /><br /><a rel="nofollow" target="blank" href="https://www.deviantart.com/drpolaris/">https://www.deviantart.com/drpolaris/</a><br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/DrPolaris">https://www.patreon.com/DrPolaris</a><br /><br />All copyrighted images/footage/music is protected under Fair Use for reasons of criticism, commentary, social satire, and education.<br /><br />All copyrighted images belong to their respected owners. Please notify me if I neglected to credit your work in the video.<br /><br />All copyrighted footage and images in this video are protected under FAIR USE for reasons of Commentary, Education, Criticism, Parody, and Social Satire.<br /><br />Copyright Disclaimer under section 107 of the Copyright Act 1976, allowance is made for “fair use” for purposes such as criticism, comment, news reporting, teaching, scholarship, education and research.<br /><br />Fair use is a use permitted by copyright statute that might otherwise be infringing. <br /><br />Educational use tips the balance in favour of fair use.<br /><br />This means, copyrighted images can be displayed, even without the owner’s permission. If I neglected to give the copyright owners credit, please inform me and I will give you the appropriate credit.<br /><br />All video/game/image/music content is recorded and edited under fair use rights for reasons of commentary, education, and social satire.{% endraw %}
