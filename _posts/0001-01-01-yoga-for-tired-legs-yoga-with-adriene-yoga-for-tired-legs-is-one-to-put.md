@@ -1,0 +1,15 @@
+---
+title: "Yoga For Tired Legs - Yoga With Adriene"
+image: "https:\/\/i.ytimg.com\/vi\/2137wAXvufE\/hqdefault.jpg"
+vid_id: "2137wAXvufE"
+categories: "Howto-Style"
+tags: ["yoga","yoga for legs","yoga with adriene"]
+date: "2022-04-25T07:13:11+03:00"
+vid_date: "2016-06-08T13:00:00Z"
+duration: "PT26M59S"
+viewcount: "2300758"
+likeCount: "25190"
+dislikeCount: ""
+channel: "Yoga With Adriene"
+---
+{% raw %}Yoga For Tired Legs is one to put in your regular rotation! This practice is good for so many many circumstances. Great for post-hike, post-run, post-walk, or workout. Wonderful when you are feeling bleh, or after a long day on your feet. A fabulous way to transition from one thing to the next, taking a little 25 min TLC yoga practice for your mind body and soul. Therapeutic for lower back, for the feet, and for those feeling anxious or fatigued. <br /><br />Need I say more? Hop on your mat and connect to your breath. Why? Because you are worth it. ;-)<br /><br />Join the community!<br /><br />- - - - - - - - - - <br /><br />❤️SUBSCRIBE to the YWA channel for free yoga videos every week and to support high-quality free yoga for all! ❤️<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/yogawithadriene?sub_confirmation=1">https://www.youtube.com/user/yogawithadriene?sub_confirmation=1</a><br /><br />- - - - - - - - - - <br /><br />🧘🏽♂️🧘♀️Become a FWFG YOGA member! 🧘🏻♂️🧘🏿♀️<br /><a rel="nofollow" target="blank" href="https://fwfg.com/?via=adriene">https://fwfg.com/?via=adriene</a><br />Join Find What Feels Good and access over 700 videos including yoga and meditation for all levels. Explore daily practices, workshops, in-depth learning, weekly or monthly accountability series, and an opportunity to connect with a one of a kind global community. This is your one-stop-shop for yoga, creativity, wellness, and all things FWFG. Try it FREE for 7 Days! <br /><br />- - - - - - - - - - <br /><br />🗓Get your FREE Yoga Calendar: 🗓<br /><a rel="nofollow" target="blank" href="http://yogawithadriene.com/calendar/">http://yogawithadriene.com/calendar/</a><br /><br />- - - - - - - - - - <br /><br />More at www.yogawithadriene.com<br />▶︎ Instagram: @adrienelouise<br />▶︎ Twitter: @yogawithadriene<br />▶︎ Facebook: Yoga With Adriene<br />▶︎ Shop: <a rel="nofollow" target="blank" href="https://shop.fwfg.com">https://shop.fwfg.com</a><br /><br />- - - - - - - - - - <br /><br />Music by Shakey Graves: <br /><a rel="nofollow" target="blank" href="https://www.shakeygraves.com">https://www.shakeygraves.com</a><br /><br />- - - - - - - - - - <br /><br />Yoga With Adriene, LLC recommends that you consult your physician regarding the applicability of any recommendations and follow all safety instructions before beginning any exercise program. When participating in any exercise or exercise program, there is the possibility of physical injury. If you engage in this exercise or exercise program, you agree that you do so at your own risk, are voluntarily participating in these activities, assume all risk of injury to yourself.{% endraw %}
