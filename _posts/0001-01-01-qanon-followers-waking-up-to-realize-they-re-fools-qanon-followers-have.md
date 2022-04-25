@@ -1,0 +1,15 @@
+---
+title: "QAnon Followers 'Waking Up' To Realize They're Fools"
+image: "https:\/\/i.ytimg.com\/vi\/cR00neuasbU\/hqdefault.jpg"
+vid_id: "cR00neuasbU"
+categories: "News-Politics"
+tags: ["220420__DR01QAnon_Repurposed","News","Politics"]
+date: "2022-04-25T10:53:13+03:00"
+vid_date: "2022-04-24T15:00:31Z"
+duration: "PT4M20S"
+viewcount: "26552"
+likeCount: "1829"
+dislikeCount: ""
+channel: "The Damage Report"
+---
+{% raw %}QAnon followers have new conspiracies and question whether Donald Trump understands the big plan. John Iadarola and Jayar Jackson break it down on The Damage Report. <br /><br />Read more here:<br /><br />Radio host Stew Peters’ ‘Watch the Water’ film ridiculously claims COVID-19 is snake venom - <a rel="nofollow" target="blank" href="https://www.poynter.org/fact-checking/2022/radio-host-stew-peters-watch-the-water-film-ridiculously-claims-covid-19-is-snake-venom/">https://www.poynter.org/fact-checking/2022/radio-host-stew-peters-watch-the-water-film-ridiculously-claims-covid-19-is-snake-venom/</a><br /><br />&quot;A new anti-vaccine documentary ridiculously claims that the coronavirus is not a virus, but a synthetic version of snake venom that evil forces are spreading through remdesivir, the mRNA COVID-19 vaccines and drinking water to “make you a hybrid of Satan.”<br /><br />The 48-minute film, released April 11, is the latest in an expanding genre of mega-viral, conspiracy-laden videos made in the mold of the “Plandemic” video from May 2020. Its title, “Watch the Water,” is a nod to a favorite refrain of the QAnon conspiracy theory, which is centered around the belief that a secret cabal of Satan-worshipping pedophiles is running a global sex-trafficking ring.&quot;<br /><br />**<br /><br />Become a TDR YouTube Member: <a rel="nofollow" target="blank" href="http://www.youtube.com/thedamagereport/join">http://www.youtube.com/thedamagereport/join</a> <br /><br />Follow The Damage Report on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheDamageReportTYT/">https://www.facebook.com/TheDamageReportTYT/</a><br /><br />Help build the Home of the Progressives <a rel="nofollow" target="blank" href="http://tyt.com/JOIN">http://tyt.com/JOIN</a><br /><br />Subscribe to The Damage Report YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/thedamagereport?sub_confirmation=1">https://www.youtube.com/thedamagereport?sub_confirmation=1</a><br /><br />Follow The Damage Report on TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@thedamagereport?lang=en">https://www.tiktok.com/@thedamagereport?lang=en</a><br /><br />Follow The Damage Report on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/thedamagereport/">http://www.instagram.com/thedamagereport/</a> <br /><br />Follow The Damage Report on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TheDamageReport">https://twitter.com/TheDamageReport</a><br /><br />#TheDamageReport #JohnIadarola #TheYoungTurks{% endraw %}
