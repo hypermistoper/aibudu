@@ -1,0 +1,15 @@
+---
+title: "How to Quickly & Easily Get into your Surfski at the Start - A Beginners Guide"
+image: "https:\/\/i.ytimg.com\/vi\/8ENnISc49s4\/hqdefault.jpg"
+vid_id: "8ENnISc49s4"
+categories: "Sports"
+tags: ["How to Quickly & Easily Get into your Surfski at the Start - A Beginners Guide","get into your surfski","How to get on to your surfski"]
+date: "2022-04-25T04:11:06+03:00"
+vid_date: "2020-01-22T15:55:04Z"
+duration: "PT6M14S"
+viewcount: "29726"
+likeCount: "740"
+dislikeCount: ""
+channel: "Ocean Riders Online"
+---
+{% raw %}A Beginners Guide How to Quickly &amp; Easily Get into your Surfski at the Start of a Surfski Race or Paddle.<br /><br />Firstly, the side you get in from is likely to be personal preference but we highly recommend mastering both sides if you can. In this video we will show you how to get in from the left-hand side with the boat on the right side of your body.<br /><br />1)      Water depth: generally, the better you are at doing this way of getting in your boat, the deeper you can walk out, the deeper you can start from. For this video we are going to start from around knee depth which is probably the most common depth for beginners.<br /><br />2)      Where do you put your paddle? We need the paddle to be out of the way and ready to take a stroke as soon as you are in the boat, so the best place to have it is along the outside of your boat (on the opposite side to your body), and held flush against the boat so that it can’t get flicked off by a wave. Hold your paddle against the boat with your right hand in the place it should be when you paddle, hook your thumb over the inside of the rail so the paddle is secured to the boat by your hand and thumb.<br /><br />3)      Hand placement: your right hand is about midway or towards the back of your cockpit, firmly holding the paddle to the boat with your right thumb hooked over the rail. Your left hand is hooked over the left-hand side of the boat, further forward towards your footrest. You need to play with this to make it most comfortable for you. Be careful not to get your right thumb caught between your body and the boat when you jump in 😉<br /><br />4)      With paddle in place and hands set, all you need to do is turn slightly and lower your hips (bum) into the seat, sit in the boat, and leave both legs hanging over the side. This looks typically like the image of riding a horse side-saddle.<br /><br />5)      Once you are seated side-saddle with your legs hanging over, lift your paddle and take a stroke on the same side where your legs are hanging out. As you take that stroke, use the leverage from that stroke action to pull your legs in. You are now in the boat and ready to paddle!<br /><br />Don't forget to leave us a comment and a like.<br /><br />Subscribe to our YouTube channel for more videos like this <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCaUgSJdsKp1Vv31Dyo8egnw">https://www.youtube.com/channel/UCaUgSJdsKp1Vv31Dyo8egnw</a>{% endraw %}
