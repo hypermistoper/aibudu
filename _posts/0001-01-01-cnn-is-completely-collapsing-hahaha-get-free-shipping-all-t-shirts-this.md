@@ -1,0 +1,15 @@
+---
+title: "CNN is Completely Collapsing! - Hahaha!"
+image: "https:\/\/i.ytimg.com\/vi\/cJDdjN7rDzQ\/hqdefault.jpg"
+vid_id: "cJDdjN7rDzQ"
+categories: "Entertainment"
+tags: ["Funny","Entertainment","Fun"]
+date: "2022-04-25T10:42:49+03:00"
+vid_date: "2022-04-22T12:00:16Z"
+duration: "PT4M9S"
+viewcount: "266452"
+likeCount: "39165"
+dislikeCount: ""
+channel: "Mark Dice"
+---
+{% raw %}Get FREE SHIPPING all t-shirts this weekend by using promo code CNNSUCKS at the checkout!<br />                   Order shirts here → <a rel="nofollow" target="blank" href="https://Teespring.com/stores/MarkDice">https://Teespring.com/stores/MarkDice</a><br />🎥  Support me on Patreon for just $5 a month here ➡️  <a rel="nofollow" target="blank" href="https://Patreon.com/MarkDice">https://Patreon.com/MarkDice</a> <br /><br />Support my channel with a membership for $5 a month here ➡️ <a rel="nofollow" target="blank" href="https://Youtube.com/MarkDice/join">https://Youtube.com/MarkDice/join</a> <br /><br />Order my book &quot;Hollywood Propaganda: How TV, Movies, and Music Shape Our Culture&quot; from Amazon here: <a rel="nofollow" target="blank" href="https://amzn.to/30xPFl5">https://amzn.to/30xPFl5</a> or download the e-book from Kindle, iBooks, Google Play, or Nook.<br /><br />📖  Order my book, &quot;The True Story of Fake News&quot; here ➡️  <a rel="nofollow" target="blank" href="https://amzn.to/2Zb1Vps">https://amzn.to/2Zb1Vps</a>   <br /><br />📖  Order my book &quot;The Liberal Media Industrial Complex&quot; here: <a rel="nofollow" target="blank" href="https://amzn.to/2X5oGKx">https://amzn.to/2X5oGKx</a>   <br />------------------------------------------<br /><br />⚠️  Order your &quot;F*ck Joe Biden&quot; shirt here: <a rel="nofollow" target="blank" href="https://TeeSpring.com/F-JoeBiden">https://TeeSpring.com/F-JoeBiden</a><br /><br />⚠️   Order your &quot;Operation Mockingbird&quot; shirt here: <a rel="nofollow" target="blank" href="https://TeeSpring.com/OperationMockingbird">https://TeeSpring.com/OperationMockingbird</a> <br /><br />⚠️   Order your _*Warning: Contains Facts &amp; Opinions Some May Find Offensive*_ shirt here: <a rel="nofollow" target="blank" href="https://TeeSpring.com/TriggerWarning">https://TeeSpring.com/TriggerWarning</a><br />------------------------------------------<br /><br />Mark Dice is an independent media analyst and bestselling author of &quot;Hollywood Propaganda: How TV, Movies, and Music Shape Our Culture.”  He has a bachelor's degree in Communication from California State University and was the first conservative YouTuber to reach 1 million subscribers (in 2017).    <br /><br />He has been featured on Fox News, the History Channel, E! Entertainment, the Drudge Report, and news outlets around the world.  <br />------------------------------------------<br /><br />This video description and the pinned comment contains Amazon and/or other affiliate links, which means if you click them and purchase the product(s), Mark will receive a small commission.  <br /><br /><br /><br /><br />Copyright © 2022 by Mark Dice.  All Rights Reserved.{% endraw %}
