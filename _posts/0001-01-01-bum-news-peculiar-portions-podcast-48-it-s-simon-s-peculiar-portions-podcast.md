@@ -1,0 +1,15 @@
+---
+title: "Bum news - Peculiar Portions Podcast #48"
+image: "https:\/\/i.ytimg.com\/vi\/EuQbW8B1ygY\/hqdefault.jpg"
+vid_id: "EuQbW8B1ygY"
+categories: "Gaming"
+tags: ["yogscast","bluexephos","internet news"]
+date: "2022-04-26T02:15:42+03:00"
+vid_date: "2022-04-22T17:00:11Z"
+duration: "PT40M54S"
+viewcount: "38163"
+likeCount: "1894"
+dislikeCount: ""
+channel: "YOGSCAST Lewis & Simon"
+---
+{% raw %}It's Simon's Peculiar Portions Podcast! Isn't that the diggy hole man?<br /><br />🎧 FULL PP Podcast: <br />Spotify - <a rel="nofollow" target="blank" href="https://open.spotify.com/show/5KdK2yveOSMpEVQpJzSTOc">https://open.spotify.com/show/5KdK2yveOSMpEVQpJzSTOc</a><br />Apple: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/gb/podcast/simons-peculiar-portions/id1528174276">https://podcasts.apple.com/gb/podcast/simons-peculiar-portions/id1528174276</a><br />👉 Go here to experience all of Simon's PP: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=5PX4_hIZCgM&amp;list=PL3XZNMGhpynMFyKdRO8QJPsKnN59fmDsd">https://www.youtube.com/watch?v=5PX4_hIZCgM&amp;list=PL3XZNMGhpynMFyKdRO8QJPsKnN59fmDsd</a><br /><br />💖 SUPPORT US. BECOME A MEMBER: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCH-_hzb2ILSCo9ftVSnrCIQ/join">https://www.youtube.com/channel/UCH-_hzb2ILSCo9ftVSnrCIQ/join</a> <br />🛒 Buy Yogscast merch here: <a rel="nofollow" target="blank" href="https://store.yogscast.com">https://store.yogscast.com</a><br /><br />Bum news - Peculiar Portions Podcast #48<br /><br />0:00 WOMAN SEARCHES FOR BUM TATTOO MAN<br />17:34 NATIONAL SHORTAGE OF NAKED MEN <br />28:42 IRISH BARISTA ENDS UP IN HOSPITAL AFTER HOLDING <br />IN FARTS FOR TWO YEARS<br /><br />▬▬▬▬▬<br /><br />Who's in the video:<br />Lewis &amp; Simon: <a rel="nofollow" target="blank" href="https://www.youtube.com/subscription_center?add_user=BlueXephos">https://www.youtube.com/subscription_center?add_user=BlueXephos</a><br /><br />▬▬▬▬▬<br /><br />Keep up to date with The Yogscast here:<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/yogscast">https://twitter.com/yogscast</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/yogscast">https://www.instagram.com/yogscast</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/yogscast/">https://www.facebook.com/yogscast/</a><br />Watch us live on Twitch.tv every day!  <a rel="nofollow" target="blank" href="http://www.twitch.tv/yogscast/">http://www.twitch.tv/yogscast/</a> <br /><br />▬▬▬▬▬<br /><br />Production music courtesy of Epidemic Sound <br /><br />Powered by Chillblast in the UK. <br />Check out the new Yogscast PC range here: <a rel="nofollow" target="blank" href="http://www.chillblast.com/yogscast.html">http://www.chillblast.com/yogscast.html</a><br /><br />Business enquiries: contact@yogscast.com<br /><br />Want to send something to us? Here's our address:<br /><br />Lewis &amp; Simon - The Yogscast<br />4th Floor - King William House<br />13 Queen Square<br />Bristol<br />BS1 4NT{% endraw %}
