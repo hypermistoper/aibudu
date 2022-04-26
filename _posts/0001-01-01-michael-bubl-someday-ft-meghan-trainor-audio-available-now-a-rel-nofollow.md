@@ -1,0 +1,15 @@
+---
+title: "Michael Bublé -  Someday (Ft. Meghan Trainor) [AUDIO]"
+image: "https:\/\/i.ytimg.com\/vi\/CR4YE7htLgI\/hqdefault.jpg"
+vid_id: "CR4YE7htLgI"
+categories: "Music"
+tags: ["Michael","Bublé;","Warner"]
+date: "2022-04-26T08:15:14+03:00"
+vid_date: "2016-10-21T19:27:51Z"
+duration: "PT3M24S"
+viewcount: "4885061"
+likeCount: "47460"
+dislikeCount: ""
+channel: "Michael Bublé"
+---
+{% raw %}❤️ available now: <a rel="nofollow" target="blank" href="http://michaelbuble.lnk.to/love">http://michaelbuble.lnk.to/love</a> <br /><br />Michael Bublé -  Someday (Ft. Meghan Trainor)[AUDIO]<br /><br />Listen to Someday on Michael Buble's album &quot;To Be Loved&quot;  <a rel="nofollow" target="blank" href="https://wbr.ec/tobeloved">https://wbr.ec/tobeloved</a><br /><br />Connect with Michael:<br />Website: <a rel="nofollow" target="blank" href="http://www.michaelbuble.com">http://www.michaelbuble.com</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/michaelbuble">http://www.facebook.com/michaelbuble</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/michaelbuble/">https://www.instagram.com/michaelbuble/</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/michaelbuble">http://www.twitter.com/michaelbuble</a><br />Someday ft. Meghan Trainor Lyrics<br /><br />I love seeing you happy, I miss seeing that smile<br />It’s been such a long time<br />And although I don’t have you<br />I know now that I need to somehow make you mine <br />I won’t lie; it’s hard seeing you with him<br />Cause I know he can’t hold you like I can<br /><br />Someday maybe when we’re old and gray <br />We could be in love once more<br />Til then I won’t give my love away<br />Darlin’ I’m forever only yours<br /><br />I remember that love song<br />I sang every word wrong but you didn’t mind, no, no <br />Gotta admit that I miss you, but only if you do <br />Cause you know that I’m shy<br />And I can’t lie; it’s hard seeing you with her<br />Cause I know she can’t love you like I can<br /><br />Someday maybe when we’re old and gray <br />We could be in love once more<br />Til then I won’t give my love away<br />Darlin’ I’m forever only yours<br /><br />If my lovin’ works for you<br />Then we’ve got nothin’ to lose <br />Cause I’m forever only yours <br />And I won’t let you complicate it <br />This love is worth the wait, yeah <br />I’m forever only yours<br /><br />Someday maybe, someday maybe <br />Someday maybe I’ll be yours <br />Someday maybe, someday maybe <br />Someday maybe I’ll be yours<br /><br />Someday maybe when we’re old and gray <br />We could be in love once more<br />Til then I won’t give my love away<br />￼￼￼￼￼￼￼<br />Darlin’ I’m forever only yours<br /><br />If my lovin’ works for you<br />Then we’ve got nothin’ to lose <br />Cause I’m forever only yours <br />And I won’t let you complicate it <br />This love is worth the wait, yeah <br />I’m forever only yours<br /><br />I’m forever only yours <br />I’m forever only yours{% endraw %}
