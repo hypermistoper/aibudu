@@ -1,0 +1,15 @@
+---
+title: "The most GIGANTIC dog I've ever done | This groom took forever!"
+image: "https:\/\/i.ytimg.com\/vi\/v2BvjC24tO4\/hqdefault.jpg"
+vid_id: "v2BvjC24tO4"
+categories: "Pets-Animals"
+tags: ["GIGANTIC","groom","forever!"]
+date: "2022-04-26T17:56:41+03:00"
+vid_date: "2022-04-23T16:00:23Z"
+duration: "PT4M15S"
+viewcount: "821455"
+likeCount: "53824"
+dislikeCount: ""
+channel: "Girl With The Dogs"
+---
+{% raw %}Follow this big bear: <a rel="nofollow" target="blank" href="https://instagram.com/lion.or.bear.just.max?igshid=YmMyMTA2M2Y=">https://instagram.com/lion.or.bear.just.max?igshid=YmMyMTA2M2Y=</a><br />HAPPY HOODIE®:<br /><a rel="nofollow" target="blank" href="https://girlwiththedogs.com/shop?tag=Pet%20Products">https://girlwiththedogs.com/shop?tag=Pet%20Products</a><br />EQUIGROOMER™ DE-SHEDDING BRUSH:<br /><a rel="nofollow" target="blank" href="https://girlwiththedogs.com/shop">https://girlwiththedogs.com/shop</a><br /><br />PET OF THE DAY BANDANA &amp; WEBSITE:<br /><a rel="nofollow" target="blank" href="https://girlwiththedogs.com/shop">https://girlwiththedogs.com/shop</a><br /><br />FACEBOOK:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/perfectpoochesgrooming">https://www.facebook.com/perfectpoochesgrooming</a><br /><br />INSTAGRAM:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/perfectpoochesgrooming/">https://www.instagram.com/perfectpoochesgrooming/</a><br /><br />YOUTUBE MERCH:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCUFnGWHIQvybwmR7XDh7-9A/store">https://www.youtube.com/channel/UCUFnGWHIQvybwmR7XDh7-9A/store</a><br /><br />HAPPY HOODIE AMAZON CANADA<br /><a rel="nofollow" target="blank" href="https://www.amazon.ca/Zoni-Pets-LLC-Happy-Hoodies/dp/B08N1LFBV3/ref=mp_s_a_1_3?crid=3M1EJ4KCK9PP6&amp;keywords=happy+hoodie+for+dogs&amp;qid=1649500731&amp;sprefix=happy+ho%2Caps%2C101&amp;sr=8-3">https://www.amazon.ca/Zoni-Pets-LLC-Happy-Hoodies/dp/B08N1LFBV3/ref=mp_s_a_1_3?crid=3M1EJ4KCK9PP6&amp;keywords=happy+hoodie+for+dogs&amp;qid=1649500731&amp;sprefix=happy+ho%2Caps%2C101&amp;sr=8-3</a><br /><br />Do you want your pet featured on our channel? Purchase one of our Girl With The Dogs bandanas or frisbee, take a picture of your pet modelling it and send it to girlwiththedogs@outlook.com. Your pet could be featured as our 'pet of the day' at the end of one of our videos. Please send at least two photos, preferably taken horizontally (landscape mode).<br /><br /><br />PAYPAL:<br /><a rel="nofollow" target="blank" href="https://paypal.me/girlwithedogs?locale.x=en_US">https://paypal.me/girlwithedogs?locale.x=en_US</a><br /><br />• Breed specific product recommendations:<br /><br />USA: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/perfectpoochesgrooming">https://www.amazon.com/shop/perfectpoochesgrooming</a><br />CANADA: <a rel="nofollow" target="blank" href="https://www.amazon.ca/shop/perfectpoochesgrooming">https://www.amazon.ca/shop/perfectpoochesgrooming</a>{% endraw %}
