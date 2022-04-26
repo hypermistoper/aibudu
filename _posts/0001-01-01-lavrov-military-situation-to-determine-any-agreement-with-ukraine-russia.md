@@ -1,0 +1,15 @@
+---
+title: "Lavrov: Military situation to determine any agreement with Ukraine; Russia has principle on nukes"
+image: "https:\/\/i.ytimg.com\/vi\/Ets3RaVYSMQ\/hqdefault.jpg"
+vid_id: "Ets3RaVYSMQ"
+categories: "News-Politics"
+tags: ["Shanghai","Shanghaieye","China"]
+date: "2022-04-26T05:44:40+03:00"
+vid_date: "2022-04-26T00:35:27Z"
+duration: "PT1M31S"
+viewcount: "6286"
+likeCount: "565"
+dislikeCount: ""
+channel: "ShanghaiEye魔都眼"
+---
+{% raw %}Russian Foreign Minister Sergei Lavrov said on Monday (April 25) that the Ukrainian conflict will end with an agreement but its content will depend on the military situation.<br /><br />Lavrov, during an interview with Russian State Television, also said that Kyiv was only imitating negotiations, according to a transcript published on the foreign ministry's website.<br /><br />&quot;As in any situation where armed forces are used, everything will end with a treaty. But its parameters will be determined by the stage of hostilities at which this treaty becomes a reality.&quot; Lavrov told Russia's state television.<br /><br />__________________<br />Powered by Shanghai Media Group, ShanghaiEye focuses on producing top-quality content for Facebook, Twitter, Instagram and Youtube.<br />Nobody knows Shanghai better than us.<br />Please subscribe to us  ☻☻☻<br />__________________<br />For more stories, please click <br />■ What's up today in Shanghai, the most updated news of the city<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MNjpE4hspSVry8dR555getN">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MNjpE4hspSVry8dR555getN</a><br />■ Amazing Shanghai, exploring the unknown corners of the city,  learning the people, food and stories behind them<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MMVTWr-zIXjsS4hhSQPmyes">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MMVTWr-zIXjsS4hhSQPmyes</a><br />■ What Chinese people's lives are like during the post COVID-19 period<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MPrPTmIirpfgETu6VKVESXe">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MPrPTmIirpfgETu6VKVESXe</a><br />■ Views of foreign scholars on China and its affairs<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MO9ua_nSK6slRPdUl-ovjRe">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MO9ua_nSK6slRPdUl-ovjRe</a><br />■ Foreign faces in Shanghai, people living in this city sharing their true feelings<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MP0vJDSw23_1MCPJhAfGbiG">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MP0vJDSw23_1MCPJhAfGbiG</a><br />■ Mini-docs showing why China is the country it is today <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MOreRu2AbZ3ziIUyCcdBLwX">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MOreRu2AbZ3ziIUyCcdBLwX</a><br />__________________<br />☎Leave us messages if you have any suggestions or questions!<br />Thank you!{% endraw %}
