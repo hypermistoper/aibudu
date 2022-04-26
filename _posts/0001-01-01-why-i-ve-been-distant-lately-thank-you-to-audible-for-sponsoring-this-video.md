@@ -1,0 +1,15 @@
+---
+title: "Why I've been distant lately.."
+image: "https:\/\/i.ytimg.com\/vi\/RDn8SfLlbKI\/hqdefault.jpg"
+vid_id: "RDn8SfLlbKI"
+categories: "Travel-Events"
+tags: ["distant","lately.."]
+date: "2022-04-26T10:03:09+03:00"
+vid_date: "2022-04-25T22:45:38Z"
+duration: "PT30M40S"
+viewcount: "166104"
+likeCount: "16116"
+dislikeCount: ""
+channel: "Sailing La Vagabonde"
+---
+{% raw %}Thank you to Audible for sponsoring this video! New Audible members get a 30-day free trial. Visit <a rel="nofollow" target="blank" href="http://audible.com/slv">http://audible.com/slv</a> or text &quot;slv&quot; to 500 500 to try Audible today!<br /><br />*I realize there is a war, people dying of starvation etc but I think it's important for personal issues to be shared to make people aware of what life might be like inside another person. The human experience in all of its gory and real manifestations. It would have been so much easier to hide this issue I've been having, but I know how many other people there are out there, struggling with something. I figured that maybe by me being raw and honest with you guys, you will realize we all have our battles and what you see on social media is (mostly) what people want you to see. The highlights. This is not a highlight of mine. No one's life is perfect and if it appears that way, it's not true. Don't be fooled.<br />Thanks for allowing me the space to be vulnerable with you guys. ❤️ Thanks for loving and supporting me, for me! <br />- Elayna<br /><br />Need more content from SLV? Join our crew on Patreon for previews of future episodes and regular live streams to chat with us in real time. <a rel="nofollow" target="blank" href="http://bit.ly/SLVPatreon">http://bit.ly/SLVPatreon</a><br /><br />Pick up some official La Vaga merch!<br /><a rel="nofollow" target="blank" href="http://shop-lavagabonde.com">http://shop-lavagabonde.com</a><br /><br />Check out our website:<br /><a rel="nofollow" target="blank" href="http://sailing-lavagabonde.com">http://sailing-lavagabonde.com</a><br /><br />Download Elaynas music here!<br /><a rel="nofollow" target="blank" href="https://elaynac.bandcamp.com">https://elaynac.bandcamp.com</a><br /><br />FAQ<br />What cameras do we use?<br />BIG CAMERA: <a rel="nofollow" target="blank" href="http://amzn.to/1t6fAfY">http://amzn.to/1t6fAfY</a><br />OTHER BIG CAMERA: <a rel="nofollow" target="blank" href="http://amzn.to/2rybQE2">http://amzn.to/2rybQE2</a><br />HANDY CAM: <a rel="nofollow" target="blank" href="http://amzn.to/25KvT0x">http://amzn.to/25KvT0x</a><br />GOPRO: <a rel="nofollow" target="blank" href="http://amzn.to/1t6haPc">http://amzn.to/1t6haPc</a><br />DRONE: <a rel="nofollow" target="blank" href="http://amzn.to/2ooXPLs">http://amzn.to/2ooXPLs</a><br />What software do we use?<br />Premiere Pro <a rel="nofollow" target="blank" href="https://adobe.ly/2vzkB2I">https://adobe.ly/2vzkB2I</a><br />Predict Wind <a rel="nofollow" target="blank" href="http://bit.ly/PredictWindForecasts">http://bit.ly/PredictWindForecasts</a>{% endraw %}
