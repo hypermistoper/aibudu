@@ -1,0 +1,15 @@
+---
+title: "Sarah Jessica Parker Breaks Down 10 Met Gala Looks From 1995 to Now | Life in Looks | Vogue"
+image: "https:\/\/i.ytimg.com\/vi\/Wg_MwMXGNVc\/hqdefault.jpg"
+vid_id: "Wg_MwMXGNVc"
+categories: "Howto-Style"
+tags: ["carrie","carrie bradshaw outfits","carrie bradshaw sjp"]
+date: "2022-04-26T04:38:09+03:00"
+vid_date: "2022-04-25T16:00:07Z"
+duration: "PT13M42S"
+viewcount: "82693"
+likeCount: "4210"
+dislikeCount: ""
+channel: "Vogue"
+---
+{% raw %}Actor Sarah Jessica Parker sits down with Vogue to relive her iconic headpieces, gowns, and more from Met Galas of years past.<br /><br /><br /><br />Director: Catherine Orchard<br /><br />Producer: Gabrielle Reich<br /><br />Director of Photography: Shane Sigler<br /><br />Editor: Michael Suyeda<br /><br />AC: Alice Boucherie<br /><br />Gaffer: Ariel Nehorayoff<br /><br />Audio: Gabe Quiroga<br /><br />Associate Producers: Qieara Lesesne, Cecillia Sallusti,<br /><br />Covid Supervisor: Heather Drew<br /><br />Set Designer:Jacob Burstein<br /><br />Set Designer Assistant: Michael Newton<br /><br />Line Producer: Tina Magnuson<br /><br />Production Manager: Emma Roberts<br /><br />Production Coordinator: Kit Fogarty<br /><br />Post Production Supervisor: Marco Glinbizzi<br /><br />Post Production Coordinator: Andrea Farr<br /><br />Hair Stylist: Serge Normant<br /><br />Makeup Artist: Leslie Lopez<br /><br />Entertainment Director, Vogue: Sergio Kletnoy<br /><br />VP, Digital Video Programming and Development, Vogue (English Language): Joe Pickard<br /><br />Director, Creative Development, Vogue: Anna Page Nadin<br /><br />Manager, Creative Development, Vogue: Alexandra Gurvitch<br /><br />Associate Director, Creative Development,Vogue: Billie JD Porter<br /><br />Senior Director, Programming, American Vogue: Linda Gittleson<br /><br />Director of Content, Vogue: Rahel Gebreyes<br /><br />Filmed at: The Beekman, A Thompson Hotel<br /><br /><br /><br />0:00 - Intro<br /><br />0:30 - 1995<br /><br />1:30 - 2006<br /><br />3:25 - 2010<br /><br />5:05 - 2011<br /><br />5:48 - 2012<br /><br />6:39 - 2013<br /><br />8:04 - 2014<br /><br />9:46 - 2015<br /><br />11:10 - 2016<br /><br />12:00 - 2018<br /><br />Still haven’t subscribed to Vogue on YouTube? ►► <a rel="nofollow" target="blank" href="http://bit.ly/vogueyoutubesub">http://bit.ly/vogueyoutubesub</a><br /><br />Get the best of Vogue delivered right in your inbox ►► <a rel="nofollow" target="blank" href="https://bit.ly/3xAZyQg">https://bit.ly/3xAZyQg</a><br /><br />Want to hear more from our editors? Subscribe to the magazine ►► <a rel="nofollow" target="blank" href="http://bit.ly/2wXh1VW">http://bit.ly/2wXh1VW</a><br /><br />Check out our new podcast 'In Vogue: The 1990s'  ►► <a rel="nofollow" target="blank" href="https://link.chtbl.com/iv-yt-description">https://link.chtbl.com/iv-yt-description</a><br /><br /> <br /><br />ABOUT VOGUE<br /><br />Vogue is the authority on fashion news, culture trends, beauty coverage, videos, celebrity style, and fashion week updates.{% endraw %}
