@@ -1,0 +1,15 @@
+---
+title: "Monster School : Huggy Wuggy's Life - Minecraft Animation"
+image: "https:\/\/i.ytimg.com\/vi\/R-NjN2he99A\/hqdefault.jpg"
+vid_id: "R-NjN2he99A"
+categories: "Film-Animation"
+tags: ["monster school","monster school animation","monster school minecraft"]
+date: "2022-04-26T06:20:51+03:00"
+vid_date: "2022-04-25T10:04:32Z"
+duration: "PT11M6S"
+viewcount: "350899"
+likeCount: "8967"
+dislikeCount: ""
+channel: "BigSchool"
+---
+{% raw %}More monster school videos : <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL724OswNTbY2ji8YYw-t_Yps5Z2oABZPQ">https://www.youtube.com/playlist?list=PL724OswNTbY2ji8YYw-t_Yps5Z2oABZPQ</a><br /><br />Music Credit :<br /><br />Breathing by Ckvoiceover (<a rel="nofollow" target="blank" href="http://freesound.org/people/Ckvoiceover/)">http://freesound.org/people/Ckvoiceover/)</a><br /><br />Eggsinup.Aif by Noisecollector (<a rel="nofollow" target="blank" href="http://freesound.org/people/Noisecollector/)">http://freesound.org/people/Noisecollector/)</a><br /><br />Cartoon Open And Close Eye.Wav by Behesht1 (<a rel="nofollow" target="blank" href="http://freesound.org/people/Behesht1/)">http://freesound.org/people/Behesht1/)</a><br /><br />Angry Man.Flac by Qubodup (<a rel="nofollow" target="blank" href="http://freesound.org/people/Qubodup/)">http://freesound.org/people/Qubodup/)</a><br /><br />Wink.Aif by Bennychico11 (<a rel="nofollow" target="blank" href="http://freesound.org/people/Bennychico11/)">http://freesound.org/people/Bennychico11/)</a><br /><br />Cartoon_Siren_Whistle_001.Wav by Soundscalpel.Com (<a rel="nofollow" target="blank" href="http://freesound.org/people/Soundscalpel.Com/)">http://freesound.org/people/Soundscalpel.Com/)</a><br /><br />Cartoon Squeak Fast by Motion_S (<a rel="nofollow" target="blank" href="http://freesound.org/people/Motion_S/)">http://freesound.org/people/Motion_S/)</a><br /><br />Blizzard Fx Anime 80S Cheesy 2.Wav by Bulbastre (<a rel="nofollow" target="blank" href="http://freesound.org/people/Bulbastre/)">http://freesound.org/people/Bulbastre/)</a><br /><br />Splat.Wav by Audionautics (<a rel="nofollow" target="blank" href="http://freesound.org/people/Audionautics/)">http://freesound.org/people/Audionautics/)</a><br /><br />Mechanolith by Kevin MacLeod (<a rel="nofollow" target="blank" href="http://incompetech.com)">http://incompetech.com)</a> licensed under Creative Commons: By Attribution 4.0 License <a rel="nofollow" target="blank" href="http://creativecommons.org/licenses/by/4.0/">http://creativecommons.org/licenses/by/4.0/</a><br /><br />Tongue Out ( Raspberry) by Majd_Abdulqadir (<a rel="nofollow" target="blank" href="http://freesound.org/people/Majd_Abdulqadir/)">http://freesound.org/people/Majd_Abdulqadir/)</a><br /><br />Flame Ignition by Hykenfreak (<a rel="nofollow" target="blank" href="http://freesound.org/people/Hykenfreak/)">http://freesound.org/people/Hykenfreak/)</a><br /><br />Cute Laugh 1.Ogg by Silversatyr (<a rel="nofollow" target="blank" href="http://freesound.org/people/Silversatyr/)">http://freesound.org/people/Silversatyr/)</a><br /><br />#monsterschool{% endraw %}
