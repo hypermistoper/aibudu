@@ -1,0 +1,15 @@
+---
+title: "Fix a Running Toilet...Fill Valve Replacement -- by Home Repair Tutor"
+image: "https:\/\/i.ytimg.com\/vi\/7K6pcLYrJJs\/hqdefault.jpg"
+vid_id: "7K6pcLYrJJs"
+categories: "Howto-Style"
+tags: ["fix a toilet that keeps running","how to fix a toilet that keeps running","running toilets"]
+date: "2022-04-26T13:34:45+03:00"
+vid_date: "2019-02-09T12:14:22Z"
+duration: "PT4M15S"
+viewcount: "507834"
+likeCount: "4890"
+dislikeCount: ""
+channel: "Home Repair Tutor"
+---
+{% raw %}In this video we share how to fix a running toilet by replacing the fill valve. We used FluidMaster's 400H which has adjustment levers for both the tank and bowl water levels.<br /><br />For more home improvement tips visit <a rel="nofollow" target="blank" href="https://www.homerepairtutor.com/👍🏼">https://www.homerepairtutor.com/👍🏼</a><br /><br />Supplies we used for this project<br /><br />Fluidmaster 400H -- <a rel="nofollow" target="blank" href="https://bit.ly/2TDHUo7">https://bit.ly/2TDHUo7</a><br />SharkBite Shut Off Valve (1/2&quot;) -- <a rel="nofollow" target="blank" href="https://amzn.to/2MUUdKe">https://amzn.to/2MUUdKe</a><br />Channellock Pliers (Optional) -- <a rel="nofollow" target="blank" href="https://amzn.to/2Bo6odU">https://amzn.to/2Bo6odU</a><br />Measuring Tape -- <a rel="nofollow" target="blank" href="https://amzn.to/2MUboLX">https://amzn.to/2MUboLX</a><br />Scissors <br />Sponge<br />Bucket<br />Pencil <br /><br />----------------------------------------------------------------------------------------------------------------<br /><br />The first step is to turn the water off at the shut off valve. If the shut off valve is broken turn the water off at the home's main valve. <br /><br />Then flush the toilet and hold the lever down until most of the water drains from the tank. Use a sponge to remove the rest of the water. <br /><br />Unscrew the water supply line from the old fill valve, use Channellock pliers if necessary. Remove the old fill valve and dry fit the 400H. <br /><br />The top of the Fluidmaster 400H should be roughly 3&quot; from the top of the flush valve. In addition, the top of the flush valve should be 1&quot; below the tank lever location. <br /><br />Adjust the 400H height by turning the black column clockwise or counterclockwise. Then cut the hose to the right length so that it doesn't catch on top of the toilet tank lid. Insert the hose into the clamp and attach it to the flush valve. <br /><br />Secure the 400H to the bottom of the toilet tank using the provided nut, just hand tighten it. And hand tighten the water supply line to the bottom of the 400H. Turn on the water at the shut off valve and check for leaks. <br /><br />Watch our video to see how to adjust the water in the tank and toilet bowl <br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/TcYsJSEHulU">https://youtu.be/TcYsJSEHulU</a><br /><br />For more videos on Fluidmaster products check out their YouTube Channel<br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/DualFlushFluidmaster">https://www.youtube.com/user/DualFlushFluidmaster</a>{% endraw %}
