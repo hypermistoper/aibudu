@@ -1,0 +1,15 @@
+---
+title: "New Sewing Plans | Plus Patterns and Fabric"
+image: "https:\/\/i.ytimg.com\/vi\/7zaQkijUpxU\/hqdefault.jpg"
+vid_id: "7zaQkijUpxU"
+categories: "People-Blogs"
+tags: ["Sewing","Plans","Patterns"]
+date: "2022-04-28T02:45:41+03:00"
+vid_date: "2022-04-25T20:01:50Z"
+duration: "PT29M45S"
+viewcount: "640"
+likeCount: "99"
+dislikeCount: ""
+channel: "CRUMPETS, TEA, & SEWING"
+---
+{% raw %}Hi all! Here's a video of my latest sewing plans. This includes my definitive plans for #sewmaxiformothersday<br /><br />Watch this video to learn about Sew Maxi For Mother's Day<br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/F-HmpFYJsdw">https://youtu.be/F-HmpFYJsdw</a><br /><br />Lottie Blouse Review Here: <br /><a rel="nofollow" target="blank" href="https://youtu.be/v9DPU4Kz0jI">https://youtu.be/v9DPU4Kz0jI</a><br /><br />Hosted by: <br />Tea of @crumpetsteaandsewing <br /><br />Crystal of @Crystalsewsandstuff  <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/crystalsewsandstuff">https://www.youtube.com/c/crystalsewsandstuff</a><br /><br />Follow Ambassadors of this year’s challenge for amazing inspo! <br />Nateida of @SewNaturalDane  <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/SewNaturalDane">https://www.youtube.com/c/SewNaturalDane</a><br /><br />Talisha of @CreativiTeeByT  <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCG1soILysf71i2jJfk7cUGg">https://www.youtube.com/channel/UCG1soILysf71i2jJfk7cUGg</a><br /><br />Rochelle of @Rochelle.Handmade.Designs  <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCGSm4_nxj1RgFkxFp6CYWhQ">https://www.youtube.com/channel/UCGSm4_nxj1RgFkxFp6CYWhQ</a><br /><br />Andra of @Andra Makes  <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/AndraMakes">https://www.youtube.com/c/AndraMakes</a><br /><br />Alex of @Masson Lifestyle <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCR7FfIbpTwe896BNdYw1gEw">https://www.youtube.com/channel/UCR7FfIbpTwe896BNdYw1gEw</a><br /><br />Renata of @The Twilight Stitcher <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheTwilightStitcher">https://www.youtube.com/c/TheTwilightStitcher</a><br />.........................................................................<br />To see my sewing makes daily follow me on social media. <br /><br />Instagram <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/crumpetsteaandsewing/channel/">https://www.instagram.com/crumpetsteaandsewing/channel/</a><br /><br />Pinterest <br /><a rel="nofollow" target="blank" href="https://pin.it/3M1thm0">https://pin.it/3M1thm0</a><br /><br />Facebook <br /><a rel="nofollow" target="blank" href="https://facebook.com/crumpetteaandsewing/">https://facebook.com/crumpetteaandsewing/</a><br /><br />Blog <br /><a rel="nofollow" target="blank" href="https://crumpetsteaandsewing.com/">https://crumpetsteaandsewing.com/</a><br /><br /> #sewing  #easysewing #sewingtrip #sewingpatterns{% endraw %}
