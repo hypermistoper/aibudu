@@ -1,0 +1,15 @@
+---
+title: "How to focus | Andrew Huberman and Lex Fridman"
+image: "https:\/\/i.ytimg.com\/vi\/ZzDxmAcHMOs\/hqdefault.jpg"
+vid_id: "ZzDxmAcHMOs"
+categories: "Science-Technology"
+tags: ["ai","ai clips","ai podcast"]
+date: "2022-04-27T19:54:59+03:00"
+vid_date: "2022-04-19T16:00:04Z"
+duration: "PT10M43S"
+viewcount: "58480"
+likeCount: "2346"
+dislikeCount: ""
+channel: "Lex Clips"
+---
+{% raw %}Lex Fridman Podcast full episode: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=lvh3g7eszVQ">https://www.youtube.com/watch?v=lvh3g7eszVQ</a><br />Please support this podcast by checking out our sponsors:<br />- Eight Sleep: <a rel="nofollow" target="blank" href="https://www.eightsleep.com/lex">https://www.eightsleep.com/lex</a> and use code LEX to get special savings<br />- SEMrush: <a rel="nofollow" target="blank" href="https://www.semrush.com/partner/lex/">https://www.semrush.com/partner/lex/</a> to get a free month of Guru<br />- Cash App: <a rel="nofollow" target="blank" href="https://cash.app/">https://cash.app/</a> and use code LexPodcast to get $10<br /><br />GUEST BIO:<br />Andrew Huberman is a neuroscientist at Stanford.<br /><br />PODCAST INFO:<br />Podcast website: <a rel="nofollow" target="blank" href="https://lexfridman.com/podcast">https://lexfridman.com/podcast</a><br />Apple Podcasts: <a rel="nofollow" target="blank" href="https://apple.co/2lwqZIr">https://apple.co/2lwqZIr</a><br />Spotify: <a rel="nofollow" target="blank" href="https://spoti.fi/2nEwCF8">https://spoti.fi/2nEwCF8</a><br />RSS: <a rel="nofollow" target="blank" href="https://lexfridman.com/feed/podcast/">https://lexfridman.com/feed/podcast/</a><br />Full episodes playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLrAXtmErZgOdP_8GztsuKi9nrraNbKKp4">https://www.youtube.com/playlist?list=PLrAXtmErZgOdP_8GztsuKi9nrraNbKKp4</a><br />Clips playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLrAXtmErZgOeciFP3CBCIEElOJeitOr41">https://www.youtube.com/playlist?list=PLrAXtmErZgOeciFP3CBCIEElOJeitOr41</a><br /><br />SOCIAL:<br />- Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/lexfridman">https://twitter.com/lexfridman</a><br />- LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/lexfridman">https://www.linkedin.com/in/lexfridman</a><br />- Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/lexfridman">https://www.facebook.com/lexfridman</a><br />- Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/lexfridman">https://www.instagram.com/lexfridman</a><br />- Medium: <a rel="nofollow" target="blank" href="https://medium.com/@lexfridman">https://medium.com/@lexfridman</a><br />- Reddit: <a rel="nofollow" target="blank" href="https://reddit.com/r/lexfridman">https://reddit.com/r/lexfridman</a><br />- Support on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/lexfridman">https://www.patreon.com/lexfridman</a>{% endraw %}
