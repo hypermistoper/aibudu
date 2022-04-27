@@ -1,0 +1,15 @@
+---
+title: "Evading Security at Abandoned Research Hospital - Found Autopsy Theater and Operating Rooms"
+image: "https:\/\/i.ytimg.com\/vi\/jbjYwN7owMI\/hqdefault.jpg"
+vid_id: "jbjYwN7owMI"
+categories: "Entertainment"
+tags: ["abandoned","urban","exploration"]
+date: "2022-04-27T06:23:40+03:00"
+vid_date: "2022-04-26T22:19:20Z"
+duration: "PT47M28S"
+viewcount: "19753"
+likeCount: "2262"
+dislikeCount: ""
+channel: "The Proper People"
+---
+{% raw %}Thanks to Skillshare for sponsoring a portion of this video.<br />The first 1,000 people to use the code THEPROPERPEOPLE or use this link to sign up will get a 1 month free trial of Skillshare: <a rel="nofollow" target="blank" href="https://skl.sh/theproperpeople04221">https://skl.sh/theproperpeople04221</a><br /><br />In this episode, we're exploring a massive abandoned hospital in Madrid. Founded in the 1960s, it was a university-run hospital where some of Spain's most important research on organ transplants took place. By the 2000's the facility was becoming too outdated, and an entirely new hospital was built to replace it. Once all the operations had been transferred, the old building was abandoned, left to sit silently in decay.<br /><br /><a rel="nofollow" target="blank" href="http://theproperpeople.com">http://theproperpeople.com</a><br /><br />JOIN US ON:<br /><a rel="nofollow" target="blank" href="http://facebook.com/theproperpeople">http://facebook.com/theproperpeople</a><br /><a rel="nofollow" target="blank" href="http://twitter.com/theproperpeople">http://twitter.com/theproperpeople</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/theproperpeople">http://instagram.com/theproperpeople</a><br /><a rel="nofollow" target="blank" href="https://www.reddit.com/r/theproperpeople">https://www.reddit.com/r/theproperpeople</a><br /><a rel="nofollow" target="blank" href="https://tiktok.com/@theproperpeople">https://tiktok.com/@theproperpeople</a><br /><a rel="nofollow" target="blank" href="https://discord.gg/theproperpeople">https://discord.gg/theproperpeople</a><br /><br />Thanks to Musicbed for providing the music in this video.<br /><a rel="nofollow" target="blank" href="http://share.mscbd.fm/theproperpeople">http://share.mscbd.fm/theproperpeople</a> (Affiliate Link)<br /><br />Intro Music: <a rel="nofollow" target="blank" href="https://artist.landr.com/music/672985173835">https://artist.landr.com/music/672985173835</a><br /><br />Enjoying our videos? Help us make more by buying a print: <a rel="nofollow" target="blank" href="http://theproperpeople.com/shop">http://theproperpeople.com/shop</a><br />Supporting us on Patreon: <a rel="nofollow" target="blank" href="http://patreon.com/theproperpeople">http://patreon.com/theproperpeople</a><br />Purchasing a t-shirt: <a rel="nofollow" target="blank" href="http://theproperpeople.com/merch">http://theproperpeople.com/merch</a><br /><br />Equipment we use to make our videos: <a rel="nofollow" target="blank" href="https://theproperpeople.com/gear/">https://theproperpeople.com/gear/</a>{% endraw %}
