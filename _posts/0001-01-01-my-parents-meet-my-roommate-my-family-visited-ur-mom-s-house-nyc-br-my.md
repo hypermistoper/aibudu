@@ -1,0 +1,15 @@
+---
+title: "My Parents Meet My Roommate"
+image: "https:\/\/i.ytimg.com\/vi\/pPsHz-ZjK7c\/hqdefault.jpg"
+vid_id: "pPsHz-ZjK7c"
+categories: "Entertainment"
+tags: ["kelly","wakasa","college"]
+date: "2022-04-27T23:45:25+03:00"
+vid_date: "2022-04-27T20:01:21Z"
+duration: "PT13M43S"
+viewcount: "21181"
+likeCount: "3603"
+dislikeCount: ""
+channel: "Kelly Wakasa"
+---
+{% raw %}my family visited ur mom's house nyc...<br />My Brother's Art - <a rel="nofollow" target="blank" href="https://www.instagram.com/wakasi/">https://www.instagram.com/wakasi/</a><br />☞ MY INSTAGRAM - <a rel="nofollow" target="blank" href="https://www.instagram.com/kellywakasa/">https://www.instagram.com/kellywakasa/</a><br />MERCH - <a rel="nofollow" target="blank" href="https://dowhatexcites.com/">https://dowhatexcites.com/</a><br />☞TIK TOK - <a rel="nofollow" target="blank" href="https://www.tiktok.com/@kelwak">https://www.tiktok.com/@kelwak</a><br />☞ TWITTER - <a rel="nofollow" target="blank" href="https://twitter.com/kellywakasa">https://twitter.com/kellywakasa</a> <br />☞ SNAPCHAT - @kellywakasa <br /><br />CHECK OUT THE PODCAST - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCcqnPBJ7MMqlFMBi5hnCymQ">https://www.youtube.com/channel/UCcqnPBJ7MMqlFMBi5hnCymQ</a><br /><br />Friends!<br />@Elliot Choy <br />@ur mom ashley <br />@annemariechase <br /><br />Follow My Brand - <a rel="nofollow" target="blank" href="https://www.instagram.com/dowhatexcites/">https://www.instagram.com/dowhatexcites/</a><br /><br />Music i used in vid - <a rel="nofollow" target="blank" href="http://share.epidemicsound.com/kelly">http://share.epidemicsound.com/kelly</a><br /><br />GEAR:<br />Sony a7siii (main camera) - <a rel="nofollow" target="blank" href="https://amzn.to/3C3luDV">https://amzn.to/3C3luDV</a><br />16-35mm Lens (main lens) - <a rel="nofollow" target="blank" href="https://amzn.to/3sxOGQh">https://amzn.to/3sxOGQh</a><br />Rode Wireless Go 2 (dual mics) - <a rel="nofollow" target="blank" href="https://amzn.to/3hw2swk">https://amzn.to/3hw2swk</a><br />Sony Lav Mic (shot most previous vids w this) - <a rel="nofollow" target="blank" href="https://amzn.to/36UXt6r">https://amzn.to/36UXt6r</a><br />Spy Glasses - <a rel="nofollow" target="blank" href="https://amzn.to/3HxN4u3">https://amzn.to/3HxN4u3</a><br />What I use to edit - <a rel="nofollow" target="blank" href="https://amzn.to/3hw3kkA">https://amzn.to/3hw3kkA</a><br />My Camera Bag - <a rel="nofollow" target="blank" href="https://amzn.to/35GNwIZ">https://amzn.to/35GNwIZ</a><br />My Computer - <a rel="nofollow" target="blank" href="https://amzn.to/36UXK9t">https://amzn.to/36UXK9t</a><br /><br />Start from the Beginning! - <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLnCbVAq4zrzBwT9NkzqlAo0Lca7Qy0iPq">https://www.youtube.com/playlist?list=PLnCbVAq4zrzBwT9NkzqlAo0Lca7Qy0iPq</a><br /><br />📩BUSINESS - kellywakasa@gmail.com<br /><br />thanks for watching! do what excites!{% endraw %}
