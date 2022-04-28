@@ -1,0 +1,15 @@
+---
+title: "Don't Starve Together: Disconnected [WX-78 Animated Short]"
+image: "https:\/\/i.ytimg.com\/vi\/UDfzBh_p2YM\/hqdefault.jpg"
+vid_id: "UDfzBh_p2YM"
+categories: "Gaming"
+tags: ["Don't","Starve","Together:"]
+date: "2022-04-28T22:45:03+03:00"
+vid_date: "2022-04-28T16:55:35Z"
+duration: "PT2M14S"
+viewcount: "44282"
+likeCount: "9390"
+dislikeCount: ""
+channel: "Klei Entertainment"
+---
+{% raw %}After the wiring to their long-unused empathy module is repaired, WX-78 finds themselves suddenly reconnecting with memories they’d hoped to keep buried.<br /><br />The WX-78 refresh update is available now on Xbox, PlayStation and Steam. Nintendo Switch will be getting this update at a later date. We're working on a large update to catch Nintendo Switch up with all platforms now that it's released. Once that goes out the goal is to keep it updated in synch with the other platforms. Stay tuned for more details specific to Nintendo Switch.<br /><br />Full details on the WX-78 Refresh: <a rel="nofollow" target="blank" href="https://klei.gg/WX-78update">https://klei.gg/WX-78update</a><br />-------------------------------------------<br />Follow Klei Other Places!<br />-------------------------------------------<br />Discord: <a rel="nofollow" target="blank" href="https://discord.com/invite/klei">https://discord.com/invite/klei</a><br />Forums: <a rel="nofollow" target="blank" href="https://forums.kleientertainment.com">https://forums.kleientertainment.com</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/klei">https://twitter.com/klei</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/kleientertainment">https://www.instagram.com/kleientertainment</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/kleientertainment">https://www.facebook.com/kleientertainment</a><br />Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/kleientertainment">https://www.twitch.tv/kleientertainment</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/kleient">https://www.youtube.com/kleient</a><br />.<br />..<br />...<br />....<br />.....<br />......<br />.......<br />........<br />.........<br />..........<br />[SYNTAX_ERROR_LOG] <br />WX-78 was the result of an unorthodox experiment helmed by { [LoadEmpathyModLibraryExW().......ERROR_DATA_PATH_NOT_FOUND] } and Robert Wagstaff. The experiment turned out to be a [RESOUNDING SUCCESS], but Wagstaff was [A SHORT-SIGHTED FOOL, AFRAID OF PROGRESS] and decided to put a stop to further tests. Adamant that the process that created them could still be perfected, WX refused to give up, continuing their experiments in secret. When Wagstaff finally discovered what they had been doing, there was a heated argument and 01110100 01101111 01101111 00100000 01101100 01100001 01110100 01100101 00100000 01110100 01101111 01101111 00100000 01101100 01100001 01110100 01100101 00100000 01110100 01101111 01101111 00100000 01101100 01100001 01110100 01100101{% endraw %}
