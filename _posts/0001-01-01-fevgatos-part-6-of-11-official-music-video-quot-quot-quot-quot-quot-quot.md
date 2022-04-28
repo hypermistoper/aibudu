@@ -1,0 +1,15 @@
+---
+title: "FEVGATOS  - Σαχλοτράγουδο (Part 6 of 11) Official Music Video"
+image: "https:\/\/i.ytimg.com\/vi\/pzCNEJ_cJdk\/hqdefault.jpg"
+vid_id: "pzCNEJ_cJdk"
+categories: "Music"
+tags: ["φευγάτος","fevgatos","sto gnosto baraki"]
+date: "2022-04-28T11:09:11+03:00"
+vid_date: "2022-04-15T19:21:20Z"
+duration: "PT3M55S"
+viewcount: "12031"
+likeCount: "104"
+dislikeCount: ""
+channel: "FEVGATOS"
+---
+{% raw %}Μετά τα ξενέρωτα &quot;Τίντερ Γκερλς&quot;, την χυλοπιτούλα &quot;Στο Γνωστό Μπαράκι&quot;, ο ήρωας μας βρήκε το &quot;Κορίτσι Μάλαμα&quot;! Πιστεύοντας όμως ότι έχει καταντήσει &quot;Γκόμενος Υπό Κατασκευή&quot; την έδιωξε μακριά σαν &quot;Κάθαρμα&quot;.  Πολύ γρήγορα όμως κατάλαβε τι είχε και τι έχασε και τώρα με ένα &quot;Σαχλοτράγουδο&quot; παρακαλάει για μια ευκαιρία ακόμα… Τι λέτε; Θα τα βρουν; Αυτό θα το μάθουμε στο επόμενο επεισόδιο &quot;Απλά Δυο Φίλοι&quot; (Spoiler χαχα) Μείνετε συντονισμένοι (εγγραφή + καμπανάκι) για να μάθετε πως το πήρε ο κακομοίρης ήρωας μας.<br /><br />* Ένα LIKE στο βίντεο και μια κοινοποίηση θα την εκτιμούσα ιδιαίτερα!<br /><br />► Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/7sruBJVxyKzfQza04ydVel?si=cmfV2xBkQUWbT19TozhpxQ">https://open.spotify.com/artist/7sruBJVxyKzfQza04ydVel?si=cmfV2xBkQUWbT19TozhpxQ</a><br /><br />► Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/fevgatos_music​">https://www.instagram.com/fevgatos_music​</a><br />► Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/fevgatosmusic​">https://www.facebook.com/fevgatosmusic​</a><br />► TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@fevgatos_music​">https://www.tiktok.com/@fevgatos_music​</a><br />► Guitar Chords: <a rel="nofollow" target="blank" href="https://kithara.to/ai/veucatps">https://kithara.to/ai/veucatps</a><br /><br /><br />1. Fevgatos - Τίντερ Γκερλς (Part 1 of 11)<br /><a rel="nofollow" target="blank" href="https://youtu.be/j7fCkIzS7_A​">https://youtu.be/j7fCkIzS7_A​</a><br /><br />2. Fevgatos - Στο Γνωστό Μπαράκι (Part 2 of 11)<br /><a rel="nofollow" target="blank" href="https://youtu.be/SXhSXA7JbJ0​">https://youtu.be/SXhSXA7JbJ0​</a><br /><br />3. Fevgatos - Κορίτσι Μάλαμα (Part 3 of 11)<br /><a rel="nofollow" target="blank" href="https://youtu.be/NWd_ex2Rvm4​">https://youtu.be/NWd_ex2Rvm4​</a><br /><br />4. Fevgatos - Γκόμενος Υπό Κατασκευή (Part 4 of 11)<br /><a rel="nofollow" target="blank" href="https://youtu.be/zRWDEJk3L9s">https://youtu.be/zRWDEJk3L9s</a><br /><br />5. Fevgatos - Κάθαρμα (Part 5 of 11)<br /><a rel="nofollow" target="blank" href="https://youtu.be/OtpnqGk9CvY">https://youtu.be/OtpnqGk9CvY</a><br /><br />6. Fevgatos - Σαχλοτράγουδο (Part 6 of 11) <br /><a rel="nofollow" target="blank" href="https://youtu.be/pzCNEJ_cJdk">https://youtu.be/pzCNEJ_cJdk</a><br /><br />7. Fevgatos - Απλά Δυο Φίλοι (Part 7 of 11) <br />Comin Soon!<br /><br />Απορίες σχετικά με DIY recordings / filming / editing? Αφήστε σε σχόλιο εδώ τις ερωτήσεις σας or DM me on Instagram @fevgatos_music <br /><br />#φευγάτος​ #οκύκλοςτηςαγάπης​ #fevgatos{% endraw %}
