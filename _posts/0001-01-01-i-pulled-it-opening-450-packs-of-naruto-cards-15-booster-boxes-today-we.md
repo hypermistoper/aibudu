@@ -1,0 +1,15 @@
+---
+title: "I PULLED IT!! 🎴 Opening 450 Packs of Naruto Cards ł 15 Booster Boxes"
+image: "https:\/\/i.ytimg.com\/vi\/0AS8R8oYyAg\/hqdefault.jpg"
+vid_id: "0AS8R8oYyAg"
+categories: "Entertainment"
+tags: ["naruto cards","naruto shippuden","naruto ccg"]
+date: "2022-04-28T21:32:24+03:00"
+vid_date: "2022-04-24T15:53:59Z"
+duration: "PT13M6S"
+viewcount: "17237"
+likeCount: "897"
+dislikeCount: ""
+channel: "BAM Collectibles"
+---
+{% raw %}Today we are opening 15 booster boxes, which is 450 packs and 2250 worth of individual Official Naruto cards made by KAYOU.  This is the largest and most epic Naruto booster box break I've ever done on YouTube so far 😄 Also can't wait to show you my rarest pull of Anbu Kakashi!<br /><br />🎴 Kayou Naruto Cards: <a rel="nofollow" target="blank" href="https://s.click.aliexpress.com/e/_A7dTBZ">https://s.click.aliexpress.com/e/_A7dTBZ</a><br /><br />📳 DOWNLOAD &amp; follow me on Whatnot: <a rel="nofollow" target="blank" href="https://www.whatnot.com/invite/bam_collectibles">https://www.whatnot.com/invite/bam_collectibles</a><br /><br /> ⛩ Facebook Group: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/1625243594521497/">https://www.facebook.com/groups/1625243594521497/</a><br /><br />📙 Card Supplies I Recommend - <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/bamcollectibles">https://www.amazon.com/shop/bamcollectibles</a><br /><br />🔴 Become a channel member!<br />       ►Through YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCaRYWoR1dvP_9STtElze2Ew/join">https://www.youtube.com/channel/UCaRYWoR1dvP_9STtElze2Ew/join</a><br />       ►Through Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/bamcollectibles">https://www.patreon.com/bamcollectibles</a><br /><br />👕 BAM Merch: <a rel="nofollow" target="blank" href="https://shop.spreadshirt.com/bam-collectibles/all">https://shop.spreadshirt.com/bam-collectibles/all</a><br /><br />✔️ Follow me on my social medias to see my collection! <br />       ► INSTAGRAM <a rel="nofollow" target="blank" href="https://instagram.com/bam_collectib1es?r=nametag">https://instagram.com/bam_collectib1es?r=nametag</a><br />       ► FACEBOOK <a rel="nofollow" target="blank" href="https://www.facebook.com/BAMCollectibles/">https://www.facebook.com/BAMCollectibles/</a><br />       ► TWITTER <a rel="nofollow" target="blank" href="https://twitter.com/BamCollectibles">https://twitter.com/BamCollectibles</a><br /><br />👊🏻 Join the official BAM Collectibles Discord Server <a rel="nofollow" target="blank" href="https://discord.gg/VFuYEFc">https://discord.gg/VFuYEFc</a><br /><br />(Disclosure: These are affiliate links, meaning, at no additional cost to you, I will earn a commission if you click through and make a purchase. This helps support the channel.)<br /><br />📫 My Mail Box!  (May open in a video!)<br />BAM<br />PO BOX 682<br />Blandon, PA 19510<br /><br />#narutocards #naruto #narutocollection{% endraw %}
