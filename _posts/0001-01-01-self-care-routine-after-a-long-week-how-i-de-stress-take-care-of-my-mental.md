@@ -1,0 +1,15 @@
+---
+title: "SELF CARE ROUTINE after a long week 🍵 how i de-stress & take care of my mental + physical health"
+image: "https:\/\/i.ytimg.com\/vi\/w5j1NullXWA\/hqdefault.jpg"
+vid_id: "w5j1NullXWA"
+categories: "Howto-Style"
+tags: ["self care tips","self care","self care routine"]
+date: "2022-04-28T10:09:31+03:00"
+vid_date: "2022-04-27T13:00:33Z"
+duration: "PT21M18S"
+viewcount: "66403"
+likeCount: "7416"
+dislikeCount: ""
+channel: "Fernanda Ramirez"
+---
+{% raw %}Get matched with a therapist who will listen and help. Get 10% off your first month <a rel="nofollow" target="blank" href="https://betterhelp.com/fernanda">https://betterhelp.com/fernanda</a> 🌱 Thank you to BetterHelp for sponsoring this video<br /><br />MY end of week SELF CARE ROUTINE! how i de-stress &amp; take care of my mental + physical health!<br />i really hope you guys enjoy this video on how i like to recover from a long tiring or stressful week! my fav thing to do is take care of my mind, body, &amp; spirit to function to the best of my abilities &amp; that takes time!! together i show you how i practise some daily/weekly rituals &amp; routines :) this is what works best for me and the schedule i have; if you have less time you can can little bits from this routine to add to yours! <br />    <br />☆business inquiries: fernanda@select.co<br /><br />☆ALL SOCIALS: @fernandaraamirez<br />instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/fernandaraamirez/">https://www.instagram.com/fernandaraamirez/</a><br />spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/user/225srsbp27pczoun3irtqz7lq?si=d8dba8411c194cfe">https://open.spotify.com/user/225srsbp27pczoun3irtqz7lq?si=d8dba8411c194cfe</a><br />vsco: <a rel="nofollow" target="blank" href="https://vsco.co/fernandaraamirez/gallery">https://vsco.co/fernandaraamirez/gallery</a><br />pinterest: <a rel="nofollow" target="blank" href="https://pin.it/58lz2sa">https://pin.it/58lz2sa</a><br />tiktok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@fernandaraamirez?lang=en">https://www.tiktok.com/@fernandaraamirez?lang=en</a><br /><br />FAQ<br />☆age: 20<br />☆height: 5'6<br />☆location: Vancouver, Canada<br />☆camera: Canon g7x Mark llI <br />☆editing software: final cut pro x<br /><br />💘💘send me a postcard! PO BOX address💘💘:<br />Fernanda Ramirez<br />PO Box 52589 COQUITLAM CENTRE PO<br />COQUITLAM BC V3B7J4<br /><br />i do not own any of the music used in this video<br />love u guys !! #selfcareroutine #weeklyresetroutine #selfcare <br />self care tips, self care, self care routine, end of week reset routine, weekly reset routine, how i recover from a long week, how i bounce back after a stressful week, workout routine, productive day in my life, much needed self care, how i journal, journal with me, workout routine, workout with me, self care checklist, lifestyle YouTube, fernanda ramirez, daily rituals and practices, how i take care of myself, productivity, self love, pamper routine, productive night routine, productive morning routine<br />sub count: 797,431🦋{% endraw %}
