@@ -1,0 +1,15 @@
+---
+title: "FANS TAKE OVER Eva Igo's 10 Minute Photo Challenge in Target (World of Dance)"
+image: "https:\/\/i.ytimg.com\/vi\/GX3k6AGq5KM\/hqdefault.jpg"
+vid_id: "GX3k6AGq5KM"
+categories: "Entertainment"
+tags: ["Jordan matter","Jordan matter photographer","dance"]
+date: "2022-04-28T23:00:47+03:00"
+vid_date: "2018-08-16T16:07:02Z"
+duration: "PT14M5S"
+viewcount: "12366851"
+likeCount: "114090"
+dislikeCount: ""
+channel: "Jordan Matter"
+---
+{% raw %}I listen to fans for World of Dance star Eva Igo's 10 Minute Photo Challenge in Target after an EPIC FAIL at the zoo! Subscribe here: <a rel="nofollow" target="blank" href="http://bit.ly/Sub_Jordan">http://bit.ly/Sub_Jordan</a> | And follow me on IG for daily photos and videos: <a rel="nofollow" target="blank" href="https://instagram.com/jordanmatter/">https://instagram.com/jordanmatter/</a> <br /><br />Watch my hysterical 10 Minute Photo Challenge using my iPhone: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=W5hkPpaaqfA&amp;t=1s">https://www.youtube.com/watch?v=W5hkPpaaqfA&amp;t=1s</a><br /><br />Video by Sandy Chase<br />Assistant Editor: Soorim Lee<br /><br />Follow Jordan Matter: <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/jordanmatter/">https://instagram.com/jordanmatter/</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/JordanMatter...">https://www.facebook.com/JordanMatter...</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/jordanmatter">https://twitter.com/jordanmatter</a> <br />Website: <a rel="nofollow" target="blank" href="https://www.jordanmatter.com/">https://www.jordanmatter.com/</a> <br /><br />Pre-order &quot;Born to Dance&quot; here:<br /><a rel="nofollow" target="blank" href="https://amzn.to/2mrFw4K">https://amzn.to/2mrFw4K</a><br /><br />Buy my first book, &quot;Dancers Among Us&quot;: <a rel="nofollow" target="blank" href="https://www.dancersamongus.com/store">https://www.dancersamongus.com/store</a> <br /><br />Watch More Jordan Matter: 10 Minute Photo Challenges: <a rel="nofollow" target="blank" href="https://youtube.com/watch?v=SxSA-a7zV...">https://youtube.com/watch?v=SxSA-a7zV...</a><br />Dance Moms: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=prEms...">https://www.youtube.com/watch?v=prEms...</a> <br />Dancers Among Us: <a rel="nofollow" target="blank" href="https://youtube.com/watch?v=pznJ0ntW-...">https://youtube.com/watch?v=pznJ0ntW-...</a><br /><br />Business Inquiries: info@jordanmatter.com <br /><br />About Jordan Matter: I'm Jordan, a professional photographer with a passion for capturing some pretty amazing dance moments. On this channel you'll find us working with dancers such as Sofie Dossi, Anna McNulty, Rybka Twins, Nia Sioux, and more. Stick around for some awesome 10 Minute Photo Challenges!<br /><br />Music:<br />Getaway Car by Rex Banner<br />Frocapella by Yostek<br />Olas by Tomas Novoa<br />Seascape by Guest of Rapture<br />You’re There by Geva Alon{% endraw %}
