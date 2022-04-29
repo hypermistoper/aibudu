@@ -1,0 +1,15 @@
+---
+title: "The Monetary Consequences of Mr Putin | Luke Gromen"
+image: "https:\/\/i.ytimg.com\/vi\/PTv_kX3_HxA\/hqdefault.jpg"
+vid_id: "PTv_kX3_HxA"
+categories: "News-Politics"
+tags: ["Luke Gromen","Federal Trust","Bretton Woods 3"]
+date: "2022-04-29T06:56:46+03:00"
+vid_date: "2022-04-28T12:55:02Z"
+duration: "PT50M18S"
+viewcount: "441"
+likeCount: "25"
+dislikeCount: ""
+channel: "The Federal Trust"
+---
+{% raw %}In this new Federal Trust video, the chairman of the Federal Trust, John Stevens, speaks with Luke Gromen about the monetary consequences of the war in Ukraine, and whether the steps taken by both the West and Russia since it began mark a watershed moment in the global monetary system, similar to the decision by the US in 1971 to end the gold standard.<br />Luke also addresses questions such as the future of the Dollar, gold and commodities, Bitcoin and the Euro. The interview also sheds some light on the domestic political realities and trends in the United States and the likely future trajectories in EU-China and EU-Russia relations.<br /><br />SPEAKERS: <br /><br />Luke Gromen is CEO and Founder of Forest for the Trees, a macroeconomic research firm. He is based in the United States and publishes for institutional investors and corporate strategic planners in his weekly newsletter, Tree Rings. He is also author of “The Mr. X Interviews”, which can be downloaded free of charge on his website.<br /><br />The Forest for the Trees (FFTT, LLC): <a rel="nofollow" target="blank" href="https://fftt-llc.com/">https://fftt-llc.com/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/LukeGromen">https://twitter.com/LukeGromen</a> <br /><br />John Stevens is Chairman of the Federal Trust and former Conservative MEP. <br /><br />ABOUT THE FEDERAL TRUST <br />The Federal Trust is a research institute studying the interactions between regional, national, European and global levels of government. Founded in 1945 on the initiative of Sir William Beveridge, it has long made a powerful contribution to the study of federalism and federal systems. It has always had a particular interest in the European Union and Britain’s place in it. The Federal Trust has no allegiance to any political party. It is registered as a charity for the purposes of education and research. <br /><br />Website: <a rel="nofollow" target="blank" href="https://fedtrust.co.uk/">https://fedtrust.co.uk/</a> <br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/fedtrust">https://twitter.com/fedtrust</a> <br /><br />Donate: <a rel="nofollow" target="blank" href="https://www.paypal.com/donate/?busine...">https://www.paypal.com/donate/?busine...</a><br /><br />Support our work: <a rel="nofollow" target="blank" href="https://www.patreon.com/federaltrust">https://www.patreon.com/federaltrust</a><br /><br />#LukeGromen #FederalTrust #Dollar #worldreservecurrency #goldstandard #petrodollar #Russia #Ukrainewar #Euro #Putin #energycrisis #Bitcoin #China{% endraw %}
