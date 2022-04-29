@@ -1,0 +1,15 @@
+---
+title: "WWE Championship reveals: WWE Playlist"
+image: "https:\/\/i.ytimg.com\/vi\/4lN3KBg9oE8\/hqdefault.jpg"
+vid_id: "4lN3KBg9oE8"
+categories: "Sports"
+tags: ["Brock Lesnar","JBL","John Cena"]
+date: "2022-04-29T14:58:14+03:00"
+vid_date: "2022-04-25T12:00:01Z"
+duration: "PT9M39S"
+viewcount: "370946"
+likeCount: "11520"
+dislikeCount: ""
+channel: "WWE"
+---
+{% raw %}Watch Superstars like The Rock and John Cena reveal new designs for the prestigious WWE Championship.<br />Stream WWE on Peacock <a rel="nofollow" target="blank" href="https://pck.tv/3l4d8TP">https://pck.tv/3l4d8TP</a> in the U.S. and on WWE Network <a rel="nofollow" target="blank" href="http://wwe.yt/wwenetwork">http://wwe.yt/wwenetwork</a> everywhere else<br /><br />---------------------------------------------------------------------<br /><br />Follow WWE on YouTube for more exciting action!<br /><br />---------------------------------------------------------------------<br /><br />Subscribe to WWE on YouTube: <a rel="nofollow" target="blank" href="http://wwe.yt/">http://wwe.yt/</a><br /><br />Check out WWE.com for news and updates: <a rel="nofollow" target="blank" href="http://goo.gl/akf0J4">http://goo.gl/akf0J4</a><br /><br />Watch WWE on Sony in India: <a rel="nofollow" target="blank" href="http://www.wwe.com/SonySportsNetwork">http://www.wwe.com/SonySportsNetwork</a><br /><br />Watch WWE on Disney+ Hotstar in Indonesia: <a rel="nofollow" target="blank" href="http://www.wwe.com/hotstar">http://www.wwe.com/hotstar</a><br /><br />Watch WWE on Shahid: <a rel="nofollow" target="blank" href="http://www.wwe.com/yt-shahid">http://www.wwe.com/yt-shahid</a><br /><br />Find the latest Superstar gear at WWEShop: <a rel="nofollow" target="blank" href="http://shop.wwe.com">http://shop.wwe.com</a><br /><br />---------------------------------------------<br /><br />Check out our other channels!<br /><br />---------------------------------------------<br /><br />The Bella Twins: <a rel="nofollow" target="blank" href="https://www.youtube.com/thebellatwins">https://www.youtube.com/thebellatwins</a><br /><br />UpUpDownDown: <a rel="nofollow" target="blank" href="https://www.youtube.com/upupdowndown">https://www.youtube.com/upupdowndown</a><br /><br />WWEMusic: <a rel="nofollow" target="blank" href="https://www.youtube.com/wwemusic">https://www.youtube.com/wwemusic</a><br /><br />Total Divas: <a rel="nofollow" target="blank" href="https://www.youtube.com/wwetotaldivas">https://www.youtube.com/wwetotaldivas</a><br /><br />------------------------------------<br /><br />WWE on Social Media<br /><br />------------------------------------<br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/wwe">https://twitter.com/wwe</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/wwe">https://www.facebook.com/wwe</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/wwe/">https://www.instagram.com/wwe/</a><br /><br />Giphy: <a rel="nofollow" target="blank" href="https://giphy.com/wwe">https://giphy.com/wwe</a><br /><br />------------------------------------{% endraw %}
