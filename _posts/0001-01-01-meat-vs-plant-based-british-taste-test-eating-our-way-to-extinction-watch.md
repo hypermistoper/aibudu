@@ -1,0 +1,15 @@
+---
+title: "Meat vs Plant-Based: BRITISH Taste Test"
+image: "https:\/\/i.ytimg.com\/vi\/DVYtjMv9xlY\/hqdefault.jpg"
+vid_id: "DVYtjMv9xlY"
+categories: "News-Politics"
+tags: ["plantbasednews","vegan","diet"]
+date: "2022-04-29T23:12:48+03:00"
+vid_date: "2022-04-29T13:32:39Z"
+duration: "PT10M30S"
+viewcount: "2998"
+likeCount: "407"
+dislikeCount: ""
+channel: "PLANT BASED NEWS"
+---
+{% raw %}Eating our way to extinction - watch the full film today: <a rel="nofollow" target="blank" href="https://www.eating2extinction.com/the-movie/#">https://www.eating2extinction.com/the-movie/#</a><br /><br />---<br />Get the latest news direct to your phone and chat to us on telegram! It's free! 👉<a rel="nofollow" target="blank" href="https://t.me/plantbasednews">https://t.me/plantbasednews</a><br /><br />★ SUPPORT OUR WORK BY MAKING A CONTRIBUTION: <a rel="nofollow" target="blank" href="https://plantbasednews.org/supportus/">https://plantbasednews.org/supportus/</a><br />★ SIGN UP TO RECEIVE OUR WEEKLY HEADLINES IN YOUR INBOX: <a rel="nofollow" target="blank" href="http://www.plantbasednews.org/signup">http://www.plantbasednews.org/signup</a><br />★ SIGN UP TO RECEIVE THE LATEST NEWS DIRECT TO YOUR PHONE: <a rel="nofollow" target="blank" href="https://plnt.news/news-alerts">https://plnt.news/news-alerts</a><br /><br />★ CHECK OUT OUR VEGAN PREGNANCY GUIDE: <a rel="nofollow" target="blank" href="https://plnt.news/veganpregnancy3">https://plnt.news/veganpregnancy3</a><br />★ CHECK OUT OUR VEGAN PARENTING GUIDE: <a rel="nofollow" target="blank" href="https://plnt.news/raisechildvegan2">https://plnt.news/raisechildvegan2</a><br />★ HELP TRANSLATE OUR VIDEOS: <a rel="nofollow" target="blank" href="http://bit.ly/translatePBN">http://bit.ly/translatePBN</a><br />★ GOT A NEWS STORY WE SHOULD KNOW ABOUT? Please email press@plantbasednews.org or leave a message on our hotline UK landline: +44 207 0960 175, US landline: +1 818 963 5411<br /><br />WEBSITE<br />★ <a rel="nofollow" target="blank" href="http://www.plantbasednews.org/">http://www.plantbasednews.org/</a><br /><br />SOCIAL MEDIA <br />★ TWITTER:      <a rel="nofollow" target="blank" href="https://www.twitter.com/plantbasednews">https://www.twitter.com/plantbasednews</a><br />★ FACEBOOK:  <a rel="nofollow" target="blank" href="https://www.facebook.com/plantbasednews">https://www.facebook.com/plantbasednews</a><br />★ YOUTUBE:    <a rel="nofollow" target="blank" href="https://www.youtube.com/plantbasednews">https://www.youtube.com/plantbasednews</a><br />★ INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/plantbasednews">https://www.instagram.com/plantbasednews</a><br /><br />LEARN ABOUT PLANT-BASED LIVING<br />★ Cowspiracy ➞ <a rel="nofollow" target="blank" href="https://youtu.be/nV04zyfLyN4">https://youtu.be/nV04zyfLyN4</a><br />★ NutritionFacts.Org ➞ <a rel="nofollow" target="blank" href="https://goo.gl/BdNbiU">https://goo.gl/BdNbiU</a><br />★ Try Vegan for 30 days ➞ <a rel="nofollow" target="blank" href="http://www.veganuary.com">http://www.veganuary.com</a>{% endraw %}
