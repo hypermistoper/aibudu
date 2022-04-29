@@ -1,0 +1,15 @@
+---
+title: "Why High Resolution Isn't Always A Good Thing"
+image: "https:\/\/i.ytimg.com\/vi\/9htf-Xa6m8w\/hqdefault.jpg"
+vid_id: "9htf-Xa6m8w"
+categories: "Film-Animation"
+tags: ["In Depth Cine","Cinematography","Cinematographer"]
+date: "2022-04-29T08:27:55+03:00"
+vid_date: "2022-01-09T13:00:04Z"
+duration: "PT9M20S"
+viewcount: "75678"
+likeCount: "5325"
+dislikeCount: ""
+channel: "In Depth Cine"
+---
+{% raw %}Head to <a rel="nofollow" target="blank" href="https://squarespace.com/indepthcine">https://squarespace.com/indepthcine</a> to save 10% off your first purchase of a website or domain using code INDEPTHCINE<br /><br />What is it with this recent obsession with high resolution images? Let’s talk a bit about what resolution actually is and why I think high resolution in cinema isn’t always a good thing.<br /><br />MERCH:<br />Official IDC Merch: <a rel="nofollow" target="blank" href="https://www.indepthcine.store/">https://www.indepthcine.store/</a><br /><br />SOCIALS:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/indepthcine/">https://www.instagram.com/indepthcine/</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/indepthcine">https://www.patreon.com/indepthcine</a><br />IDC Website: <a rel="nofollow" target="blank" href="https://www.indepthcine.com/">https://www.indepthcine.com/</a><br />My Website: <a rel="nofollow" target="blank" href="https://www.graykotze.com/">https://www.graykotze.com/</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/pxP8Yzc">https://discord.gg/pxP8Yzc</a><br /><br />GEAR:<br />YouTube Gear I Use: <a rel="nofollow" target="blank" href="https://kit.co/InDepthCine/youtube-gear">https://kit.co/InDepthCine/youtube-gear</a><br />Editing Software I Use: <a rel="nofollow" target="blank" href="http://bit.ly/2LZ60Lo">http://bit.ly/2LZ60Lo</a><br />Music I Use: <a rel="nofollow" target="blank" href="https://bit.ly/3E6o8c4">https://bit.ly/3E6o8c4</a> (CODE 'IDC10' for 10% off)<br />Stock Footage: <a rel="nofollow" target="blank" href="https://bit.ly/3jZHBC0">https://bit.ly/3jZHBC0</a><br />Cinematography Gear I Use: <a rel="nofollow" target="blank" href="https://kit.co/InDepthCine/cinematography-gear">https://kit.co/InDepthCine/cinematography-gear</a><br /><br />MUSIC: <a rel="nofollow" target="blank" href="https://bit.ly/3qCRt7u">https://bit.ly/3qCRt7u</a><br />Steven Beddall - 'Pearly Whites'<br />Trevor Kowalski - 'Katydid'<br />Maya Pacziga - 'Winter In Paris'<br />Ottom - 'Beam'<br />Salt Of The Sound - 'Awake My Soul'<br />Ottom - 'Worn Out'<br /><br />0:00 Introduction<br />1:02 What Is Resolution?<br />2:31 Why High Resolution Isn't Always A Good Thing<br />4:04 Sponsored Message<br />4:52 Why High Resolution Isn't Always A Good Thing<br />7:57 Conclusion<br /><br />DISCLAIMER: Some links in this description are affiliate links. If you purchase a product or service with these links I may receive a small commission without an additional charge to you.<br /><br />Thank you for supporting my channel so I can continue to provide you with free videos!{% endraw %}
