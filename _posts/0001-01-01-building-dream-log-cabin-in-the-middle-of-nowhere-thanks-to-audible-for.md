@@ -1,0 +1,15 @@
+---
+title: "Building Dream Log Cabin in the Middle of Nowhere"
+image: "https:\/\/i.ytimg.com\/vi\/6aaznwk8AX4\/hqdefault.jpg"
+vid_id: "6aaznwk8AX4"
+categories: "People-Blogs"
+tags: ["cabin life","what it takes to live a simple life","simple life"]
+date: "2022-04-30T00:17:28+03:00"
+vid_date: "2022-04-28T16:23:09Z"
+duration: "PT16M11S"
+viewcount: "9835"
+likeCount: "814"
+dislikeCount: ""
+channel: "Kalle Flodin"
+---
+{% raw %}Thanks to Audible for sponsoring this video! Go to <a rel="nofollow" target="blank" href="http://www.audible.com/kalleflodin">http://www.audible.com/kalleflodin</a> or text kalleflodin to 500 500 and start listening today!<br /><br />📕 Check out my Brand New eBook: <a rel="nofollow" target="blank" href="https://www.kalleflodin.com/ebook/find-your-true-north">https://www.kalleflodin.com/ebook/find-your-true-north</a><br /><br />📧 Join my Free Newsletter: <a rel="nofollow" target="blank" href="http://www.kalleflodin.com/newsletter">http://www.kalleflodin.com/newsletter</a><br /><br />🌲 Become a member of this channel: You'll get Priority in chat, Membership Badges and Members-only Community posts: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCe-5wDW9r3-C0HVdcm9_knA/join">https://www.youtube.com/channel/UCe-5wDW9r3-C0HVdcm9_knA/join</a><br /><br />🎧 My Podcast, My True North: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/3T64GMAwwOJ5jlgY5Flfm5?si=dcc44fea0d72491d">https://open.spotify.com/show/3T64GMAwwOJ5jlgY5Flfm5?si=dcc44fea0d72491d</a><br /><br />❤️ Get access to Behind-the-scenes content, secret vlogs and Patreon-only live streams: <a rel="nofollow" target="blank" href="https://www.patreon.com/kalleflodin">https://www.patreon.com/kalleflodin</a><br /><br />🎵 The Music I use in All my videos: <a rel="nofollow" target="blank" href="http://share.epidemicsound.com/39mDdW">http://share.epidemicsound.com/39mDdW</a> - 30-day free trial!<br /><br />👋 Come say hi <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/kalleflodin">https://instagram.com/kalleflodin</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/kalleflodin">https://www.patreon.com/kalleflodin</a><br />Email: <a rel="nofollow" target="blank" href="https://www.kalleflodin.com/contact">https://www.kalleflodin.com/contact</a><br /><br />🧔 Isak's Channels<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/isakstalenhag">https://www.instagram.com/isakstalenhag</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCRRDIfe6pP0GzohFWHtkPRg">https://www.youtube.com/channel/UCRRDIfe6pP0GzohFWHtkPRg</a><br /><br />In this video we're showing you the plans for building our dream cabin in the middle of nowhere.<br /><br />Thumbnail photo by the talented Robert Ritchie: <a rel="nofollow" target="blank" href="https://unsplash.com/@cornontherob">https://unsplash.com/@cornontherob</a> - <a rel="nofollow" target="blank" href="https://unsplash.com/photos/CbYCdiz6i_E">https://unsplash.com/photos/CbYCdiz6i_E</a>{% endraw %}
