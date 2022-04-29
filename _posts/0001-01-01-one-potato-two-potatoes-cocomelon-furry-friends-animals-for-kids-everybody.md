@@ -1,0 +1,15 @@
+---
+title: "One Potato Two Potatoes! | CoComelon Furry Friends | Animals for Kids"
+image: "https:\/\/i.ytimg.com\/vi\/VMTRhRKKPhs\/hqdefault.jpg"
+vid_id: "VMTRhRKKPhs"
+categories: "Education"
+tags: ["Animals","animals for kids","cute animals"]
+date: "2022-04-29T15:20:40+03:00"
+vid_date: "2022-04-29T01:00:07Z"
+duration: "PT3M19S"
+viewcount: "187504"
+likeCount: "1430"
+dislikeCount: ""
+channel: "CoComelon - Furry Friends"
+---
+{% raw %}Everybody’s making mashed potatoes! It takes a lot of work, but we’ll have fun counting along the way, and have a yummy snack when we’re done! Have fun singing and counting together!<br /><br />Subscribe for new videos every week: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCfXdCQfn2Wly74kX-vyPubw?sub_confirmation=1">https://www.youtube.com/channel/UCfXdCQfn2Wly74kX-vyPubw?sub_confirmation=1</a><br /><br />Welcome to CocoMelon’s animal corner- Join Baby JJ and his animal friends on their adventures and fun! Kids can learn all about their favourite animals, including dogs, cats, monkeys, pigs and more. Featuring all your favourite Cocomelon nursery rhymes, parents and kids can enjoy watching together.<br /><br />Watch CoComelon Animal playlists: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLb8WrhcvGhOhC86tPF2XSvh6_avP8ctvl">https://www.youtube.com/playlist?list=PLb8WrhcvGhOhC86tPF2XSvh6_avP8ctvl</a><br /><br />Lyrics:<br />One potato, Two potatoes, Three potatoes, Four<br /><br />Five potatoes, Six potatoes Seven potatoes, More!<br /><br /><br />🍉Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/6SXTTUJxIVwMbc1POrviTr">https://open.spotify.com/artist/6SXTTUJxIVwMbc1POrviTr</a><br />🍉Apple Music: <a rel="nofollow" target="blank" href="https://music.apple.com/us/artist/cocomelon/1489206247">https://music.apple.com/us/artist/cocomelon/1489206247</a><br /><br />About CoComelon: <br />CoComelon’s 3D animation and songs create a world that centers on the everyday experiences of young children. It is a place where kids can be happy and smart! In addition to helping preschoolers learn letters, numbers, animal sounds, colors, and more, the videos impart prosocial life lessons, providing parents with an opportunity to teach and play with their children as they watch together. <br /><br />WEBSITE: <a rel="nofollow" target="blank" href="http://www.CoComelon.com">http://www.CoComelon.com</a> <br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/CoComelonkids">https://www.facebook.com/CoComelonkids</a> <br />TWITTER: <a rel="nofollow" target="blank" href="https://www.twitter.com/CoComelonkids">https://www.twitter.com/CoComelonkids</a> <br />TIK TOK: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@cocomelon?">https://www.tiktok.com/@cocomelon?</a><br />US Shop: <a rel="nofollow" target="blank" href="https://moonbug.shop/">https://moonbug.shop/</a><br /><br />Copyright Treasure Studio, Inc. All Rights Reserved.{% endraw %}
