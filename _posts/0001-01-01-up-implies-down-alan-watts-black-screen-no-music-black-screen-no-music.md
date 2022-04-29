@@ -1,0 +1,15 @@
+---
+title: "Up implies down... Alan Watts (Black Screen, No Music)"
+image: "https:\/\/i.ytimg.com\/vi\/ukIxE8Rg8JQ\/hqdefault.jpg"
+vid_id: "ukIxE8Rg8JQ"
+categories: "People-Blogs"
+tags: ["Alan Watts","Spirituality","Sleeping"]
+date: "2022-04-29T07:49:45+03:00"
+vid_date: "2021-03-03T20:36:12Z"
+duration: "PT1H4M47S"
+viewcount: "14646"
+likeCount: "295"
+dislikeCount: ""
+channel: "TheSpiritualLighthouse"
+---
+{% raw %}Black Screen, No Music<br /><br />Alan Watts lecture - What you REALLY are doesn't have to survive, because you're what is!<br /><br />Alan Watt's Wisdom Of Insecurity: A Message for an Age of Anxiety: <a rel="nofollow" target="blank" href="https://amzn.to/2O0ixzj">https://amzn.to/2O0ixzj</a>  <br /><br />Alan Watt's Become What You Are: <a rel="nofollow" target="blank" href="https://amzn.to/3rixtHx">https://amzn.to/3rixtHx</a><br /><br />Alan Watt's Just So: <a rel="nofollow" target="blank" href="https://amzn.to/3sPTgqh">https://amzn.to/3sPTgqh</a><br /><br />Software For The Soul - Info And Application Exercises That Foster Insight As Experiential Understanding Of The True Nature Of Being: <a rel="nofollow" target="blank" href="https://440676kpgbtpbve11eavix4-d0.hop.clickbank.net/">https://440676kpgbtpbve11eavix4-d0.hop.clickbank.net/</a><br /><br />Twin Flame Reunion Fast Track Course:<br /><a rel="nofollow" target="blank" href="https://c809d3jlc1hs8qf8w76ec152kt.hop.clickbank.net/?cbpage=freeship">https://c809d3jlc1hs8qf8w76ec152kt.hop.clickbank.net/?cbpage=freeship</a><br /><br />A High Converting Course For Twin Flames. This Course Teaches People How To Speed Up Reunion With Their Twin Flame. It's Very Popular In The Spirituality Niche And Love/relationships<br /><br />Alan Wilson Watts (6 January 1915 – 16 November 1973) was a British philosopher, writer and speaker known for interpreting and popularising Buddhism, Taoism, and Hinduism for a Western audience. Born in Chislehurst, England, he moved to the United States in 1938 and began Zen training in New York. He received a master's degree in theology from Seabury-Western Theological Seminary and became an Episcopal priest in 1945. He left the ministry in 1950 and moved to California, where he joined the faculty of the American Academy of Asian Studies.<br /><br />Watts gained a following while working as a volunteer programmer at the KPFA radio station in Berkeley. He wrote more than 25 books and articles on religion and philosophy, introducing the emerging hippie counterculture to The Way of Zen (1957), one of the first bestselling books on Buddhism. In Psychotherapy East and West (1961), he argued that Buddhism could be thought of as a form of psychotherapy. He considered Nature, Man and Woman (1958) to be, &quot;from a literary point of view—the best book I have ever written&quot;. He also explored human consciousness and psychedelics in works such as &quot;The New Alchemy&quot; (1958) and The Joyous Cosmology (1962).<br /><br />Accepting any donations as support for the channel: <a rel="nofollow" target="blank" href="https://paypal.me/hazbee?locale.x=en_GB">https://paypal.me/hazbee?locale.x=en_GB</a>{% endraw %}
