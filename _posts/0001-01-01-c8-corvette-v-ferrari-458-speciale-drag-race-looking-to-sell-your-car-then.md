@@ -1,0 +1,15 @@
+---
+title: "C8 Corvette v Ferrari 458 Speciale: DRAG RACE"
+image: "https:\/\/i.ytimg.com\/vi\/ZKyJfzcfuvI\/hqdefault.jpg"
+vid_id: "ZKyJfzcfuvI"
+categories: "Autos-Vehicles"
+tags: ["carwow","mat watson","car review"]
+date: "2022-04-30T16:08:16+03:00"
+vid_date: "2022-04-30T08:06:27Z"
+duration: "PT8M27S"
+viewcount: "248932"
+likeCount: "21115"
+dislikeCount: ""
+channel: "carwow"
+---
+{% raw %}Looking to sell your car? Then you've come to the right place. carwow is the free, easy way to change your car online. Check it out here: <a rel="nofollow" target="blank" href="https://bit.ly/Buy-Sell-WOW">https://bit.ly/Buy-Sell-WOW</a><br />.............................................................<br /><br />Thanks to Andy for joining us with his 458: <a rel="nofollow" target="blank" href="https://bit.ly/Car-Film-Safety-Guy">https://bit.ly/Car-Film-Safety-Guy</a><br /><br />Who’s ready for a USA vs Italy showdown?! <br /><br />We’ve got Mat in the Corvette C8 Stingray, and he’s lining up against one of the most valuable Ferraris around - the 458 Speciale! <br /><br />So let’s see how they compare. Starting with the Corvette, it’s packing a 6.2-litre naturally-aspirated V8 which can deliver 482hp &amp; 612Nm of torque. The engine’s mid-mounted, and altogether the C8 tips the scales at 1,655kg. <br /><br />Then we have the Ferrari. It’s housing a 4.5-litre naturally-aspirated V8 at the rear, which can deliver 605hp &amp; 540Nm. Naturally, it’s lighter than the Corvette, weighing in at around 1,500kg. <br /><br />So, they’re relatively even, apart from one key stat… While the C8 is worth around £77,000, the Ferrari will easily set you back £400,000!! The question is, will it prove its worth over the quarter-mile? There’s only one way to find out - LET’S RACE!<br /><br />Mat's performance car deal: <a rel="nofollow" target="blank" href="https://bit.ly/Performance-Car-Deal-3004">https://bit.ly/Performance-Car-Deal-3004</a><br /><br />.............................................................<br />Instagram – <a rel="nofollow" target="blank" href="http://www.instagram.com/carwow">http://www.instagram.com/carwow</a><br /><br />Tiktok - <a rel="nofollow" target="blank" href="https://www.tiktok.com/@carwow">https://www.tiktok.com/@carwow</a><br /><br />Facebook – <a rel="nofollow" target="blank" href="http://www.facebook.com/carwowuk">http://www.facebook.com/carwowuk</a><br /><br />Twitter – <a rel="nofollow" target="blank" href="http://www.twitter.com/carwowuk">http://www.twitter.com/carwowuk</a><br /><br />Sign Up to our Newsletter – <a rel="nofollow" target="blank" href="http://bit.ly/carwow-Newsletter">http://bit.ly/carwow-Newsletter</a><br /><br />Oder auch in Deutschland Geld beim Autokauf sparen – <a rel="nofollow" target="blank" href="http://bit.ly/carwow-DE">http://bit.ly/carwow-DE</a><br /><br />Visita nuestra página web para saber cuánto te puedes ahorrar en tu nuevo coche – <a rel="nofollow" target="blank" href="http://bit.ly/carwow-ES">http://bit.ly/carwow-ES</a>{% endraw %}
