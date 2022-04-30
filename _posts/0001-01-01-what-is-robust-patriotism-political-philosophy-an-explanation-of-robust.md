@@ -1,0 +1,15 @@
+---
+title: "What is Robust Patriotism? (Political Philosophy)"
+image: "https:\/\/i.ytimg.com\/vi\/XRv9JtLKqKQ\/hqdefault.jpg"
+vid_id: "XRv9JtLKqKQ"
+categories: "Education"
+tags: ["Philosophy","Carneades","Carneades.org"]
+date: "2022-04-30T14:21:05+03:00"
+vid_date: "2022-03-14T01:32:55Z"
+duration: "PT8M50S"
+viewcount: "1283"
+likeCount: "80"
+dislikeCount: ""
+channel: "Carneades.org"
+---
+{% raw %}An explanation of Robust Patriotism as outlined by philosopher Alasdair MacIntyre, a view that aligns generally with communitarianism.  <br /><br />Sponsors: Joshua Furman, Roman Leventov, NBA_Ruby, Antybodi, Federico Galvão, Mike Gloudemans, Eugene SY, Andrew Sullivan, Antoinemp1, Andreas Kurz, Ismail Fagundes, Joao Sa, Ploney, Tyler James, and Dennis Sexton. Thanks for your support!<br /><br />Here are some videos you might enjoy:<br />The 100 Days of Logic (<a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLz0n_SjOttTcjHsuebLrl0fjab5fdToui)">https://youtube.com/playlist?list=PLz0n_SjOttTcjHsuebLrl0fjab5fdToui)</a><br />History of Philosophy (<a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLz0n_SjOttTc3DVJVu-A7Oz9PPSR2eCN5)">https://youtube.com/playlist?list=PLz0n_SjOttTc3DVJVu-A7Oz9PPSR2eCN5)</a><br />Ancient Philosophers &amp; Zeno’s Paradoxes (<a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLz0n_SjOttTe34Mjc1e2ar_qqpMqcpxvv)">https://youtube.com/playlist?list=PLz0n_SjOttTe34Mjc1e2ar_qqpMqcpxvv)</a><br />ExPhi Experimental Philosophy (<a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCa9HhN3Obz4xq_jyPlZE_lw)">https://www.youtube.com/channel/UCa9HhN3Obz4xq_jyPlZE_lw)</a><br />Map of Philosophy (<a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=YxBShJU_CKs)">https://www.youtube.com/watch?v=YxBShJU_CKs)</a><br />More videos with Carneades (<a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC1VzCyqpmCaRh8_BnijbOvg)">https://www.youtube.com/channel/UC1VzCyqpmCaRh8_BnijbOvg)</a><br /><br /><br />Donate on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/Carneades">https://www.patreon.com/Carneades</a><br /><br />Buy stuff with Zazzle: <a rel="nofollow" target="blank" href="https://www.zazzle.com/store/carneades?rf=238568769552007656">https://www.zazzle.com/store/carneades?rf=238568769552007656</a><br /><br />Follow us on Twitter: @CarneadesCyrene  <a rel="nofollow" target="blank" href="https://twitter.com/CarneadesCyrene">https://twitter.com/CarneadesCyrene</a><br /><br />Information for this video gathered from The Stanford Encyclopedia of Philosophy, The Internet Encyclopedia of Philosophy, The Cambridge Dictionary of Philosophy, The Oxford Dictionary of Philosophy, The Oxford Companion to Philosophy, The Routledge Encyclopedia of Philosophy, The Collier-MacMillan Encyclopedia of Philosophy, the Dictionary of Continental Philosophy, and more! (#Patriotism #PoliticalPhilosophy){% endraw %}
