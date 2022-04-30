@@ -1,0 +1,15 @@
+---
+title: "#12 - Need to Know - Congressional Hearings (04-29-22)"
+image: "https:\/\/i.ytimg.com\/vi\/Ajwe2U6qhn4\/hqdefault.jpg"
+vid_id: "Ajwe2U6qhn4"
+categories: "Entertainment"
+tags: ["ufo","uap","ufos"]
+date: "2022-04-30T22:39:58+03:00"
+vid_date: "2022-04-29T21:17:53Z"
+duration: "PT1H2M54S"
+viewcount: "958"
+likeCount: "115"
+dislikeCount: ""
+channel: "Need to Know"
+---
+{% raw %}Need to Know with Coulthart and Zabel — #12 - &quot;Congressional Hearings&quot; - April 28, 2022<br /><br />This is a video version of the Need to Know podcast which can be found on Apple, Spotify, iHeart, etc. Just search for the whole name, &quot;Need to Know with Coulthart and Zabel.&quot;<br /><br />Ross and Bryce review some recent UAP news, including an obvious hoax, Putin's new threats, confusion about Garry Reid's status, the return of the UFO Fest in McMinnville, Oregon, a new documentary about UAPx and a new series based on David Bowie's 1976 &quot;The Man Who Fell to Earth.&quot; Then: a look back at Congressional inquiries into UAP and whether hearings will occur in the future.<br /><br />ARTICLES REFERENCED IN THIS VIDEO — <br /><br />* Congressional Hearings: <a rel="nofollow" target="blank" href="https://bit.ly/UFO_Hearings">https://bit.ly/UFO_Hearings</a><br />* McMinnville Photos: <a rel="nofollow" target="blank" href="https://bit.ly/TrentPhotosA">https://bit.ly/TrentPhotosA</a><br />* Gerald Ford: <a rel="nofollow" target="blank" href="https://bit.ly/UFO-1976">https://bit.ly/UFO-1976</a><br />* Air Force versus Navy: <a rel="nofollow" target="blank" href="https://bit.ly/USAFvsUSN">https://bit.ly/USAFvsUSN</a><br />* Real Lue Elizondo: <a rel="nofollow" target="blank" href="https://bit.ly/Real_Lue">https://bit.ly/Real_Lue</a><br />* NASA's Bill Nelson: <a rel="nofollow" target="blank" href="https://bit.ly/NASA_UFO">https://bit.ly/NASA_UFO</a><br />* A Profane Rant about Modern Ufology: <a rel="nofollow" target="blank" href="https://bit.ly/Profane_Cosmic">https://bit.ly/Profane_Cosmic</a><br />* Skinwalkers at the Pentagon: <a rel="nofollow" target="blank" href="https://bit.ly/Skinwalkers_Pentagon">https://bit.ly/Skinwalkers_Pentagon</a><br />* Dark Skies TV Series: <a rel="nofollow" target="blank" href="https://bit.ly/Dark_Skies_25">https://bit.ly/Dark_Skies_25</a><br />* UAP Report: <a rel="nofollow" target="blank" href="https://bit.ly/Catchall_Bin">https://bit.ly/Catchall_Bin</a><br /><br /><a rel="nofollow" target="blank" href="https://www.NeedToKnow.today">https://www.NeedToKnow.today</a><br /><a rel="nofollow" target="blank" href="https://www.WhatIfUFOs.com">https://www.WhatIfUFOs.com</a><br /><a rel="nofollow" target="blank" href="https://www.BryceZabel.com">https://www.BryceZabel.com</a><br /><a rel="nofollow" target="blank" href="https://www.RossCoulthart.com">https://www.RossCoulthart.com</a><br /><br />Our Mothership: www.NeedToKnow.today<br /><br />#NeedtoKnow #ufo #uap #government #secrecy<br /><br />Bryce Zabel Twitter: @HollywoodUFOs<br />Ross Coulthart Twitter: @RossCoulthart{% endraw %}
