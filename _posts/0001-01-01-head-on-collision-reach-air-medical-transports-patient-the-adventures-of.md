@@ -1,0 +1,15 @@
+---
+title: "Head On Collision, REACH Air Medical Transports Patient"
+image: "https:\/\/i.ytimg.com\/vi\/NgK3Lbq6tfs\/hqdefault.jpg"
+vid_id: "NgK3Lbq6tfs"
+categories: "News-Politics"
+tags: ["The Adventures Of Lone Wolf","Adventures of Lone Wolf","Onscene TV"]
+date: "2022-05-01T13:44:29+03:00"
+vid_date: "2022-04-30T05:21:18Z"
+duration: "PT10M29S"
+viewcount: "923"
+likeCount: "29"
+dislikeCount: ""
+channel: "The Adventures Of Lone Wolf"
+---
+{% raw %}The Adventures of Lone Wolf<br />👍🏻 Please Like 💬 Comment and 📲 Share <br />✔️ Please Subscribe &amp; Turn on the Notification Bell for NEW Videos 🔔 <br /><br />INCIDENT DATE/TIME:  4-29-22, 12:03pm<br /><br />LOCATION: El Sobrante Road and Vista Del Lago Drive<br /><br />CITY: Unincorporated Riverside/Lake Mathews<br /><br />DETAILS:<br />Just after noon on Friday, California Highway Patrol, Riverside <br />&amp; Cal Fire Riverside County received a call of a major head on<br />collision in the area of El Sobrante Road and Vista Del Lago <br />Drive in unincorporated Riverside.  Per the caller, there was <br />two vehicles involved and 2 people trapped and unconscious in <br />one of the vehicles.  When units arrived, they found 2 <br />vehicles, one with a horse trailer, both having major damage <br />and the two occupants of the red truck unconscious and <br />trapped.  Cal Fire extricated the two occupants and performed<br /> life-saving measures.  REACH Air Medical was called to transport the <br />patients due to severity.  One patient was transported by AMR <br />ground and the second by REACH.  Both patients suffered <br />life threatening injuries, their condition at this time is not<br /> known.  The horse was removed safely and did not suffer any injuries.  No more details are available at this time.<br /><br /><br />**Follow us on Social Media**<br /><a rel="nofollow" target="blank" href="https://streamelements.com/theadventuresoflonewolf911videos/tip">https://streamelements.com/theadventuresoflonewolf911videos/tip</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/johnny.photos_osv360">https://www.instagram.com/johnny.photos_osv360</a><br />Photography: <a rel="nofollow" target="blank" href="https://lonewolfphotography.smugmug.com">https://lonewolfphotography.smugmug.com</a><br />Facebook:  <a rel="nofollow" target="blank" href="https://www.facebook.com/lonewolfnewsandmedia">https://www.facebook.com/lonewolfnewsandmedia</a><br />#stringer  #riverside #breakingnews #inlandempire #onscenetv <br /><br />**GRAPHIC WARNING**<br />CONTENT MAY BE OF GRAPHIC NATURE, VIDEOS ARE RAW AND UNEDITED NEWS/MEDIA FOOTAGE FROM ACTUAL FIRST RESPONDER INCIDENTS.<br />  <br />*All content on this channel is property of The Adventures Of Lone Wolf, copyright protected and not available for use without prior consent.  For licensing and usage info please contact The Adventures Of Lone Wolf at  lonewolfphotog@gmail.com<br />*This video is property of The Adventures Of Lone Wolf. Distribution is NOT allowed without permission. Contact for licensing.{% endraw %}
