@@ -1,0 +1,15 @@
+---
+title: "Baby Boomers Are Driving Our Interest Rates"
+image: "https:\/\/i.ytimg.com\/vi\/V6H5FMY9_U0\/hqdefault.jpg"
+vid_id: "V6H5FMY9_U0"
+categories: "Education"
+tags: ["interest rates","high yield savings account","money market account"]
+date: "2022-05-01T20:53:41+03:00"
+vid_date: "2022-04-30T14:15:03Z"
+duration: "PT10M26S"
+viewcount: "3348"
+likeCount: "301"
+dislikeCount: ""
+channel: "Erin Talks Money"
+---
+{% raw %}Where can you find good interest rates these days?  It seems like all guaranteed rates of return are abysmal to say the least. <br /><br />And what influences those interest rates? Can we expect better rates in the future?<br /><br />Well as it turns out - those interest rates are also influenced by the demographics of a nation. <br /><br />Links to articles referenced in the video: <br /><a rel="nofollow" target="blank" href="https://www.fraserinstitute.org/article/interest-rates-are-low-because-of-demographics-an-aging-population-of-savers-creates-a-borrowers-market">https://www.fraserinstitute.org/article/interest-rates-are-low-because-of-demographics-an-aging-population-of-savers-creates-a-borrowers-market</a><br /><br /><a rel="nofollow" target="blank" href="https://research.stlouisfed.org/publications/economic-synopses/2019/04/19/factors-behind-the-decline-in-the-u-s-natural-rate-of-interest">https://research.stlouisfed.org/publications/economic-synopses/2019/04/19/factors-behind-the-decline-in-the-u-s-natural-rate-of-interest</a><br /><br /><br />Looking for more money videos, I post new videos every week, subscribe to my channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/midge087">https://www.youtube.com/user/midge087</a> <br /><br />Erin Talks Money<br /><br />While you are here, why not check out some of my other videos: <br /><br />What is the average debt in America: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=PvInLO_FimU">https://www.youtube.com/watch?v=PvInLO_FimU</a><br /><br />Here are some common budgeting mistakes: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9jG5tX1ztjM">https://www.youtube.com/watch?v=9jG5tX1ztjM</a><br /><br />Are your friends keeping you poor: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=mxlrcJehQkg&amp;t=78s">https://www.youtube.com/watch?v=mxlrcJehQkg&amp;t=78s</a><br /><br />Where's the best places to put your money during inflation: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=tEMFH5bjBRg">https://www.youtube.com/watch?v=tEMFH5bjBRg</a><br /><br />Can you save too much money: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9yiXWJ6mL84">https://www.youtube.com/watch?v=9yiXWJ6mL84</a><br /><br />Looking to start investing in individual stocks, join Robinhood and get a free stock: <a rel="nofollow" target="blank" href="https://join.robinhood.com/erinm1666">https://join.robinhood.com/erinm1666</a><br /><br />#interestrates #borrowingmoney{% endraw %}
