@@ -1,0 +1,15 @@
+---
+title: "'It doesn't make sense to speculate about the Champions League' | Man Utd v Chelsea | Ralf Rangnick"
+image: "https:\/\/i.ytimg.com\/vi\/rAqCfe7ZvRs\/hqdefault.jpg"
+vid_id: "rAqCfe7ZvRs"
+categories: "Sports"
+tags: ["Football","Soccer","Beanyman"]
+date: "2022-05-01T09:08:12+03:00"
+vid_date: "2022-04-27T14:35:06Z"
+duration: "PT3M4S"
+viewcount: "2845"
+likeCount: "48"
+dislikeCount: ""
+channel: "BeanymanSports"
+---
+{% raw %}Ralf Rangnick press conference as Manchester United prepare to take on Chelsea in the Premier League.<br /><br />United go in search of a result as they look to keep their Champions League dreams intact.<br /><br />Courtesy - MUTV<br /><br />Please subscribe, like the video and share wherever you can!<br /><br />Help support the channel from only £0.99p a month!!<br />Get special loyalty badges next to your name in comments and live chat! You'll also get team badge emojis from your favourite team to use in live chat and premieres!! Click 'Join' below the video for more info or visit = <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCiVg6vRhuyjsWgHkDNOig6A/join">https://www.youtube.com/channel/UCiVg6vRhuyjsWgHkDNOig6A/join</a><br /><br />**DO NOT copy and re-upload any part of this video anywhere otherwise copyright strikes will be made! You do not have my permission to use this footage**<br /><br />To make sure you don't miss any of my videos<br />on this and my other channels please:<br /><br />Subscribe here!: <a rel="nofollow" target="blank" href="http://bit.ly/BeanymanSportsSub">http://bit.ly/BeanymanSportsSub</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/BeanymanSports">http://www.twitter.com/BeanymanSports</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@BeanymanSports">https://www.tiktok.com/@BeanymanSports</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/BeanymanSports">https://www.instagram.com/BeanymanSports</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/BeanymanSports">https://www.facebook.com/BeanymanSports</a><br /><br />You can now listen to my press conferences on Spotify!<br />Follow me here! = <a rel="nofollow" target="blank" href="https://open.spotify.com/show/2BP8X4mkrrnliD6hDNIWrU">https://open.spotify.com/show/2BP8X4mkrrnliD6hDNIWrU</a><br />This will be perfect to listen to when you're travelling to work or something and you can't watch the video.<br /><br />If you want to help with the costs involved with running the channel you can also support me on my Patreon here = <a rel="nofollow" target="blank" href="https://www.patreon.com/BeanymanSports">https://www.patreon.com/BeanymanSports</a><br /><br />Timeline courtesy of Warrior J93<br />0:00 Intro<br />0:07 Ralf Rangnick on the upcoming games<br />0:44 Ralf Rangnick On hopes of going to the Champions League<br />1:18 Is Cavani fit for the Chelsea game?<br />1:50 Would Rangnick use the youth players for the upcoming games? And team news<br />2:39 Outro | Please like the video and subscribe!{% endraw %}
