@@ -1,0 +1,15 @@
+---
+title: "Terrible Fight in the air: NATO Jets Scramble to Intercept Russian Jets Over Baltic & Black Sea"
+image: "https:\/\/i.ytimg.com\/vi\/XslbFk7TvBw\/hqdefault.jpg"
+vid_id: "XslbFk7TvBw"
+categories: "Science-Technology"
+tags: ["terrible fight in the air","nato jets scramble to intercept russian jets over baltic & black sea","nato jets scramble to intercept russian jets"]
+date: "2022-05-01T10:35:16+03:00"
+vid_date: "2022-05-01T02:00:10Z"
+duration: "PT8M10S"
+viewcount: "20126"
+likeCount: "613"
+dislikeCount: ""
+channel: "AMERICAN PATRIOT MILITARY"
+---
+{% raw %}NATO Jets Scramble 'multiple Times' To Intercept Russian Aircraft Over Baltic &amp; Black Sea<br />In the Black Sea region, QRA aircraft from Romania and the UK have been launched to investigate “unknown tracks” approaching Allied airspace.<br /><br />NATO fighter jets stationed in the Baltic and Black Sea regions have scrambled “multiple times over the past four days” to track and intercept Russian aircraft near Alliance airspace, a statement posted by NATO’s Allied Air Command said.  NATO radars tracked a number of unidentified aircraft over the Baltic and Black Seas since Tuesday, April 26. <br /><br />In response, NATO's Combined Air Operations Centres (CAOC) at Uedem, Germany and Torrejón, Spain, launched Allied fighter aircraft in their respective regions to intercept and identify the approaching aircraft, the Allied Air Command of NATO said. <br /><br />NATO’s air command stated that the Quick Reaction Alert (QRA) fighters from Poland, Denmark, France and Spain have been airborne at different times in the Baltic Sea Region since Tuesday to safeguard Allied airspace from Russian fighter jets.<br /><br />In the Black Sea region, QRA aircraft from Romania and the UK have launched to investigate “unknown tracks” approaching Allied airspace. “All interactions occurred in a safe and routine manner,” NATO said in the statement. <br /><br />“Allies deployed from the North to the South of Europe remain unified in support of the Nato Air Policing mission,” said Major General Jörg Lebert, Chief of Staff, Allied Air Command.<br />“The quick response of Nato’s two CAOCs, demonstrates Nato forces’ readiness and capability to guard Allied skies 24 hours a day, 7 days a week, 365 days a year,” Major General Lebert added.<br /><br />Fighter jets from Poland, Denmark, France and Spain have intercepted the Russian fighter jets multiple times since the latter launched an all out invasion in Ukraine. NATO jets have identified several approaching aircraft.<br /><br />Make sure to share this video with your friends!<br /><br />↦ VIDEO/THUMBNAIL : JUST ILLUSTRATION<br />↦ The title and thumbnail are just sweeteners, make sure you listen to the news carefully<br /><br />The massive Thanks to everyone for watching and all of your support!<br /><br />Recent Upload : <a rel="nofollow" target="blank" href="https://youtu.be/XLHzFHf2LtA">https://youtu.be/XLHzFHf2LtA</a><br />Most Popular Video : <a rel="nofollow" target="blank" href="https://youtu.be/5vTEJSj6iSA">https://youtu.be/5vTEJSj6iSA</a>{% endraw %}
