@@ -1,0 +1,15 @@
+---
+title: "How I Beat Hardcore Minecraft WITHOUT KILLING ANYTHING"
+image: "https:\/\/i.ytimg.com\/vi\/37OsAnbdv8A\/hqdefault.jpg"
+vid_id: "37OsAnbdv8A"
+categories: "Gaming"
+tags: ["Hardcore Minecraft But I can't Kill anything","Minecraft But I can't Kill Anything","How I beat Hardcore Minecraft"]
+date: "2022-05-02T17:33:59+03:00"
+vid_date: "2022-04-28T14:00:02Z"
+duration: "PT23M56S"
+viewcount: "110503"
+likeCount: "4023"
+dislikeCount: ""
+channel: "SwitchBackMongo"
+---
+{% raw %}In this video, I will beat Hardcore Minecraft in a New World... But I won't kill anything.<br /><br />While mob combat is usually an integral part of a player's ability to survive Hardcore Minecraft, I wanted to challenge myself to complete the game without fighting at all.  In theory, it should be relatively easy as there are only two mobs that HAVE to be killed to reach the end credits, but this challenge required me to rethink the game through every section of the game.<br /><br />Can I survive with defense as my only weapon? They do say it's the best offense...<br /><br />If you enjoy the video, please hit the like button and toss your boy a subscribe!<br />And check out my hardcore series: <a rel="nofollow" target="blank" href="https://youtu.be/0-1VcfRjUeE">https://youtu.be/0-1VcfRjUeE</a> <br />If you like this video, I’m sure you’ll like 3000 days!<br /><br />- TWITCH: <a rel="nofollow" target="blank" href="https://www.twitch.tv/switchbackmongo">https://www.twitch.tv/switchbackmongo</a> <br />- TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/SwitchBackMongo">https://twitter.com/SwitchBackMongo</a> <br />- DISCORD: <a rel="nofollow" target="blank" href="https://discord.gg/VQ34tmhucQ">https://discord.gg/VQ34tmhucQ</a> <br />- MERCH: <a rel="nofollow" target="blank" href="https://switchbackmongo.shop">https://switchbackmongo.shop</a> <br /><br />MINECRAFT SERVER<br /><br />Looking for a Minecraft Server? Use BisectHosting and get a server for as little as $2.99/mo or go with the recommended 3GB Plan for $8.97/mo!<br />Check Them Out: <a rel="nofollow" target="blank" href="https://bisecthosting.com/switchbackmongo">https://bisecthosting.com/switchbackmongo</a> <br />And for 25% off your first month, use promo code &quot;switchbackmongo&quot;<br /><br />Hardcore Minecraft is the most challenging difficulty. Where monsters like zombies and creepers not only spawn more often, but they do more damage as well. On top of that, you are only given one life, and if you die, you lose your world forever. <br /><br />Hardcore Minecraft But... I can't kill anything... It's the Mumbo Jumbo &quot;Peace, Love, and Plants&quot; from HermitCraft Season 8 but in Hardcore Minecraft meaning it is more dangerous, everything has to be done myself, and of course, I cannot die...<br /><br />Music from Epidemic Sound:<br />Access to the extensive Music Library with songs to fit any project for only $15/mo!<br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/i0xkqw/">https://www.epidemicsound.com/referral/i0xkqw/</a><br /><br />#HardcoreMinecraft{% endraw %}
