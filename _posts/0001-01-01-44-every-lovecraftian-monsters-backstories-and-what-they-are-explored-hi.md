@@ -1,0 +1,15 @@
+---
+title: "44 (Every) Lovecraftian Monsters - Backstories And What They Are? Explored"
+image: "https:\/\/i.ytimg.com\/vi\/GDPqZUja9wU\/hqdefault.jpg"
+vid_id: "GDPqZUja9wU"
+categories: "Entertainment"
+tags: ["Every Lovecraftian Monster"]
+date: "2022-05-03T00:03:19+03:00"
+vid_date: "2022-01-10T17:15:00Z"
+duration: "PT52M9S"
+viewcount: "705542"
+likeCount: "20185"
+dislikeCount: ""
+channel: "Marvelous Videos"
+---
+{% raw %}Hi there, horror heads! Today we have an absolute treat in store for you. We will be exploring all the Lovecraftian monsters that you can think of! Howard Phillips Lovecraft, an American author, is now widely regarded as a forerunner of modern horror fiction. Lovecraft was a pioneering horror novelist who impacted and inspired numerous horror-centered artists, be they writers, filmmakers, musicians, or painters, despite his contentious nature. Lovecraft's stories are notoriously strange, and he was a master at capturing the terrible atmosphere that pervades his writings; an atmosphere that would draw you in so deep that you felt as if you were there yourself. His literary style is instantly recognizable, and although being repetitious at times, it remains one of the most unique and distinct in the history of horror literature.<br />The word &quot;Lovecraftian horror&quot; refers to a subgenre or style of horror fiction inspired by H.P. Lovecraft's stories. He is also regarded as the &quot;Father&quot; of the cosmic horror subgenre, which he frequently employs in his works. ‘The Dream Cycle’, which is about the mythical &quot;Dreamlands,&quot; and the ‘Cthulhu Mythos’, which is about the vast mythology of giant creatures, are the two major cycles in which his horror novels are split. Both of these exhibit vibrant chaos that has terrified readers for over a century. We've decided to visit that chaos in today's video and give you a list of all the terrible Lovecraftian monsters that have appeared in his stories, as well as stories by other Lovecraftian authors.<br />#HPLovecraft #CosmicMonster<br /><br />For more awesome content, visit ► <a rel="nofollow" target="blank" href="https://marvelousvideos.com/">https://marvelousvideos.com/</a><br /><br />0:00 Intro<br />2:09 Shoggoth<br />3:49 Azathoth<br />5:32 Cthulhu<br />7:29 Nyarlathotep<br />9:26 Dagon<br />10:50 Great Old One<br />12:33 Yog-Sothoth<br />14:06 Night-gaunt<br />15:16 Outer God<br />16:47 Deep One<br />18:06 Rhan-Tegoth<br />19:18 Yig<br />21:02 Mi-go<br />22:37 Elder Thing<br />24:09 Rílyeh<br />25:33 Nodens<br />26:28 B'gnu-Thun<br />27:08 Bokrug<br />28:21 Formless Spawn<br />29:41 Dimensional Shambler<br />31:11 Dreamlands<br />32:34 Shub-Niggurath<br />33:44 Spider of Leng<br />34:49 Hydra (Mother Hydra)<br />35:52 Dunwich Horror<br />37:10 Shathak<br />37:51 Zvilpogghua<br />38:58 Ghatanothoa<br />40:19 Gloon<br />41:22 Yuggoth<br />42:35 Gnoph-Keh<br />43:44 Wilbur Whateley<br />45:08 Gobogeg<br />45:56 Hastur<br />46:42 Hound of Tindalos<br />47:55 Hunting Horror<br />48:30 Innsmouth<br />49:53 Venus<br />50:49 Shaggai{% endraw %}
