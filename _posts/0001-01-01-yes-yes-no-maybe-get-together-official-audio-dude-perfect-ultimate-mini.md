@@ -1,0 +1,15 @@
+---
+title: "Yes Yes No Maybe - Get Together (Official Audio) [Dude Perfect Ultimate Mini Games Battle Song]"
+image: "https:\/\/i.ytimg.com\/vi\/_hp-AiNQUuo\/hqdefault.jpg"
+vid_id: "_hp-AiNQUuo"
+categories: "Music"
+tags: ["Everybody Get Up","high def","2019"]
+date: "2022-05-02T11:56:57+03:00"
+vid_date: "2020-02-20T21:45:56Z"
+duration: "PT2M51S"
+viewcount: "13069"
+likeCount: "272"
+dislikeCount: ""
+channel: "Position Music"
+---
+{% raw %}To Stream/Buy (Spotify/Apple/Etc): <a rel="nofollow" target="blank" href="https://fanlink.to/StartTheFireYYNM">https://fanlink.to/StartTheFireYYNM</a><br /><br />Connect with Position Music: <br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/positionmusic">https://www.youtube.com/positionmusic</a><br />Website: <a rel="nofollow" target="blank" href="https://www.positionmusic.com">https://www.positionmusic.com</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/positionmusic/">https://www.instagram.com/positionmusic/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/PositionMusic/">https://www.facebook.com/PositionMusic/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/PositionMusic">https://twitter.com/PositionMusic</a><br /><br />To license songs from Position Music: <a rel="nofollow" target="blank" href="http://smarturl.it/PM_License">http://smarturl.it/PM_License</a><br /><br />Official Lyrics:<br />Get Together<br /><br />Woke up, still got shoes on<br />My keys, oh did I lose ‘em<br />New friends, better introducer ‘em<br /><br />Last night, we got turbo<br />Turned up, till we got vertigo<br />We make the whole world better<br />This is what happens when we get together<br /><br />We run, run, run it’s what we do<br />We’ll chase the sun and touch the moon<br />It’s always magic here with you<br />We make the whole world better<br />This is what happens when we get together<br /><br />You slept, out on the pool chair<br />Big mess, no cash, don’t care<br />Just living like drop-top millionaires<br /><br />We out, headed to the beach man<br />Sun’s up, vibing on the weekend<br />We make the whole world better<br />This is what happens when we get together<br /><br />We run, run, run it’s what we do<br />We’ll chase the sun and touch the moon<br />It’s always magic here with you<br />We make the whole world better<br />This is what happens when we get together<br /><br />Pink lemonade limousine dream<br />Wake up in a boulevard junkyard scene<br />Feelin’ like De Niro if you know what I mean<br />See my picture on the cover of your favorite magazine<br /><br />Still got it feeling Beverly Hills<br />And Sunset Strip always give me chills<br />I never get tired o’ that West Cost weather<br />Cause<br />This is what happens<br />This is what happens<br />This is what happens when we get together<br /><br />We run, run, run it’s what we do<br />We’ll chase the sun and touch the moon<br />It’s always magic here with you<br />We make the whole world better<br />This is what happens when we get together<br /><br />#PositionMusic #DudePerfect{% endraw %}
