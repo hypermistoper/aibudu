@@ -1,0 +1,15 @@
+---
+title: "Missing front teeth? Can't afford implants? This is affordable!"
+image: "https:\/\/i.ytimg.com\/vi\/ErYKJ7ERcaQ\/hqdefault.jpg"
+vid_id: "ErYKJ7ERcaQ"
+categories: "Science-Technology"
+tags: ["sunil richardson","Dr sunil richardson","richardson hospital"]
+date: "2022-05-02T04:25:37+03:00"
+vid_date: "2020-11-10T08:34:36Z"
+duration: "PT3M48S"
+viewcount: "43205"
+likeCount: "354"
+dislikeCount: ""
+channel: "Richardsons Face Hospitals"
+---
+{% raw %}High Quality Surgical videos and uncut stories  ▶ <a rel="nofollow" target="blank" href="https://surgeoncut.com">https://surgeoncut.com</a><br /><br />Our Dental surgeons have done a great job, watch how this guy got his missing tooths back caused by trauma <br /><br />State of the art facial plastic surgical procedure for all ages @ Richardsons <br />Over 16000 successfully completed surgeries in the last decade and a half.<br /><br />How do we take an appointment? <br /><br />Coming over for a personal consultation with our maxillofacial surgeon, Dr. Sunil Richardson is the best option. We are located physically near the southernmost tip of India, a town named Nagercoil near Kanyakumari.<br />However, we have other options for patients from far and wide, who can’t travel for a direct physical consult.<br />The pictures can be sent to our What’s App number: +919443182860<br />Or emailed to drsunilrichardson@hotmail.com and appointment asked or advice sought.<br /><br />We are also on most of the social media platforms : <br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/drsunilrichardson/">https://www.instagram.com/drsunilrichardson/</a><br />Twitter : <a rel="nofollow" target="blank" href="https://twitter.com/facesurgeon1">https://twitter.com/facesurgeon1</a> <br />Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/facesurgeon.in/">https://www.facebook.com/facesurgeon.in/</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://in.pinterest.com/richardsonshospital/">https://in.pinterest.com/richardsonshospital/</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/dr-sunil-richardson/">https://www.linkedin.com/in/dr-sunil-richardson/</a><br />Tumblr: <a rel="nofollow" target="blank" href="https://www.tumblr.com/blog/richardsonshospital">https://www.tumblr.com/blog/richardsonshospital</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC65ToDeBHrE1cSlLnuF1HgA?view_as=subscriber">https://www.youtube.com/channel/UC65ToDeBHrE1cSlLnuF1HgA?view_as=subscriber</a><br /><br />We also have a few websites...<br />Please visit them to get an idea about the overall work we do... in different locations.<br /><a rel="nofollow" target="blank" href="http://www.facesurgeon.in/">http://www.facesurgeon.in/</a><br />www.facesurgeon.org (medical/dental tourism )<br /><a rel="nofollow" target="blank" href="http://www.drsunilrichardson.com/arabic/(">http://www.drsunilrichardson.com/arabic/(</a> Muscat, Oman){% endraw %}
