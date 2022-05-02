@@ -1,0 +1,15 @@
+---
+title: "Gold and Silver's NEW price WAR (Current Update) 🌈"
+image: "https:\/\/i.ytimg.com\/vi\/KUCq5EztjxE\/hqdefault.jpg"
+vid_id: "KUCq5EztjxE"
+categories: "Education"
+tags: ["Silver's","price","(Current"]
+date: "2022-05-02T13:36:18+03:00"
+vid_date: "2022-04-30T15:30:28Z"
+duration: "PT9M52S"
+viewcount: "3546"
+likeCount: "269"
+dislikeCount: ""
+channel: "Rons Basement"
+---
+{% raw %}Multiple major news stories this week affecting the price of gold, silver and the precious metals mining stocks, when will the multiple supportive factors come together and propel the price of gold over $2,500?<br /><br />Live Stream every TUESDAY at 10am CST<br />Join the FUN in the BASEMENT<br />Everyone WELCOME<br /><br />Follow me on TWITTER: RonsBasement<br /><br />Informational purposes only. Do not buy or sell anything, make any type of investment decision, adopt a puppy, get engaged or do anything based upon the information I share with you.<br /><br />Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.<br /><br />~Theodore Rubin<br /><br />I have many sources of information, amongst which are the voices in my head.<br /><br />My current portfolio:<br />EQX, FSM, FFMGF, BBBXF, USAS, TSRMF, FSXLF, KGC, GOLD in order of highest to lowest position size.<br /><br />ALSO hold positions in:<br />MMM, NOK<br /><br />Equinox Gold EQX<br />Fortuna Silver FSM<br />First Mining Gold FFMGF<br />Brixton Metals BBBXF<br />America's Gold &amp; Silver USAS<br />Fosterville South Exploration FSXLF<br />Treasury Metals TSRMF<br />Kinross Gold KGC<br />Barrick Gold GOLD<br />Hecla HL<br />First Magestic AG<br />Newmont NEM<br />Agnico Eagle AEM<br />Arizona Metals AZMCF<br />GDX<br />GDXJ<br />HUI Index<br />NUGT<br />JNUG<br />Wall Street Silver<br />Nasdaq<br />Stock market<br />Russel 2000<br />Dow Jones<br /><br />I follow Rick Rule, Keith Neumeyer, Michael Gentile, Eric  Sprott, Larry Lepard, Kitco, Stansberry, Brent Cooke, Peter Grandich, David Hunter, Daniela Cambone, John Feneck, Bill Powers, Kitco, Stansberry Research, Rafi Farber, Charles Nenner, Greg Hunter,  Goldman Sachs, Tucker Carlson, Joe Rogan, Peter Schiff, Andy Schectman, Michael Oliver, Kai Hoffman, Steven Van Metre, Jim Rickards, Russel Brand, Gerald Celente, Ed Steer, Ron Paul, J Bravo, Michael Pento, Gregory Mannarino, Lyn Alden, Heresy Financial, Sorelle Amore, I LOVE PROSPERITY, Gareth Soloway, Graham Stephan, Parker Schnabel, <br /><br />Gold stocks, Gold mining, Investing, precious metals, Silver Mines, Silver Mining<br />Silver Stocks Rick Rule<br />Silver stocks to buy<br />Silver stocks Canada<br />Gold Silver stocks<br />Stock market today<br />Gold mining stocks 2022<br />Junior Gold Mining stocks<br />Investing gold coins<br />Gold and silver prices<br />Stock market crash<br />Inflation, hyperinflation<br />Uranium, uranium stocks, uranium stocks to buy<br />Oil, oil stocks, oil stocks to buy<br />Precious metals investing<br />Gold Rush<br />Gold investing for beginners<br /><br />Reddit Wallstreetsilver<br /><br />Music: The Upper Bottom Gang<br />Featuring Mark Ryan{% endraw %}
