@@ -1,0 +1,15 @@
+---
+title: "Battlegrounds: RVCA Training Center | UFC Connected"
+image: "https:\/\/i.ytimg.com\/vi\/Dpa2vpYvDTM\/hqdefault.jpg"
+vid_id: "Dpa2vpYvDTM"
+categories: "Sports"
+tags: ["ufc","mma","ultimate fighting championship"]
+date: "2022-05-02T22:26:48+03:00"
+vid_date: "2022-04-29T20:30:00Z"
+duration: "PT8M17S"
+viewcount: "33402"
+likeCount: "849"
+dislikeCount: ""
+channel: "UFC - Ultimate Fighting Championship"
+---
+{% raw %}From UFC Connected, we discover the history of the famed RVCA gym in Costa Mesa, California, which has produced top UFC talent such as BJ Penn, Michael Bisping, Marlon Vera and Mackenzie Dern, all under the guidance of lead man Jason Parillo. Watch the full episode: <a rel="nofollow" target="blank" href="https://youtu.be/W1kq1btTXsY">https://youtu.be/W1kq1btTXsY</a><br /><br />Subscribe to get all the latest UFC content: <a rel="nofollow" target="blank" href="http://bit.ly/2uJRzRR">http://bit.ly/2uJRzRR</a><br /><br />Experience UFC live with UFC FIGHT PASS, the digital subscription service of the UFC. Visit <a rel="nofollow" target="blank" href="https://ufcfightpass.com/">https://ufcfightpass.com/</a><br /><br />To order UFC Pay-Per-Views on ESPN+, visit <a rel="nofollow" target="blank" href="https://bit.ly/2vNIBE8">https://bit.ly/2vNIBE8</a> (U.S. only)<br /><br />To order UFC Pay-Per-Views, visit <a rel="nofollow" target="blank" href="http://welcome.ufcfightpass.com/#PPV">http://welcome.ufcfightpass.com/#PPV</a> (Non U.S.)<br /><br />👉 Shop official UFC Gear, visit <a rel="nofollow" target="blank" href="https://ufcstore.com">https://ufcstore.com</a><br />👉 Shop official UFC Memorabilia, visit <a rel="nofollow" target="blank" href="https://ufccollectibles.com">https://ufccollectibles.com</a><br />👉 Shop official UFC VIP Live Event Experiences, visit <a rel="nofollow" target="blank" href="https://bit.ly/UFCVIPExperience">https://bit.ly/UFCVIPExperience</a><br /><br />Connect with UFC online and on Social:<br />🔴 Website: <a rel="nofollow" target="blank" href="http://www.ufc.com">http://www.ufc.com</a><br />🔵 Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/ufc">http://www.twitter.com/ufc</a><br />🔵 Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/ufc">http://www.facebook.com/ufc</a><br />🔴 Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/ufc">http://www.instagram.com/ufc</a><br />🟡 Snapchat: UFC<br />🟣 Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/ufc">https://www.twitch.tv/ufc</a><br /><br />Connect with UFC FIGHT PASS on Social:<br />🔵 Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/ufcfightpass">http://www.twitter.com/ufcfightpass</a><br />🔵 Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/ufcfightpass">http://www.facebook.com/ufcfightpass</a><br />🔴 Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/ufcfightpass">http://www.instagram.com/ufcfightpass</a><br /><br />#UFC #UFCCONNECTED{% endraw %}
