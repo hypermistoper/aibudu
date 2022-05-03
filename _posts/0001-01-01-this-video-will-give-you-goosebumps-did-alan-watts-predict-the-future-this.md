@@ -1,0 +1,15 @@
+---
+title: "This Video Will Give You Goosebumps - Did Alan Watts Predict The Future?"
+image: "https:\/\/i.ytimg.com\/vi\/Oxt-OzpDMm0\/hqdefault.jpg"
+vid_id: "Oxt-OzpDMm0"
+categories: "Education"
+tags: ["alan watts","alan","watts"]
+date: "2022-05-03T22:35:23+03:00"
+vid_date: "2022-03-01T02:00:07Z"
+duration: "PT10M17S"
+viewcount: "700380"
+likeCount: "19454"
+dislikeCount: ""
+channel: "T&H - Inspiration & Motivation"
+---
+{% raw %}This prediction of the future by Alan Watts will leave you speechless. <br />Original Audio sourced from: “Alan Watts - The Future of Communications Pt. 3” Follow T&amp;H for thought provoking videos. <br /><br />“Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe.”<br />– Alan Watts. (1915 – 1973)<br /><br />#AlanWatts #Goosebumps #TandHInspiration <br /><br />►Follow the Alan Watts Organization:<br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/alanwattsproject">https://www.youtube.com/c/alanwattsproject</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/alanwattsofficial">https://www.facebook.com/alanwattsofficial</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/alanwattsorg/">https://www.instagram.com/alanwattsorg/</a><br /><br />Speech courtesy of alanwatts.org<br /><br />Licensed from <a rel="nofollow" target="blank" href="https://mindsetdrm.com">https://mindsetdrm.com</a><br /><br />►Follow T&amp;H:<br />Mindset App: <a rel="nofollow" target="blank" href="https://link.mindsetapp.com/THMotivation">https://link.mindsetapp.com/THMotivation</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/tandhinspiration/">https://www.instagram.com/tandhinspiration/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/THinspirationMotivation/">https://www.facebook.com/THinspirationMotivation/</a><br />Podcast: <a rel="nofollow" target="blank" href="https://linktr.ee/tandhinspiration">https://linktr.ee/tandhinspiration</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/tradgedyandhope">https://www.youtube.com/user/tradgedyandhope</a><br /><br />T&amp;H Inspiration is on a mission to share inspiring wisdom. The goal is to have you pause, think, and reflect. Many of our videos revolve around the extraordinary teachings of Alan Watts that we produce with permission from the Alan Watts Electronic University.<br /><br />T&amp;H also films and releases original interviews with iconic people who have experienced successes, while also persevering through life's highs and lows. We look forward to sharing more of these perspectives and insights. <br /><br />Our hope with these videos is to push your thinking. As Alan Watts said “No one is more dangerously insane than one who is sane all the time: he is like a steel bridge without flexibility, and the order of his life is rigid and brittle.” – Alan Watts.{% endraw %}
