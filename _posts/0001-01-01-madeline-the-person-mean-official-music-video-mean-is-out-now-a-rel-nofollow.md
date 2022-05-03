@@ -1,0 +1,15 @@
+---
+title: "Madeline the Person - MEAN! (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/8Rp-K_DfZl8\/hqdefault.jpg"
+vid_id: "8Rp-K_DfZl8"
+categories: "Music"
+tags: ["madeline the person","maddy estelle","as a child"]
+date: "2022-05-03T05:51:30+03:00"
+vid_date: "2022-04-29T04:00:10Z"
+duration: "PT2M37S"
+viewcount: "121786"
+likeCount: "3436"
+dislikeCount: ""
+channel: "Madeline The Person"
+---
+{% raw %}MEAN IS OUT NOW!!!!!♥️🐸🦄🌈   <a rel="nofollow" target="blank" href="https://madelinetheperson.lnk.to/mean">https://madelinetheperson.lnk.to/mean</a><br /><br />Follow Madeline the Person:<br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@madelinetheperson">https://www.tiktok.com/@madelinetheperson</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/madelinetheperson">https://www.instagram.com/madelinetheperson</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/madelinetheperson">https://www.facebook.com/madelinetheperson</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/thepersonhuman">https://twitter.com/thepersonhuman</a><br /><br />Credits:<br />Director: Tess Lafia @__tesslafia<br />Producer: Eric Barrett / Mirror Films @ebmirror<br />DP: Noah Deats @_noahdeats<br />1st AC: Billy Briggs @billyonairee<br />1st AD: Ericka Lavin @lavinsilla<br />Make up: Ryan Styne @hesitantfailien<br />Hair: Caitlin Wronski @catwron<br />Production Designer: Cleo Camp @cleojcamp<br />Set Dresser: Cara Friedman<br />Director’s Rep: Randi Wilens / RW Media @randirwmedia<br />Video Commissioner: Devin Sarno @devinsarno<br />PA: Derek Nguyen<br />PA: Devon Lewis<br /><br />Cast:<br />Gabby Mendez<br />Ellie Marie Waters<br />Sophie Lachman<br />David Cole<br />Averie Groleau-Cmelo<br />Cal Kevany<br />Holden Miller<br />Alexa Eskin<br />Camerona Young<br />Thea Saccoliti<br />Luisa Betancur<br />Hannah Roy<br />Daphe Herzfeld<br />Sydney McCarthy<br />Ryan Nguyen<br /><br />Lyrics:<br />You said I take too much space, half an inch from my face, and you meant it<br />You grabbed my hands and you smiled as you kicked me right out my own sentence <br /><br />I'm glad you got the chance to be honest, I’m happy for you, there goes years of my progress <br />You said I take too much space, now I know what you meant when you said it<br /><br />One thing I like about me is that I’m nothing like you and I never will be<br />Someone who loves how it sounds when they speak, you’re not telling the truth <br />No you’re just being mean, you’re just being meeeaaaannnnnnn you’re just being meeeaaaaannnn<br /><br />I went outside just to cry, had this look in your eye like you won<br />Oh but I can’t be surprised, you care less the more damage you’ve done<br /><br />I'm glad you’re working through all your issues, projecting on me will never be the way to fix you <br />You said I take too much space and right now I can’t shake how it stung<br /><br />[Chorus]<br /><br />#MadelinethePerson #MEAN{% endraw %}
