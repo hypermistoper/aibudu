@@ -1,0 +1,15 @@
+---
+title: "An intro to contemporary Cretan music | Stelios Petrakis & Giorgos Manolakis | TEDxHeraklion"
+image: "https:\/\/i.ytimg.com\/vi\/ymv4rb3lPeI\/hqdefault.jpg"
+vid_id: "ymv4rb3lPeI"
+categories: "Nonprofits-Activism"
+tags: ["Greek","tedx","ted x"]
+date: "2022-05-03T22:51:39+03:00"
+vid_date: "2014-08-20T15:53:18Z"
+duration: "PT20M59S"
+viewcount: "160144"
+likeCount: "1667"
+dislikeCount: ""
+channel: "TEDx Talks"
+---
+{% raw %}This talk was given at a local TEDx event, produced independently of the TED Conferences. The new generation of Cretan music, one of the most influential music waves in the Mediterranean.  <br /><br />--<br /><br />H νέα γενιά της Κρητικής μουσικής παράδοσης, που χαρακτηρίζεται από τις πιό σημαντικές μουσικές της Μεσογείου. Απολάυστε τους μέχρι τέλους.<br /><br /><br /><br /><br /><br />Stelios Petrakis is one of the is the most popular representative of the new generation of Cretan music. He studied the lyra and also became interested in related musical traditions (Anatolian folk music, classical  secular and religious music of Istanbul, traditional Greek music) and instruments (saz, Politiko and Cretan laouto, bulgari, Politiki lyra).<br /><br />Giorgos Manolakis was born in Heraklion, Crete in 1982. Today Giorgos is considered to be one of the most important virtuosos of his generation on lyra, laoute &amp; bouzouki. He has collaborated with many musicians and composers such as: Ross Daly, Hainides, Naseer Shamma, Psarantonis, Sokratis Malamas, Zohar Fresco <br /><br />--<br /><br />Ο Στέλιος Πετράκης είναι ο πλέον δημοφιλής εκπρόσωπος της νέας γενιάς της Κρητικής μουσικής - και όχι μόνο. Παράλληλα με τη λύρα στρέφεται και στη μελέτη συγγενικών μουσικών παραδόσεων: λαϊκή μουσική της Ανατολίας, κλασσική κοσμική και θρησκευτική μουσική της Πόλης, παραδοσιακή μουσική του Ελλαδικού χώρου, αλλά και μουσικά όργανα όπως το saz και το βιολί.<br /><br /><br /><br />Γιωργος Μανωλάκης: Δεξιοτέχνης στο λαούτο και το μπουζούκι, μυήθηκε σε αυτά από μικρή ηλικία κοντά στον πατέρα του Κώστα Μανωλάκη, ενώ μαθήτευσε κοντά στους δασκάλους του, Ανδρέα Στεφανάκη και Ιωσήφ Κέρπελη. Οι μουσικές του δεξιότητες αναδεικνύονται μέσα από τα διαφορετικά μουσικά όργανα που επιλέγει, όπως το μαντολίνο, ο τζουράς, ο μπαγλαμάς και η κιθάρα. Έχει συνεργαστεί με πολλούς και σημαντικούς καλλιτέχνες, όπως οι Χαϊνηδες, Naseer Shamma, Ψαραντώνης, Σωκράτης Μάλαμας, Zohar Fresco, καθώς επίσης και με το Μουσικό Εργαστήρι Λαβύρινθος και τον Ross Daly.<br /><br /><br /><br />About TEDx, x = independently organized event In the spirit of ideas worth spreading, TEDx is a program of local, self-organized events that bring people together to share a TED-like experience. At a TEDx event, TEDTalks video and live speakers combine to spark deep discussion and connection in a small group. These local, self-organized events are branded TEDx, where x = independently organized TED event. The TED Conference provides general guidance for the TEDx program, but individual TEDx events are self-organized.* (*Subject to certain rules and regulations){% endraw %}
