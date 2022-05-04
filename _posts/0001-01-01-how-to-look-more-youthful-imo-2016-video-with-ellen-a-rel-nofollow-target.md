@@ -1,0 +1,15 @@
+---
+title: "How To Look More Youthful (IMO)"
+image: "https:\/\/i.ytimg.com\/vi\/e-_y0xhqmY0\/hqdefault.jpg"
+vid_id: "e-_y0xhqmY0"
+categories: "Education"
+tags: ["Youthful","(IMO)"]
+date: "2022-05-04T22:09:32+03:00"
+vid_date: "2021-01-18T20:54:47Z"
+duration: "PT31M10S"
+viewcount: "1912"
+likeCount: "45"
+dislikeCount: ""
+channel: "cinna vision"
+---
+{% raw %}2016 Video with Ellen: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ZBzdVGGgxZ8">https://www.youtube.com/watch?v=ZBzdVGGgxZ8</a><br />Gucci guilty: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=VRC-Q4PUQXs">https://www.youtube.com/watch?v=VRC-Q4PUQXs</a><br />Alleged diet: <a rel="nofollow" target="blank" href="https://fitnessclone.com/jared-leto-diet-workout">https://fitnessclone.com/jared-leto-diet-workout</a><br />BBC clip where he says it's only water: <a rel="nofollow" target="blank" href="https://twitter.com/bbcr1/status/978940014171222016?lang=en">https://twitter.com/bbcr1/status/978940014171222016?lang=en</a><br />Interview with GQ: <a rel="nofollow" target="blank" href="https://www.gq.com.au/entertainment/celebrity/jared-leto-on-his-grooming-regime-and-working-with-gucci/news-story/2e37282481f734b425e700be74b7d763">https://www.gq.com.au/entertainment/celebrity/jared-leto-on-his-grooming-regime-and-working-with-gucci/news-story/2e37282481f734b425e700be74b7d763</a><br />Article about his haircare: <a rel="nofollow" target="blank" href="https://hellogiggles.com/hair/jared-leto-reveals-secret-enviable-hair-need-try/">https://hellogiggles.com/hair/jared-leto-reveals-secret-enviable-hair-need-try/</a><br />Beauty products (behind-the-scenes photo): <a rel="nofollow" target="blank" href="https://la-leto.tumblr.com/post/151024877951/i-always-figured-him-for-a-la-mer-devotee-you">https://la-leto.tumblr.com/post/151024877951/i-always-figured-him-for-a-la-mer-devotee-you</a> <br /><br /><br />► Oreo, Blackberry, and Mr. Clinton's Amazon wishlist: <a rel="nofollow" target="blank" href="https://www.amazon.com/hz/wishlist/ls/2YC1L66N7T5BC?&amp;sort=default">https://www.amazon.com/hz/wishlist/ls/2YC1L66N7T5BC?&amp;sort=default</a> <br /><br />► The $2 catnip toy the cats ADORE: <a rel="nofollow" target="blank" href="https://amzn.to/3e7VU2Z">https://amzn.to/3e7VU2Z</a><br />- - Disclaimer: If you would want to support my channel for FREE and already make purchases on Amazon, if you click this link before checking out, even if you do not buy the item in the link, I will earn a small commission from your total purchase. It will not cost you anything extra!<br /><br />► Stay safe! This is the best fitting reusable face mask I've used. It hugs one's face, provides great coverage, and doesn't slip! : <a rel="nofollow" target="blank" href="https://www.etsy.com/shop/MaiArtOfficial">https://www.etsy.com/shop/MaiArtOfficial</a> <br />- - I do not earn any commission from recommending Andrea's handmade masks or from any sales. I am recommending her uniquely designed masks because I have come across so many dud masks (wasted money) that fall down when I speak, slip right off my ears, or are ill-fitting. - -{% endraw %}
