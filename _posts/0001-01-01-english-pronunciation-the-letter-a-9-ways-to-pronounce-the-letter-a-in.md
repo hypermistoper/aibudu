@@ -1,0 +1,15 @@
+---
+title: "English Pronunciation  |   The Letter 'A'   |  9 Ways to Pronounce the Letter A"
+image: "https:\/\/i.ytimg.com\/vi\/LjrhyKV6ALQ\/hqdefault.jpg"
+vid_id: "LjrhyKV6ALQ"
+categories: "Education"
+tags: ["english speaking practice","sounds of the letter a in english","How to pronounce A in English"]
+date: "2022-05-04T08:35:40+03:00"
+vid_date: "2021-10-19T10:33:33Z"
+duration: "PT17M37S"
+viewcount: "316042"
+likeCount: "12283"
+dislikeCount: ""
+channel: "Easy ENGLISH with James"
+---
+{% raw %}In this English Pronunciation lesson, I'm going to to help you learn how to pronounce the letter A in English. In this lesson there are over NINE ways to pronounce the letter A. 7 common ways and 2 less common or exceptional ways to pronounce the letter A. <br /><br />The Letter A in English is a VOWEL letter and is pronounced in the alphabet as /ei/. <br /><br />The letter A can also be pronounced in English with any of the following sounds....<br />As /æ/ in Cat, Hat, Actually, Exactly <br />As /eə/ in Share, Care, Hare<br />As /ɑː/ in Father, Rather, Car and Bar<br />As /eɪ/ in Pay, Stay, Way, Able, Table<br />As /ɔ:/ in Hall, Tall, Fall<br />As /ɒ/ What, Want, Wallet, Was<br />As /ə/ a, an, Amazing, About, Banana<br />As /ɪ/ in Private, Climate<br />As /ɪ/ or /ə/ Legitimate<br />As /e/ in Many, Any<br /><br />There are A LOT of rules for how A should be pronounced and also LOTS of exceptions. So my advice is to immerse yourself as much as possible into the language and instead focus on getting a 'feel' for what the A sounds like in certain words. You will be very surprised because after a short time you will start to be able to 'guess' and 'feel' which sound is correct, just like a native speaker of English can! <br /><br />00:00 Introduction<br />00:55 A = æ<br />01:56 A = eə<br />03:20 A = ɑː<br />04:50 A = ɔ:<br />06:18 A = eɪ<br />07:36 A = ɪ<br />09:03 A = ə<br />11:05 Practice Sentences<br />12:42 Bonus Secrets and Summary<br />13:05 A = e<br />13:49 Data vs Data<br />14:50 Silent A<br />16:07 A = ɒ<br /><br />If you haven't subscribed already, you can do so here....(If you subscribe you won't miss any of my future lessons!) <br /><br />You can also find me on.....<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/EasyEnglishwithJamesUK">https://www.facebook.com/EasyEnglishwithJamesUK</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/easyenglishwithjamesuk/">https://www.instagram.com/easyenglishwithjamesuk/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/easyenglishwit1">https://twitter.com/easyenglishwit1</a><br /><br />These English videos take A LONG TIME to make and are hard work! So if you are feeling kind.....Would you like to Buy Me a Coffee to help me with my work in making these lessons for you? You can do that here...<br /><a rel="nofollow" target="blank" href="https://ko-fi.com/easyenglishwithjames">https://ko-fi.com/easyenglishwithjames</a>{% endraw %}
