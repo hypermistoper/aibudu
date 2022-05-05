@@ -1,0 +1,15 @@
+---
+title: "Why Does Metal Gear Rising Keep Getting More Popular?"
+image: "https:\/\/i.ytimg.com\/vi\/rVzSHVS-CT0\/hqdefault.jpg"
+vid_id: "rVzSHVS-CT0"
+categories: "Gaming"
+tags: ["jacob gellar","revengeance"]
+date: "2022-05-05T17:48:00+03:00"
+vid_date: "2022-05-02T15:21:03Z"
+duration: "PT28M1S"
+viewcount: "429097"
+likeCount: "42880"
+dislikeCount: ""
+channel: "Jacob Geller"
+---
+{% raw %}And besides, this isn’t my sword. | Get Nebula and CuriosityStream for less than $15 a year at <a rel="nofollow" target="blank" href="https://curiositystream.com/jacobgeller">https://curiositystream.com/jacobgeller</a><br /><br />Nebula Companion Video: <a rel="nofollow" target="blank" href="https://nebula.app/videos/jacob-geller-revengeance-never-ends-a-conversation-with-a-metal-gear-scholar/">https://nebula.app/videos/jacob-geller-revengeance-never-ends-a-conversation-with-a-metal-gear-scholar/</a><br /><br />Support me: <a rel="nofollow" target="blank" href="https://www.patreon.com/JacobGeller">https://www.patreon.com/JacobGeller</a><br />Follow me at: <a rel="nofollow" target="blank" href="https://twitter.com/yacobg42">https://twitter.com/yacobg42</a><br />Merch: <a rel="nofollow" target="blank" href="https://store.nebula.app/collections/jacob-geller">https://store.nebula.app/collections/jacob-geller</a><br /><br />COMBO MAD - Time of Devil Hunters by Donguri990: <a rel="nofollow" target="blank" href="https://youtu.be/FTRbMX-31bs">https://youtu.be/FTRbMX-31bs</a><br />The history of the most popular memes (2004-2019) by Abacaba: <a rel="nofollow" target="blank" href="https://youtu.be/k6vHHxWWT0Y">https://youtu.be/k6vHHxWWT0Y</a><br />The Truth Behind RISING (Revengeance Documentary): <a rel="nofollow" target="blank" href="https://youtu.be/gV1BMUg4NsA">https://youtu.be/gV1BMUg4NsA</a><br />Rules of Nature (Book) by Harper Jay MacIntyre: <a rel="nofollow" target="blank" href="https://www.google.com/books/edition/Rules_of_Nature/0MKkDAAAQBAJ?hl=en">https://www.google.com/books/edition/Rules_of_Nature/0MKkDAAAQBAJ?hl=en</a><br /><br />Visual Media Used: Metal Gear Rising: Revengeance, Metal Gear Solid 2, Metal Gear Solid 4, Dead Space 2, Bayonetta, The Wonderful 101, Breath of the Wild, Call of Duty 4, Elden Ring, Devil May Cry 4, Doom Eternal, INSIDE, Kena Bridge of Spirits, Hades, Mario Tennis Ultra Smash, OlliOlli 2, Sants Row: Gat Out of Hell, SteamWorld Heist, Resident Evil 4<br /><br />Music Used (Chronologically): A Great Spirit Lies in Wait (Okami), It Has to Be This Way (MGR), Susano’s Training (Okami), Collective Consciousness (MGR), Rising Up (Streets of Rage 4), Pleasure of Tension (Snatcher), Rising Up (Streets of Rage 4), The Gates of Hell (Bayonetta), N.M.H. (No More Heroes), Rules of Nature (MGR), Oklahoma (Oklahoma! karaoke), Theme of Love (Super Smash Brothers Brawl), Collective Consciousness (MGR), Beautiful Mirage, The Vision Fades (Metal Gear Solid 5), Metal Gear Saga (Metal Gear Solid 4), Rules of Nature (MGR), It Has to Be This Way (MGR)<br /><br />Thumbnail Credit: <a rel="nofollow" target="blank" href="https://twitter.com/HotCyder">https://twitter.com/HotCyder</a>{% endraw %}
