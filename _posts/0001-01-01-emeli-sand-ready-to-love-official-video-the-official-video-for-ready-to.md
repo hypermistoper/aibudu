@@ -1,0 +1,15 @@
+---
+title: "Emeli Sandé - Ready To Love (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/5I5lItq5LYg\/hqdefault.jpg"
+vid_id: "5I5lItq5LYg"
+categories: "Music"
+tags: ["Emeli Sandé","Emeli Sande","Emily Sande"]
+date: "2022-05-05T14:22:34+03:00"
+vid_date: "2022-05-04T18:00:08Z"
+duration: "PT3M6S"
+viewcount: "17995"
+likeCount: "1739"
+dislikeCount: ""
+channel: "EmeliSandeVEVO"
+---
+{% raw %}The official video for ‘Ready To Love’ by Emeli Sandé<br />From the new album ‘Let’s Say For Instance’ out 6th May 2022<br />– pre-order now <a rel="nofollow" target="blank" href="https://EmeliSande.lnk.to/LSFI">https://EmeliSande.lnk.to/LSFI</a><br /><br />Director: Fin Frew<br />DOP: Fin Frew<br />Editor: Shea McChrystal<br />Hair: Didier<br />Makeup: Catherine Kaderi<br />Special thanks to Yoana Karemova, Jenny McKenzie and Natalie Meadham<br /><br />Follow Emeli Sandé:<br />Website: <a rel="nofollow" target="blank" href="https://EmeliSande.lnk.to/Website">https://EmeliSande.lnk.to/Website</a><br />Instagram: <a rel="nofollow" target="blank" href="https://EmeliSande.lnk.to/Instagram">https://EmeliSande.lnk.to/Instagram</a><br />Facebook: <a rel="nofollow" target="blank" href="https://EmeliSande.lnk.to/Facebook">https://EmeliSande.lnk.to/Facebook</a><br />Twitter: <a rel="nofollow" target="blank" href="https://EmeliSande.lnk.to/Twitter">https://EmeliSande.lnk.to/Twitter</a><br />Listen: <a rel="nofollow" target="blank" href="https://EmeliSande.lnk.to/Listen">https://EmeliSande.lnk.to/Listen</a><br /><br />Lyrics:<br />I kept myself to myself<br />I put my heart on the shelf<br />Didn’t know I needed help<br />Until you came along<br />I was just going through life<br />No one to kiss me goodnight<br />Lost all I hope I’d ever find the one<br />I was drifting baby I was scared<br />But now I’ve finally found somebody who cares<br />I’m ready to love again<br />I’m ready to love again<br />You give me strength to be vulnerable<br />I want the whole world to know<br />I’m ready to love again<br />Give you my body and soul<br />When I’m with you I am home<br />I drop my guard and lose all control<br />The sun is starting to shine<br />You bring new light to my life<br />You got me feeling so wonderful<br />And now I’m floating so high in the air<br />But I’m not afraid to fall cos you will be there<br />I’m ready to love again<br />I’m ready to love again<br />You give me strength to be vulnerable<br />I want the whole world to know<br />I’m ready to love again<br />Again<br />(I’m ready to,<br />I’m ready to)<br />You give me strength to be vulnerable<br />I want the whole world to know<br />I’m ready to love again<br />Now that you’ve given me a taste of your love<br />I just can’t get enough<br />I’m not holding back<br />I’m not holding back<br />I’m ready to love again<br />I’m ready to love again<br />You give me strength to be vulnerable<br />I want the whole world to know<br />I’m ready to love<br />Again<br />Again<br />Again<br /><br /><a rel="nofollow" target="blank" href="http://vevo.ly/7quX4T">http://vevo.ly/7quX4T</a>{% endraw %}
