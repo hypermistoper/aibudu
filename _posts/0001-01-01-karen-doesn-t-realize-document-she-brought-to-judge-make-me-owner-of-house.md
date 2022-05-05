@@ -1,0 +1,15 @@
+---
+title: "Karen Doesn't Realize document she brought to Judge Make Me Owner of House and Land r\/ProRevenge"
+image: "https:\/\/i.ytimg.com\/vi\/CqTPss4MLRc\/hqdefault.jpg"
+vid_id: "CqTPss4MLRc"
+categories: "Comedy"
+tags: ["r\/ProRevenge","Karen","Doesn't"]
+date: "2022-05-05T17:02:56+03:00"
+vid_date: "2022-05-05T13:15:01Z"
+duration: "PT11M34S"
+viewcount: "2801"
+likeCount: "314"
+dislikeCount: ""
+channel: "RedWheel"
+---
+{% raw %}Karen Doesn't Realize document she brought to the Judge Make Me Owner of House and Land r/ProRevenge<br /><br />Hello, <br /><br /><br /><br /><br /><br />👍 Please Subscribe and Leave a Like for Daily Reddit Stories!<br /><br /><br /><br />Our Popular Playlists:<br /><br /><br /><br />r/Entitledparents <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=To9vOPEyaK8&amp;list=PLPfmLkTal6sk-uomnIq_BQgsah7nuuRWI">https://www.youtube.com/watch?v=To9vOPEyaK8&amp;list=PLPfmLkTal6sk-uomnIq_BQgsah7nuuRWI</a><br /><br /><br /><br />r/Prorevenge <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLPfmLkTal6sl9UVDMf8OlN8ndgqN1qcEy">https://www.youtube.com/playlist?list=PLPfmLkTal6sl9UVDMf8OlN8ndgqN1qcEy</a><br /><br /><br /><br />reddit stories <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLPfmLkTal6sk2pCmOuj8Ug9DQBQzMA75T">https://www.youtube.com/playlist?list=PLPfmLkTal6sk2pCmOuj8Ug9DQBQzMA75T</a><br /><br /><br /><br />r/ChoosingBeggars <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLPfmLkTal6snfHr429nCBnAKFXEgWQYQ1">https://www.youtube.com/playlist?list=PLPfmLkTal6snfHr429nCBnAKFXEgWQYQ1</a><br /><br /><br /><br />r/ Tales From Retail <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLPfmLkTal6skxOyRt4xvnjeYUvlX48tO9">https://www.youtube.com/playlist?list=PLPfmLkTal6skxOyRt4xvnjeYUvlX48tO9</a><br /><br /><br /><br />r/Maliciouscompliance <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLPfmLkTal6skagoPdUXFgGcrTlv0KaA_t">https://www.youtube.com/playlist?list=PLPfmLkTal6skagoPdUXFgGcrTlv0KaA_t</a><br /><br /><br /><br />r/IDontWorkHereLady <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLPfmLkTal6smMRK2ZAxLY2H591-L9o4Fs">https://www.youtube.com/playlist?list=PLPfmLkTal6smMRK2ZAxLY2H591-L9o4Fs</a><br /><br /><br /><br />r/Talesfromsecurity <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLPfmLkTal6sn7a-qLCTNACcJM2RKr6UK3">https://www.youtube.com/playlist?list=PLPfmLkTal6sn7a-qLCTNACcJM2RKr6UK3</a><br /><br /><br /><br /><br /><br />This is  YouTube channel RedWheel.<br /><br />I know that the name is terrible,  but what can I do with this :)<br /><br />So on this youtube channel, you can see funny Reddit posts which I could find,<br /><br />also t the best stories with  subreddits such as r/Entitledparents, r/ I Don't Work Here Lady and r/pro revenge.<br /><br />So hope you enjoy and thanks for watching<br /><br />Karen Doesn't Realize document she brought to Judge Make Me Owner of House and Land r/ProRevenge{% endraw %}
