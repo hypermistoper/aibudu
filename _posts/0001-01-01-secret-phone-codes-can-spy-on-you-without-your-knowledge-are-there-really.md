@@ -1,0 +1,15 @@
+---
+title: "Secret phone codes can spy on you without your knowledge!"
+image: "https:\/\/i.ytimg.com\/vi\/F4eMfvpCHF8\/hqdefault.jpg"
+vid_id: "F4eMfvpCHF8"
+categories: "Science-Technology"
+tags: ["liron segev","the techie guy","phone codes"]
+date: "2022-05-05T03:20:25+03:00"
+vid_date: "2021-03-27T11:00:03Z"
+duration: "PT5M25S"
+viewcount: "1237403"
+likeCount: "24685"
+dislikeCount: ""
+channel: "Liron Segev"
+---
+{% raw %}Are there really secret codes on your phone? Are these phone codes dangerous and could someone use these codes to spy on you without your knowledge?<br />This is what we check out today!<br /><br />0:00 secret phone codes<br />0:29 what are the phone secret codes?<br />1:20 Two ways to spy on a phone<br />2:25 USSD call forwarding codes<br /><br />Codes:<br />*#61# - This will show you if your calls are being forwarded when you don’t answer your phone.<br />*#62# - this will forward calls when your phone is unreachable. <br />*#67# - if your phone is busy or you reject a call<br />#787#  - Scam Blocking<br /><br />Is someone tracking you without your knowledge? <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=zy8EZOU2UkA">https://www.youtube.com/watch?v=zy8EZOU2UkA</a><br /><br />T-MOBILE USSD Codes: <a rel="nofollow" target="blank" href="https://www.t-mobile.com/support/plans-features/self-service-short-codes">https://www.t-mobile.com/support/plans-features/self-service-short-codes</a><br />VERIZON USSD Codes: <a rel="nofollow" target="blank" href="https://www.verizon.com/support/pound-star-codes/">https://www.verizon.com/support/pound-star-codes/</a><br />AT&amp;T USSD Codes: <a rel="nofollow" target="blank" href="https://www.att.com/ecms/dam/att/abs/feature_access_codes.pdf">https://www.att.com/ecms/dam/att/abs/feature_access_codes.pdf</a><br /><br />This new phone scam almost got me! BEWARE: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Lv9nrzSUIog">https://www.youtube.com/watch?v=Lv9nrzSUIog</a><br /><br />Here is why you never reveal your IP address: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=uQ9q0NyAY4s">https://www.youtube.com/watch?v=uQ9q0NyAY4s</a><br /><br /><br />SUBSCRIBED YET?<br /><a rel="nofollow" target="blank" href="http://www.youtube.com/user/LironSegev?sub_confirmation=1">http://www.youtube.com/user/LironSegev?sub_confirmation=1</a><br /><br />#TheTechieGuy<br />Need to get faster wifi and faster internet? Is your gaming lagging and your zoom buffering? What is a Mesh WiFi and WiFi 6? <br />I show you all you need to know about faster and better connectivity with the best router settings, wifi optimization, wifi tips and internet bandwidth performance tricks and even boosting speed apps.<br /><br />My name is Liron Segev, aka TheTechieGuy, and I make tech simple for everyone to understand - I answer your technology questions making so you are more productive more efficient, and getting more out of your phones, gadgets,  and apps<br /><br />Liron Segev aka TheTechieGuy<br /><a rel="nofollow" target="blank" href="https://TheTechieGuy.com">https://TheTechieGuy.com</a>{% endraw %}
