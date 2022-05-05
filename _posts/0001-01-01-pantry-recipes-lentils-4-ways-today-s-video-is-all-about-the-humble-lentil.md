@@ -1,0 +1,15 @@
+---
+title: "Pantry Recipes: Lentils, 4 ways."
+image: "https:\/\/i.ytimg.com\/vi\/UVrN1vVfoOY\/hqdefault.jpg"
+vid_id: "UVrN1vVfoOY"
+categories: "Entertainment"
+tags: ["Cook with E","Pantry recipes","Pantry Raid Recipes"]
+date: "2022-05-05T19:47:48+03:00"
+vid_date: "2020-03-22T14:00:09Z"
+duration: "PT10M27S"
+viewcount: "379493"
+likeCount: "12785"
+dislikeCount: ""
+channel: "Ethan Chlebowski"
+---
+{% raw %}Today's video is all about the humble lentil, a protein-packed lens-shaped seed. So whether this your the first bag of lentils or maybe you are all in on lentil futures, I got you because we are making lentils, 4 ways: Red Lentil Dal, Lentil Pilaf, Lentil Soup, and Lentil Hummus<br /><br />► SUPPORT ON PATREON: <a rel="nofollow" target="blank" href="https://www.patreon.com/EthanC">https://www.patreon.com/EthanC</a><br />► RECIPE LINK: <a rel="nofollow" target="blank" href="https://www.ethanchlebowski.com/cooking-techniques-recipes/lentils-dal-tadka-hummus-pilaf-soup">https://www.ethanchlebowski.com/cooking-techniques-recipes/lentils-dal-tadka-hummus-pilaf-soup</a><br />------------------------------------------------------------------------------------------<br />► Connect with me on social:<br /> - Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/echleb/">https://www.instagram.com/echleb/</a><br /> - TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@cookwithe">https://www.tiktok.com/@cookwithe</a><br /> - Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/EthanChleb">https://twitter.com/EthanChleb</a><br />-------------------------------------------------------------------------------------------<br />► CHEAP, but useful Kitchen Gear<br />  - Whetstone for sharpening: <a rel="nofollow" target="blank" href="https://amzn.to/35lvnuv">https://amzn.to/35lvnuv</a><br />  - Scale: <a rel="nofollow" target="blank" href="https://amzn.to/2SMht25">https://amzn.to/2SMht25</a><br />  - 8-inch Chef's knife: <a rel="nofollow" target="blank" href="https://amzn.to/2QLYvWr">https://amzn.to/2QLYvWr</a><br />  - Cast iron: <a rel="nofollow" target="blank" href="https://amzn.to/2tu4Bmo">https://amzn.to/2tu4Bmo</a><br />  - Saucepan: <a rel="nofollow" target="blank" href="https://amzn.to/2tu4Bmo">https://amzn.to/2tu4Bmo</a><br />  - Wood cutting board: <a rel="nofollow" target="blank" href="https://amzn.to/2Qkw1UQ">https://amzn.to/2Qkw1UQ</a><br />  - (NOT cheap) Amazing Pan: <a rel="nofollow" target="blank" href="https://amzn.to/2rW8wYY">https://amzn.to/2rW8wYY</a><br />-------------------------------------------------------------------------------------------<br />MISC. DETAILS<br /> Music: Provided by Epidemic Sound<br /> Filmed on: Sony a6600 &amp; Sony A6400 w/ Sigma 16mm F1.4<br /> Voice recorded on Zoom H4n with lavmic<br /> Edited in: Premiere Pro #Cook #WithMe<br /><br />Affiliate Disclosure:<br />Cook with E is a participant in the Amazon Services LLC Associates Program, an affiliate advertising program designed to provide a means for us to earn fees by linking to Amazon.com and affiliated sites.{% endraw %}
