@@ -1,0 +1,15 @@
+---
+title: "Pick a Card 🔮 Love Reading | Will You Meet Someone By Halloween? Collab With Brook Waldorf! 🔮"
+image: "https:\/\/i.ytimg.com\/vi\/yLvybo77LZk\/hqdefault.jpg"
+vid_id: "yLvybo77LZk"
+categories: "Entertainment"
+tags: ["Pick a card","Charmed Intuition Tarot","Love reading"]
+date: "2022-05-05T09:28:48+03:00"
+vid_date: "2022-05-01T19:20:16Z"
+duration: "PT1H44M17S"
+viewcount: "35955"
+likeCount: "2613"
+dislikeCount: ""
+channel: "Charmed Intuition Tarot"
+---
+{% raw %}#charmedintuitiontarot #tarot #pickacard #psychictarot <br /><br />Welcome to today’s Pick a Card Tarot reading collab with Brook Waldorf! We’re asking if you’ll meet someone by Halloween 2022 💖 Make sure to head over to Brooks video to see if the readings connect and watch her cozy podcast where we relax and chat about all things fall &amp; Halloween <br /><br />Brooks Reading 🎃<br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/5q0b9YezSrA">https://youtu.be/5q0b9YezSrA</a><br /><br />💖 Link to Patreon Page. If you’d like to support the channel <br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/charmedintuition">https://www.patreon.com/charmedintuition</a><br /><br />💖 Phoenix energy does all of my artwork for my channel 🔮 Here is the channel link if you’re curious about artwork for your business 🎨 <br /><br /><a rel="nofollow" target="blank" href="https://youtube.com/c/PhoenixEnergy">https://youtube.com/c/PhoenixEnergy</a><br /><br /><br />🔮 More cozy videos you might enjoy …<br /><br />🌻 Important Message For You! <br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/sL-BDF3g5K8">https://youtu.be/sL-BDF3g5K8</a><br /><br />🔮 The Next 7 Days <br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/d3I5jZc1bdQ">https://youtu.be/d3I5jZc1bdQ</a><br /><br />💖 Decks Used In Today’s Video <br /><br />1. Nightmare Before Christmas Tarot<br />2. Everyday Witch Tarot <br />3. The Dark Mansion Tarot <br />4. Halloween Oracle<br />5. Love Compass Oracle<br />6. Psychic Candy Oracle<br />7. <br />🕰 Timestamps 💝 <br /><br />1) 4:46<br />2) 37:40<br />3) 1:02:47<br /><br />📸instagram - charmedintuitiontarot <br />📌 This is the only social media I have and I do not use it. Please be careful if you receive a message offering personal readings it is not me.<br />I am very behind in Instagram messages as I’m finding it difficult to keep up. I appreciate everybody’s messages although I may not be able to respond/see all of them ❤️<br /><br /><a rel="nofollow" target="blank" href="http://www.instagram.com/charmedintuitiontarot">http://www.instagram.com/charmedintuitiontarot</a><br /><br />📌Note- I am not currently offering personal readings. If someone responds in a comment saying otherwise it is a scam.<br /><br />📖 Disclaimer: Please remember my videos are general readings . This video is meant for entertainment purposes only. Use your own judgment when making any decision and seek guidance from a professional if needed<br /><br />#pickacard #ASMR #tarot #oracle  #lovepickacard{% endraw %}
