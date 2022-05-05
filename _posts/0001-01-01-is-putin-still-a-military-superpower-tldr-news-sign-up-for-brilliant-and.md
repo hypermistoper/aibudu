@@ -1,0 +1,15 @@
+---
+title: "Is Putin Still a Military Superpower? - TLDR News"
+image: "https:\/\/i.ytimg.com\/vi\/mgjqE45ExeU\/hqdefault.jpg"
+vid_id: "mgjqE45ExeU"
+categories: "People-Blogs"
+tags: ["Putin","Still","Military"]
+date: "2022-05-05T23:40:47+03:00"
+vid_date: "2022-05-05T09:30:17Z"
+duration: "PT11M9S"
+viewcount: "286794"
+likeCount: "12123"
+dislikeCount: ""
+channel: "TLDR News EU"
+---
+{% raw %}Sign up for Brilliant (and the first 200 people get 20% off an annual premium subscription): <a rel="nofollow" target="blank" href="http://brilliant.org/tldreu">http://brilliant.org/tldreu</a><br /><br />Before the war in Ukraine, many people thought that Russia was a serious military superpower. However, almost immediately the Russian army underperformed expectations. Which led us to ask... does the Russian army actually suck - and if so, why?<br /><br />💬 Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/tldrnewseu">https://twitter.com/tldrnewseu</a><br />📸 Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/tldrnewseu">http://www.instagram.com/tldrnewseu</a><br />🎞 TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@tldrnews">https://www.tiktok.com/@tldrnews</a><br />🗣 Discord: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/discord/">https://tldrnews.co.uk/discord/</a><br /><br />💡 Got a Topic Suggestion? - <a rel="nofollow" target="blank" href="https://forms.gle/mahEFmsW1yGTNEYXA">https://forms.gle/mahEFmsW1yGTNEYXA</a><br /><br />Support TLDR on Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/tldrnews">http://www.patreon.com/tldrnews</a><br />Donate by PayPal: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/funding">https://tldrnews.co.uk/funding</a><br />TLDR Store: <a rel="nofollow" target="blank" href="https://www.tldrnews.co.uk/store">https://www.tldrnews.co.uk/store</a><br />TLDR TeeSpring Store: <a rel="nofollow" target="blank" href="https://teespring.com/stores/tldr-spring">https://teespring.com/stores/tldr-spring</a><br />Learn About Our Funding: <a rel="nofollow" target="blank" href="https://tldrnews.co.uk/funding">https://tldrnews.co.uk/funding</a><br /><br />TLDR is all about getting you up to date with the news of today, without bias and without filter. We aim to give you the information you need, quickly and simply so that you can make your own decision.<br /><br />TLDR is a completely independent &amp; privately owned media company that's not afraid to tackle the issues we think are most important. The channel is run by just a small group of young people, with us hoping to pass on our enthusiasm for politics to other young people. We are primarily fan sourced with most of our funding coming from donations and ad revenue. No shady corporations, no one telling us what to say. We can't wait to grow further and help more people get informed. Help support us by subscribing, following, and backing us on Patreon. Thanks!{% endraw %}
