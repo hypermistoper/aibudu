@@ -1,0 +1,15 @@
+---
+title: "What Love Is (Because You Died) [Official Lyric Video] - Hillsong UNITED"
+image: "https:\/\/i.ytimg.com\/vi\/0c7bQ-a6KYI\/hqdefault.jpg"
+vid_id: "0c7bQ-a6KYI"
+categories: "Music"
+tags: ["hillsong","hillsong united","hillsong worship"]
+date: "2022-05-06T09:19:10+03:00"
+vid_date: "2022-04-29T04:00:01Z"
+duration: "PT6M5S"
+viewcount: "24339"
+likeCount: "1579"
+dislikeCount: ""
+channel: "Hillsong UNITED"
+---
+{% raw %}Official Lyric Video for 'What Love Is (Because You Died)' by Hillsong UNITED<br /><br />Text UNITED to +1 (855) 745-0294 for updates on releases, tours, merchandise and more. (Only available in US, CA, AU, UK).<br /><br />Listen to What Love Is (Because You Died) here: <a rel="nofollow" target="blank" href="https://united.lnk.to/arewethereyetID">https://united.lnk.to/arewethereyetID</a><br />Listen to the latest from UNITED here: <a rel="nofollow" target="blank" href="https://united.lnk.to/ytplaylistID">https://united.lnk.to/ytplaylistID</a><br />Subscribe: <a rel="nofollow" target="blank" href="https://united.lnk.to/youtubesubscribe">https://united.lnk.to/youtubesubscribe</a><br /><br />Stay Connected<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/hillsongunited">https://instagram.com/hillsongunited</a><br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/hillsongunited">https://facebook.com/hillsongunited</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/hillsongunited">https://twitter.com/hillsongunited</a><br />Website: <a rel="nofollow" target="blank" href="https://hillsong.com/united">https://hillsong.com/united</a><br /><br />What Love Is (Because You Died) <br />Words and Music by Joel Houston<br />© 2022 Hillsong Music Publishing Australia<br />CCLI: 7193195<br /><br />VERSE 1:<br />I don’t have the mind<br />To understand  <br />The weight of Your glory<br />Or what it takes to author   <br />The origin of light <br />Or the mystery of life<br />Or the heart just to love me<br />But this much I know<br /><br />CHORUS:<br />Everything I have <br />Is because You died for me <br />And nothing in this world<br />Could ever take that much from me<br /><br />VERSE 2:<br />I don’t have the heart <br />To measure up against <br />All the pressure <br />But all my strength exists <br />In the confidence I find <br />In the thrill of Your desire<br />And the power of Your presence <br />So my soul will sing <br /><br />POST-CHORUS 1: <br />Everything else comes down to this<br />I know Your love is why my soul exists<br />Nothing on earth compares<br />To the confidence I find <br />In the thrill of Your desire <br />And the power of Your presence<br />So my soul will sing<br /><br />POST-CHORUS 2:<br />And I <br />I know what love is<br />Oh the wonder of the blood <br />Oh the kindness of Your heart<br />To save my soul <br /><br />And I <br />I know You set me free<br />And it wrecks me to the bone<br />You died that I should know<br />You love me so<br /><br />#whatloveis #aewethereyet #hillsonguUNITED{% endraw %}
