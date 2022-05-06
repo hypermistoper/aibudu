@@ -1,0 +1,15 @@
+---
+title: "Mary-Kate & Ashley Olsen - Identical Twins (with lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/EBGQdCO4asQ\/hqdefault.jpg"
+vid_id: "EBGQdCO4asQ"
+categories: "People-Blogs"
+tags: ["Mary-Kate And Ashley Olsen (Musical Artist)","Identical Twins (Musical Recording)"]
+date: "2022-05-06T09:24:20+03:00"
+vid_date: "2014-07-18T02:52:02Z"
+duration: "PT3M3S"
+viewcount: "2095302"
+likeCount: "35512"
+dislikeCount: ""
+channel: "Mary-Kate & Ashley Music"
+---
+{% raw %}the Olsen twins singing Identical Twins from Our First Video<br />All videos are closed captioned.<br /><br />LYRICS:<br />Hello, we're twins<br />We're twins, yes sir<br />I am me, she is she<br />Except when I pretend I'm her<br />And when we switch<br />You can't tell which is which<br />You don't know who you're talking to<br />'Cause we're identical, 'dentical, 'dentical<br />Identical twins<br /><br />We look a lot alike<br />But we are not alike<br />I'm loud<br />I'm quiet<br />She's serious<br />She's a riot<br />We're totally, totally<br />Different, different<br />Identical twins<br /><br />We read different stories<br />We watch different shows<br />In our slightly different-colored hair<br />We wear different bows<br />We dance to different music<br />We laugh at different jokes<br />Gosh, gosh<br />It's like we're two different folks<br /><br />Though we appear alike<br />We're nowhere near alike<br />She's sweet<br />She's saucy<br />What's that mean?<br />You're bossy<br />Says you<br />It's true<br />Is not<br />Is too<br />We're totally, totally<br />Different, different<br />Identical twins<br /><br />I am not a xerox<br />I am not a clone<br />A duplicate, a copycat<br />The second scoop on the ice cream cone<br />Friends, pals, partners, chums<br />But we're marching to different drums<br /><br />We look a lot alike<br />But we are not alike<br />Two, two<br />Totally, totally<br />Utterly, utterly<br />Opposite, opposite<br />Totally, totally<br />Different, different<br />Identical twins<br /><br />Kirby Puckett at bat.<br />There's strike two and strike three.<br />Nobody can beat this twin bill!<br />And the scoreboard tells the story, Mr. Puckett.<br />You're outta there! Tough luck, Puck.<br />Here's a close play at third, and it's a split decision.<br />Willie Banks looks for the sign from Brian Harper.<br />What's this? He wants a pitch on both sides of the plate?<br />There's the reason. Double trouble for any  pitcher.<br />Try the split-finger fast ball, Willie.<br />Mary-Kate fires one at Kirby.<br />Puckett pops it up, and Ashley Olsen is under it, and so is Kent Hrbek.<br />Ashley's there to pluck it from Puckett.<br />Brian Harper takes the throw.<br />Oh, what a move by the twins, and they score two runs!<br />Better phone Cooperstown and reserve two spaces!<br /><br />Twins (x12)<br />Identical twins<br /><br />Two, two<br />Totally, totally<br />Utterly, utterly<br />Opposite, opposite<br />Totally, totally<br />Different, different<br />Identical twins<br />Identical twins<br />Deedle-eedle-ee-dum{% endraw %}
