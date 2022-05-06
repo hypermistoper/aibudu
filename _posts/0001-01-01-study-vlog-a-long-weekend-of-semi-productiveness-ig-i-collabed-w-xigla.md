@@ -1,0 +1,15 @@
+---
+title: "STUDY VLOG: a long weekend of semi-productiveness ig"
+image: "https:\/\/i.ytimg.com\/vi\/gUm0iUy5zpg\/hqdefault.jpg"
+vid_id: "gUm0iUy5zpg"
+categories: "People-Blogs"
+tags: ["STUDY","VLOG:","weekend"]
+date: "2022-05-06T12:50:25+03:00"
+vid_date: "2021-06-01T11:00:30Z"
+duration: "PT17M8S"
+viewcount: "64983"
+likeCount: "3037"
+dislikeCount: ""
+channel: "spudstudy"
+---
+{% raw %}i collabed w xigla records!! they provide copyright free music that you can use in your videos! check them out here: <a rel="nofollow" target="blank" href="https://www.xiglarecords.com/">https://www.xiglarecords.com/</a><br /><br />about me <br />⚪︎ age: 17 <br />⚪︎ wheres my ass: singapore <br />⚪︎ what im using my braincells for: bcme (bio,chem,math,h1 econs)<br /><br /><br />music <br />popsicle (<a rel="nofollow" target="blank" href="https://www.xiglarecords.com/)">https://www.xiglarecords.com/)</a><br />waves crashing, angels all around me ( instagram @elijahjbolton<br />spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/0TuJ7yDioHU9MszHzpi32P?si=samDYI1ZSACSh8-lnTKGXA)">https://open.spotify.com/artist/0TuJ7yDioHU9MszHzpi32P?si=samDYI1ZSACSh8-lnTKGXA)</a><br />Tuscany <br />(Anja Kotar<br />Website: www.anjakotar.com<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/anja.kotar/">https://www.instagram.com/anja.kotar/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/anjakotarartist/">https://www.facebook.com/anjakotarartist/</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/5a71BOwXAojkstqJFlg7GT">https://open.spotify.com/artist/5a71BOwXAojkstqJFlg7GT</a><br />Apple Music: <a rel="nofollow" target="blank" href="https://itunes.apple.com/us/artist/anja-kotar/1041951498">https://itunes.apple.com/us/artist/anja-kotar/1041951498</a> )<br />PENTAGON - Humph! | Music Box/Lullaby Version | 펜타곤 - 접근금지 (<a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=JhX8S9eFuJQ&amp;list=PLDnMD2PhGfjFSEEA7UMHjr9rG9sX9AlmH&amp;index=5)">https://www.youtube.com/watch?v=JhX8S9eFuJQ&amp;list=PLDnMD2PhGfjFSEEA7UMHjr9rG9sX9AlmH&amp;index=5)</a><br /><br /><br />filming: iPhone 8+/iPhone 12 mini/iPad Pro 2018<br />editing: Final Cut Pro<br />ipad: 2019 ipad pro + apple pencil <br />2020 macbook air <br /><br /><br />things i use and FAQ<br />tide: alarm/study timer <br />clock: muji <br />laptop stand: <a rel="nofollow" target="blank" href="https://shopee.sg/product/51667143/2330168602?smtt=0.256674690-1618220121.9">https://shopee.sg/product/51667143/2330168602?smtt=0.256674690-1618220121.9</a><br /> <br />socials<br />instagram: @spudstudy <br />pinterest: ruuuuuuuuuui (10 Us!) / spudstudy<br />twitter: @ruihasgivenup<br />soundcloud: ruihasgivenup<br />tiktok: stoopstudy <br />telegram: <a rel="nofollow" target="blank" href="https://t.me/joinchat/RsYHke8cY1tiNTU1">https://t.me/joinchat/RsYHke8cY1tiNTU1</a><br />business inquiries: rxstudyp0tat0es@gmail.com{% endraw %}
