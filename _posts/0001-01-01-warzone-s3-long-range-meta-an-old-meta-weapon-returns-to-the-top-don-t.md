@@ -1,0 +1,15 @@
+---
+title: "[WARZONE] S3 Long Range Meta! An old meta weapon returns to the top?"
+image: "https:\/\/i.ytimg.com\/vi\/vjx8sWEbcHk\/hqdefault.jpg"
+vid_id: "vjx8sWEbcHk"
+categories: "Gaming"
+tags: ["cod warzone","call of duty","modern warfare"]
+date: "2022-05-07T22:40:35+03:00"
+vid_date: "2022-05-03T22:09:54Z"
+duration: "PT9M37S"
+viewcount: "65227"
+likeCount: "3751"
+dislikeCount: ""
+channel: "TrueGameData"
+---
+{% raw %}Don't forget to subscribe/like/comment/watch a high % of the video if you want to support the grind!  Appreciate you all!<br /><br />TGD Meta Scores: <a rel="nofollow" target="blank" href="https://truegamedata.com/weapon_scoring">https://truegamedata.com/weapon_scoring</a><br />5 guns compared in this video: <a rel="nofollow" target="blank" href="https://www.truegamedata.com/?share=0WGHu5">https://www.truegamedata.com/?share=0WGHu5</a><br /><br />Recommended builds can be found here: <a rel="nofollow" target="blank" href="https://truegamedata.com/TrueGameData">https://truegamedata.com/TrueGameData</a><br /><br />0:00 Intro<br />0:24 Meta Scores<br />2:32 TTK and Recoil Comparisons<br />6:34 Visual Recoil Quantification coming soon :D<br /><br />New TrueTechData vid:<br /><a rel="nofollow" target="blank" href="https://youtu.be/UOhIZ4ucXlk">https://youtu.be/UOhIZ4ucXlk</a><br /><br />TGD Premium Subscriptions for Advanced Features: <a rel="nofollow" target="blank" href="https://truegamedata.com/subscriptions">https://truegamedata.com/subscriptions</a><br /><br />DISCORD: <a rel="nofollow" target="blank" href="https://discord.gg/gNeN8vQEpR">https://discord.gg/gNeN8vQEpR</a><br /><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/trueg...">https://www.facebook.com/groups/trueg...</a><br />TWITCH: <a rel="nofollow" target="blank" href="https://www.twitch.tv/truegamedatalive">https://www.twitch.tv/truegamedatalive</a><br />SUPPORT:  <a rel="nofollow" target="blank" href="https://truegamedata.com/support.php">https://truegamedata.com/support.php</a><br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/TrueGameData">https://twitter.com/TrueGameData</a><br />DISCORD: <a rel="nofollow" target="blank" href="https://discord.gg/gNeN8vQEpR">https://discord.gg/gNeN8vQEpR</a><br /><br />Visit my site (<a rel="nofollow" target="blank" href="https://truegamedata.com/index.php)">https://truegamedata.com/index.php)</a> to compare and build your weapons with their true in game stats!<br /><br />Intro music and background music from Dragon Ball Lofi by Rifti Beats.  Check him out, I'm obsessed with his stuff.<br /><br />SEO Stuff:<br />S3 Warzone<br />meta meta<br />M1916 Marksman Rifle<br />Nikita AVT AR<br />Season 3<br />Season 2<br />Call Of Duty Warzone Caldera Rebirth Resurgence Island Pacific<br />Call Of Duty Warzone Caldera Rebirth Resurgence Island Pacific<br />Modern Warfare<br />Call Of Duty Vanguard<br />Black Ops Cold War<br />warzone 2<br />modern warfare 2<br />warzone ii<br />modern warfare ii<br />[WARZONE] S3 Long Range Meta! An old meta weapon returns? <br />[WARZONE] S3 Long Range Meta! An old meta weapon returns?{% endraw %}
