@@ -1,0 +1,15 @@
+---
+title: "Maria, 10… I wish to make the designs for Elsa’s and Anna’s dresses! Make-A-Wish GR"
+image: "https:\/\/i.ytimg.com\/vi\/9K2pS9TzcMA\/hqdefault.jpg"
+vid_id: "9K2pS9TzcMA"
+categories: "Nonprofits-Activism"
+tags: ["Maria,","10…","designs"]
+date: "2022-05-07T09:41:49+03:00"
+vid_date: "2018-01-22T12:46:51Z"
+duration: "PT6M49S"
+viewcount: "80870"
+likeCount: "1373"
+dislikeCount: ""
+channel: "Make-A-Wish Greece"
+---
+{% raw %}Μαρία, 10… Εύχομαι να σχεδιάσω τα φορέματα της Έλσας και της Άννας!<br /><br />“Όταν είδα τη κόρη μου να σχεδιάζει μανιωδώς ρούχα και να ονειρεύεται στο μέλλον να γίνει μια μεγάλη σχεδιάστρια μόδας, σκέφτηκα ότι το Make-A-Wish μπορεί να της δώσει την αισιοδοξία για να προχωρήσει στο μέλλον ” Μαμά Μαρίας<br />Ευχαριστούμε πολύ τον Κωτσόβολο για την υιοθεσία της Ευχής.<br />Η εκπλήρωση αυτής της ευχής είναι ένα ακόμα παράδειγμα αλληλεγγύης πολλών εταιρειών και ατόμων. Για το λόγο αυτό θα θέλαμε να ευχαριστήσουμε τους:<br />• κ. Λάσκαρη Βαλαβάνη και την ομάδα του Atelier Laskaris<br />• τους Εμμανουήλ Κουτσουρέλη και Μάριο Κουτσουρέλη για τη σκηνοθεσία, τη σκηνογράφο Μαρία Καλαμαρά<br />• τον Μake-up Αrtist κ. Μπέζα Κωνσταντίνο<br />• τον Στάθη Σαμαντά για τα υποδήματα<br /><br />και τους λοιπούς χορηγούς σε είδος/Sponsors in kind: Ξενοδοχείο Divani Acropolis, Απολλώνιον Bakery, Σχολή Κομμωτικής Διαμαντόπουλος, KDG Hair, Πρακτρείο Cristi Models Agency, Disney Events, Evin Intzoglou, God, Aegean Air, Airotel, Avis, Allou Fun Park, Polis Park, Divani Caravel, Tudor Hall Restaurant, La Pasteria, Nice n Easy, Oroscopos Restaurant, Εστιατόριο Παπαδάκης, Star Taxi, Sattas Group, ViVa, CT Beauty μανικιούρ, Queen deluxe beauty bar, Ada's little kitchen και Cotton Prince<br /><br />Eθελοντές/Volunteers: Μαρία Μηνά, Μάνος Πετράκης, Σταυρούλα Σειμένη, Βάσια Μπόγρη, Ντανιέλα Μάστορα, Τζοάννα Λιβέρη, Σοφία Γονιδάκη, Γιώργος Τζεβαχιρίδης, Χάρης Πατούνης, Σωτήρης Κώτσης, Αγγελική Ρούτουλα<br />Ευχαριστούμε πάρα πολύ τις εταιρείες του Ομίλου ΕΛΛΑΚΤΩΡ για την υιοθεσία του σταδίου εκμαίευσης όλων των Ευχών για το 2017 (ΑΚΤΩΡ Α.Τ.Ε., ΗΛΕΚΤΩΡ Α.Ε., ΕΛΛΗΝΙΚΗ ΤΕΧΝΟΔΟΜΙΚΗ ΑΝΕΜΟΣ Α.Ε., ΑΤΤΙΚΗ ΟΔΟΣ Α.Ε., ΑΤΤΙΚΕΣ ΔΙΑΔΡΟΜΕΣ Α.Ε., ΑΚΤΩΡ FACILITY MANAGEMENT).<br /><br />***<br />FOLLOW Make-A-Wish Greece ON SOCIAL: <br />Website: <a rel="nofollow" target="blank" href="https://makeawish.gr/">https://makeawish.gr/</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/MakeAWishGreece/">https://www.facebook.com/MakeAWishGreece/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/makeawish.greece/">https://www.instagram.com/makeawish.greece/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/makeawishgreece">https://twitter.com/makeawishgreece</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://gr.pinterest.com/makeawishgreece/">https://gr.pinterest.com/makeawishgreece/</a><br />Linkedin: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/make-a-wish-greece/">https://www.linkedin.com/company/make-a-wish-greece/</a>{% endraw %}
