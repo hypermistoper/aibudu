@@ -1,0 +1,15 @@
+---
+title: "I Tried Building an Airbnb in Joshua Tree"
+image: "https:\/\/i.ytimg.com\/vi\/t83xyF7Uttk\/hqdefault.jpg"
+vid_id: "t83xyF7Uttk"
+categories: "Education"
+tags: ["personal finance","daniel inskeep","making money online"]
+date: "2022-05-08T08:53:48+03:00"
+vid_date: "2022-05-05T14:00:33Z"
+duration: "PT12M21S"
+viewcount: "21880"
+likeCount: "1525"
+dislikeCount: ""
+channel: "Daniel Inskeep"
+---
+{% raw %}If you want to support my channel, check out the following:<br />💵 Get 2 free stocks when you signup for Webull and deposit $100: <a rel="nofollow" target="blank" href="https://bit.ly/antiguruwebull">https://bit.ly/antiguruwebull</a><br />👉 Open a Roth IRA: <a rel="nofollow" target="blank" href="https://m1.finance/kVw5phu7wFFW">https://m1.finance/kVw5phu7wFFW</a><br /><br />In this video, I document our journey as Rachel and I try to build a vacation rental in Joshua Tree, California.<br /><br />Our architects were awesome, so I want to give them a shoutout:<br /><a rel="nofollow" target="blank" href="https://kotodesign.co.uk/">https://kotodesign.co.uk/</a><br /><br />🎶 Where I get my music:<br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/bp8dqw">https://www.epidemicsound.com/referral/bp8dqw</a><br /><a rel="nofollow" target="blank" href="https://geni.us/mangostreetmusic">https://geni.us/mangostreetmusic</a><br /><br />➦ Automatically Save w/ Acorns: <a rel="nofollow" target="blank" href="http://bit.ly/antiguru-acorns">http://bit.ly/antiguru-acorns</a><br />➦ Tubebuddy for YouTube: <a rel="nofollow" target="blank" href="https://www.tubebuddy.com/antiguru">https://www.tubebuddy.com/antiguru</a><br />➦ My microphone: <a rel="nofollow" target="blank" href="https://amzn.to/2FN5ixf">https://amzn.to/2FN5ixf</a><br />➦ This mic activator (for better sound): <a rel="nofollow" target="blank" href="https://amzn.to/2FCUli7">https://amzn.to/2FCUli7</a><br />➦ Vlogging camera: <a rel="nofollow" target="blank" href="https://amzn.to/2Ha3ejN">https://amzn.to/2Ha3ejN</a><br />➦ My huge wall calendar: <a rel="nofollow" target="blank" href="https://amzn.to/3hEiZvU">https://amzn.to/3hEiZvU</a><br /><br />I use all of the above services/products, so they are genuine recommendations. They are also affiliate links which means I get paid a small amount (at no cost to you) if you sign up / buy with those links.<br /><br />Check out my music on Spotify:<br />➦ <a rel="nofollow" target="blank" href="https://spoti.fi/2WTkXSv">https://spoti.fi/2WTkXSv</a><br />Put my music in your videos:<br />➦ <a rel="nofollow" target="blank" href="https://geni.us/mangostreetmusic">https://geni.us/mangostreetmusic</a><br /><br />My website:<br />◉ <a rel="nofollow" target="blank" href="http://danielinskeep.com">http://danielinskeep.com</a><br /><br />My main channel on photography: <br />◉ <a rel="nofollow" target="blank" href="http://youtube.com/mangostreet">http://youtube.com/mangostreet</a><br /><br />My wife's fitness channel: <br />◉ <a rel="nofollow" target="blank" href="http://youtube.com/rachelgulottafitness">http://youtube.com/rachelgulottafitness</a>{% endraw %}
