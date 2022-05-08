@@ -1,0 +1,15 @@
+---
+title: "I'm livid. Why can a convicted rapist walk into Ireland, making it less safe? - Hermann Kelly"
+image: "https:\/\/i.ytimg.com\/vi\/sHtflv90Oes\/hqdefault.jpg"
+vid_id: "sHtflv90Oes"
+categories: "News-Politics"
+tags: ["Roman krok","dunleer","County Louth"]
+date: "2022-05-08T16:24:06+03:00"
+vid_date: "2022-05-07T19:31:54Z"
+duration: "PT6M37S"
+viewcount: "2207"
+likeCount: "264"
+dislikeCount: ""
+channel: "Irish Freedom Party"
+---
+{% raw %}Why is a rapist Roman Krok, convicted in Derby,  UK for the attempted rape of a 14 year old girl be allowed to walk into Ireland?<br />Why should he get a free social house, welfare, tax funded legal aid after being charged with burglary?<br /><br />All immigration to Ireland should be controlled and vetted. Anyone with a criminal record who poses a threat to our safety should be barred from entry to Ireland.<br />if they are here illegally, they should be deported immediately. <br /><br />Details on his conviction in the UK - <br /><br /><a rel="nofollow" target="blank" href="https://www.derbytelegraph.co.uk/news/derby-news/teenager-tried-rape-terrified-14-2667494">https://www.derbytelegraph.co.uk/news/derby-news/teenager-tried-rape-terrified-14-2667494</a><br /><br />Louth action - <a rel="nofollow" target="blank" href="https://www.lmfm.ie/news/lmfm-news/three-people-arrested-following-burglary-in-co-louth/">https://www.lmfm.ie/news/lmfm-news/three-people-arrested-following-burglary-in-co-louth/</a><br /><br />Recent charge for burglary. Named in Mid Louth Independent Wednesday April 27th 2022<br /><br />link to pic :<br /><br /><a rel="nofollow" target="blank" href="https://drive.google.com/file/d/1R1C0GVuk0aRXb9uzZF4b-KYsY3ctFiU6/view?usp=drivesdk">https://drive.google.com/file/d/1R1C0GVuk0aRXb9uzZF4b-KYsY3ctFiU6/view?usp=drivesdk</a><br /> <a rel="nofollow" target="blank" href="https://drive.google.com/file/d/1R4LGHBTp-KKZOeIUA-h5h6YtJnFtV6o_/view?usp=drivesdk">https://drive.google.com/file/d/1R4LGHBTp-KKZOeIUA-h5h6YtJnFtV6o_/view?usp=drivesdk</a><br /><br /><br /><br />Why does Justice Minister #HelenMcEntee allow a young  male, Roman Krok who was convicted for multiple attempted rapes of a 14yo girl in the UK (and is on the UK sexual offenders list) into  Ireland after he got out of British jail in 2021? <br /><br />Why has  the minister and government allowed a rapist free entry, <br />a free social house, <br />free social welfare in #Dunleer , Co #Louth?<br /><br />Robberies are a regular occurrence in Mid Louth. Roman Krok has recently been charged with the crime of burglary....why are Irish workers being forced to pay for his Free legal aid? <br /><br />How is it safe for our kids that a convicted attempted rapist of a 14 year old girl is allowed to live  approx 200 yards from the primary school in Dunleer? <br /><br />These are all questions I have for Helen McEntee and the Government ministers. Rapist Roman Krok is another of #helensfelons A Slovak Roma...what does Roman Krok contribute to Ireland? Why is he here? Why has he not be deported yet?{% endraw %}
