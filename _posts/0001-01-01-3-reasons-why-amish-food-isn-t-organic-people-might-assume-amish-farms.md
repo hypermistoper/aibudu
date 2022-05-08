@@ -1,0 +1,15 @@
+---
+title: "3 Reasons Why Amish Food ISN'T Organic"
+image: "https:\/\/i.ytimg.com\/vi\/eLJV0MG8Oms\/hqdefault.jpg"
+vid_id: "eLJV0MG8Oms"
+categories: "People-Blogs"
+tags: ["Amish farming","Organic food","Organic produce"]
+date: "2022-05-08T03:46:00+03:00"
+vid_date: "2022-05-07T23:39:51Z"
+duration: "PT3M45S"
+viewcount: "771"
+likeCount: "185"
+dislikeCount: ""
+channel: "Amish America"
+---
+{% raw %}People might assume Amish farms are organic - however, that's usually not the case. I explain three main reasons why most Amish farms actually AREN'T organic, but rather conventional farms (using pesticides and fertilizers). That said, some Amish do farm organically, and some have seen a lot of success.<br /><br />My name is Erik Wesner and I'm not Amish. Back in 2004, I met the Amish while selling books. Since then, I've visited 5,000+ Amish homes &amp; dozens of Amish communities. My book on Amish business, Success Made Simple: An Inside Look at Why Amish Businesses Thrive, was published in 2010. I run the Amish America website: <a rel="nofollow" target="blank" href="https://amishamerica.com/">https://amishamerica.com/</a><br /><br />Image credits: Don Burke (<a rel="nofollow" target="blank" href="https://www.flickr.com/photos/ozarkinspirations/),">https://www.flickr.com/photos/ozarkinspirations/),</a> Cindy Cornett Seigle (<a rel="nofollow" target="blank" href="https://www.flickr.com/photos/cindy47452/),">https://www.flickr.com/photos/cindy47452/),</a> Mike Sparks, Don Shenk (<a rel="nofollow" target="blank" href="https://www.amazon.com/Seasons-Lancaster-County-Largest-Community/dp/0764357557)">https://www.amazon.com/Seasons-Lancaster-County-Largest-Community/dp/0764357557)</a><br /><br />Video: videvo.net<br /><br />Sources:<br /><br />&quot;Transitioning to Organic Farm Systems&quot;, University of Tennessee Institute of Agriculture<br /><br /><a rel="nofollow" target="blank" href="https://extension.tennessee.edu/publications/Documents/W235-B.pdf">https://extension.tennessee.edu/publications/Documents/W235-B.pdf</a><br /><br />Nature &amp; The Environment in Amish Life by David L. McConnell &amp; Marilyn D. Loveless<br /><a rel="nofollow" target="blank" href="https://books.google.pl/books/about/Nature_and_the_Environment_in_Amish_Life.html?id=F9hwDwAAQBAJ&amp;source=kp_book_description&amp;redir_esc=y">https://books.google.pl/books/about/Nature_and_the_Environment_in_Amish_Life.html?id=F9hwDwAAQBAJ&amp;source=kp_book_description&amp;redir_esc=y</a><br /><br />Green Field Farms: <a rel="nofollow" target="blank" href="https://gffarms.com/">https://gffarms.com/</a><br />Lancaster Farm Fresh Co-op: <a rel="nofollow" target="blank" href="https://lancasterfarmfresh.com/">https://lancasterfarmfresh.com/</a><br /><br />&quot;Amish-run Green Field Farms combines old world methods with innovation&quot;, Anna Boisseau, December 20, 2021<br /><a rel="nofollow" target="blank" href="https://www.dairyfoods.com/articles/95390-amish-run-green-field-farms-combines-old-world-methods-with-innovation">https://www.dairyfoods.com/articles/95390-amish-run-green-field-farms-combines-old-world-methods-with-innovation</a>{% endraw %}
