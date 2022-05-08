@@ -1,0 +1,15 @@
+---
+title: "🤑 $10,500 GROUP SLOT PULL ↪ Buffalo Cash HIGH STAKES  @ Jamul Casino"
+image: "https:\/\/i.ytimg.com\/vi\/mq9wfwEIkCw\/hqdefault.jpg"
+vid_id: "mq9wfwEIkCw"
+categories: "Gaming"
+tags: ["Brian Christopher slots","slot machine win","big win"]
+date: "2022-05-09T02:05:38+03:00"
+vid_date: "2022-05-08T17:00:32Z"
+duration: "PT31M58S"
+viewcount: "22619"
+likeCount: "1675"
+dislikeCount: ""
+channel: "Brian Christopher Slots"
+---
+{% raw %}Thanks to our partner Jamul Casino for today's group pull video! <br /><br />🔔  Subscribe &amp; Click Bell icon to be notified when LIVE!<br />👕  Swag  <a rel="nofollow" target="blank" href="http://BCSlots.com/Shop">http://BCSlots.com/Shop</a><br />📆  Events  <a rel="nofollow" target="blank" href="https://BCSlots.com/Events">https://BCSlots.com/Events</a><br />🛳  Cruises  <a rel="nofollow" target="blank" href="https://BCSlots.com/Cruise">https://BCSlots.com/Cruise</a><br />🔑  RUDIES Fan Club  <a rel="nofollow" target="blank" href="https://Patreon.com/BCSlots">https://Patreon.com/BCSlots</a><br />▶️  BCSlots Online Channel  <a rel="nofollow" target="blank" href="https://YouTube.com/c/BrianChristopherOnline">https://YouTube.com/c/BrianChristopherOnline</a><br /> <br />2022 SLOT MACHINES<br />Dragon Cash Happy &amp; Prosperous<br /> <br />👫  LET’S BE FRIENDS!<br />Facebook  ➜  <a rel="nofollow" target="blank" href="http://Facebook.com/BCSlots">http://Facebook.com/BCSlots</a><br />Instagram  ➜  <a rel="nofollow" target="blank" href="https://Instagram.com/BCSlots">https://Instagram.com/BCSlots</a><br />TikTok  ➜  <a rel="nofollow" target="blank" href="http://TikTok.com/@BCSlots">http://TikTok.com/@BCSlots</a><br />Twitter  ➜  <a rel="nofollow" target="blank" href="https://Twitter.com/BCSlots">https://Twitter.com/BCSlots</a><br /> <br />🙌🏼  TOP RUDIES SUPPORTERS<br />- Associate Producers: Yolanda M, Chris C, Carla G, Theresa N, Rachel R, Ellen C, Janet C, Paula W, Rob R, Alfonso M, Maria V, Lawrence K, John M, Don D, James M, George W<br />- Co-Producers: Lisa F, Ron H, Lucas S, John L, Amanda L, April G, Amanda C, Tim B, Corey S, Alicia H, Kelly J, Timothy H, Tracy M, Erich H, Lyn-Ellen S, Wendi G, Candy K, Sherri B, Kristina R, Stephanie P, Kenneth T, Terrie Y, Miles W<br /> <br />🎬  Filmed &amp; edited by Michael Mark.<br /> <br />#BrianChristopher #Slots #Casino #BigWin #BCSlots #Rudies4Life #LasVegas<br /> <br />This is an entertainment channel and videos are intended for 18+ only. If you have troubles with gambling, please seek help. Remember that the odds are with casinos, so know your limit and use an entertainment budget only. If you think you may have a problem, visit NCPGambling.org in the US or look up your local branch.<br /> <br />© All uploads are the intellectual property of BC Ventures, LLC. You do not have permission to reuse any part without written consent. For contact information and more, visit <a rel="nofollow" target="blank" href="https://BCSlots.com">https://BCSlots.com</a>{% endraw %}
