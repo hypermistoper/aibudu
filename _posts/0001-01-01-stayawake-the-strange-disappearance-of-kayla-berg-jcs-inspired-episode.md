@@ -1,0 +1,15 @@
+---
+title: "STAYAWAKE - The Strange Disappearance of Kayla Berg [ JCS Inspired ]"
+image: "https:\/\/i.ytimg.com\/vi\/FDav0ErgTy4\/hqdefault.jpg"
+vid_id: "FDav0ErgTy4"
+categories: "People-Blogs"
+tags: ["True Crime","Crime","Interrogation"]
+date: "2022-05-08T21:21:21+03:00"
+vid_date: "2022-05-05T20:46:59Z"
+duration: "PT13M"
+viewcount: "21797"
+likeCount: "1006"
+dislikeCount: ""
+channel: "STAYAWAKE"
+---
+{% raw %}Episode Twenty-Three of STAYAWAKE is here! This micro-episode is a little bit different than my usual content, but I felt this format would make for an interesting watch!<br /><br />This episode is surrounding the strange disappearance of Kayla Berg. Please contact 1-800-THE-LOST  if you have any information regarding the disappearance or whereabouts of Kayla Berg.<br /><br />Thank you for watching!!<br /><br />Patreon - <a rel="nofollow" target="blank" href="http://Patreon.com/stayawakevids">http://Patreon.com/stayawakevids</a><br /><br />If you or anybody you know is currently a victim of domestic abuse, addiction, or experiencing suicidal thoughts or ideations. PLEASE reach out for help.<br /><br />Online Domestic Violence resources:<br /><a rel="nofollow" target="blank" href="https://www.liveyourdream.org">https://www.liveyourdream.org</a><br /><br />CORRECTIONS:<br /><br />I apologize about my mispronunciation of Wausau. I had watched a couple other coverages of this case while doing my research and somehow this was how I believed it was pronounced. I will definitely correct this in a future rerelease!<br /><br />-------------------------------------------------------------------<br /><br />Please share your thoughts.<br /><br />Thank you again for watching!<br /><br />*Storytelling &amp; Edit Style inspired by JCS and Matt Orchard.<br /><br />--------------------------------------------------------------------<br /><br />Suicide Hotline Numbers If you or anyone you know are struggling, please, PLEASE reach out for help. You are worthy, you are loved and you will always be able to find assistance.<br /><br />Argentina: +5402234930430<br />Australia: 131114<br />Austria: 017133374<br />Belgium: 106<br />Bosnia &amp; Herzegovina: 080 05 03 05<br />Botswana: 3911270<br />Brazil: 212339191<br />Bulgaria: 0035 9249 17 223<br />Canada: 5147234000 (Montreal); 18662773553 (outside Montreal)<br />Croatia: 014833888<br />Denmark: +4570201201<br />Egypt: 7621602<br />Finland: 010 195 202<br />France: 0145394000<br />Germany: 08001810771<br />Holland: 09000767<br />Hong Kong: +852 2382 0000<br />Hungary: 116123<br />Iceland: 1717<br />India: 8888817666<br />Ireland: +116 123<br />Italy: 800860022<br />Japan: +810352869090<br />Mexico: 5255102550<br />New Zealand: 045861048<br />Netherlands: 09000113<br />Norway: +4781533300<br />Philippines: 028969191<br />Poland: 5270000<br />Russia: 0078202577577<br />Spain: 914590050<br />South Africa: 0514445691<br />Sweden: 46317112400<br />Switzerland: 143<br />United Kingdom: 116123<br />USA: 18002738255<br /><br />You are not alone. Please reach out.{% endraw %}
