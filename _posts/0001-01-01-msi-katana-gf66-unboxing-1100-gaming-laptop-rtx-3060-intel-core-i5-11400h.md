@@ -1,0 +1,15 @@
+---
+title: "MSI Katana GF66 Unboxing - $1100 Gaming Laptop! (RTX 3060 + Intel Core i5-11400H)"
+image: "https:\/\/i.ytimg.com\/vi\/hgyKKeagLrc\/hqdefault.jpg"
+vid_id: "hgyKKeagLrc"
+categories: "Gaming"
+tags: ["therelaxingend","therelaxingend unboxing","asmr"]
+date: "2022-05-08T17:38:26+03:00"
+vid_date: "2022-05-06T15:51:21Z"
+duration: "PT16M56S"
+viewcount: "219507"
+likeCount: "12344"
+dislikeCount: ""
+channel: "TheRelaxingEnd"
+---
+{% raw %}Unboxing gameplay of MSI Katana GF66 budget gaming laptop PC. Specs: Nvidia GeForce RTX 3060, Intel Core i5-11400H CPU, 512GB SSD, 16GB DDR4 RAM, 15-inch 144Hz 1920x1080 IPS display. Please note: this was on some special MSI sale for 1049€ with gaming gear and gummy bears included. Regular price could be higher! Peppa Pig, Fortnite, Forza Horizon 5, PUBG, Call of Duty Warzone, Grand Theft Auto V, Black Ops 2 and Apex Legends gameplay.<br /><br />Nvidia RTX 3090 Ti <a rel="nofollow" target="blank" href="https://youtu.be/d-rCgGPnwpI">https://youtu.be/d-rCgGPnwpI</a><br />Building my new Gaming PC for 2022 <a rel="nofollow" target="blank" href="https://youtu.be/UDflghCrJ2k">https://youtu.be/UDflghCrJ2k</a><br />The PS5 unboxing <a rel="nofollow" target="blank" href="https://youtu.be/uLwFYPsS_Zc">https://youtu.be/uLwFYPsS_Zc</a><br />All unboxing videos <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLo2sxVnbrTqCxdu55pSRUEQhplewUYE7T">https://www.youtube.com/playlist?list=PLo2sxVnbrTqCxdu55pSRUEQhplewUYE7T</a><br /><br />Click to Subscribe!  <a rel="nofollow" target="blank" href="http://tinyurl.com/klfpd64">http://tinyurl.com/klfpd64</a><br />Become a member <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheRelaxingEnd/join">https://www.youtube.com/c/TheRelaxingEnd/join</a><br /><br />Second Channel <a rel="nofollow" target="blank" href="http://www.youtube.com/VeryRelaxing">http://www.youtube.com/VeryRelaxing</a><br />Twitter <a rel="nofollow" target="blank" href="https://twitter.com/TheRelaxingEnd">https://twitter.com/TheRelaxingEnd</a><br />Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/mrelaxing">https://www.instagram.com/mrelaxing</a><br />Livestream <a rel="nofollow" target="blank" href="https://www.twitch.tv/therelaxingend">https://www.twitch.tv/therelaxingend</a><br />Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/TheRelaxingEnd">https://www.facebook.com/TheRelaxingEnd</a><br /><br />00:00 Blade<br />00:13 Package<br />00:43 Gummy bears<br />00:52 Gaming gear<br />03:11 MSI Katana<br />06:57 Power [ON]<br />07:38 Peppa Pig<br />08:16 Forza Horizon 5<br />08:46 Fortnite<br />09:29 Apex Legends<br />10:11 Tekken 7<br />10:35 Call of Duty Black Ops 2<br />11:59 Call of Duty Black Ops CW<br />13:32 Call of Duty Warzone<br />14:15 PlayerUnknown's Battlegrounds<br />14:59 Grand Theft Auto V<br />15:24 CS:GO<br />15:35 Call of Duty WaW<br />16:06 Red Dead Redemption 2<br /><br />#MSI #TheRelaxingEnd #Unboxing{% endraw %}
