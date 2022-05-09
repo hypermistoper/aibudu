@@ -1,0 +1,15 @@
+---
+title: "Real and Legitimate Surveys For Money"
+image: "https:\/\/i.ytimg.com\/vi\/xxfUQmTrPyk\/hqdefault.jpg"
+vid_id: "xxfUQmTrPyk"
+categories: "People-Blogs"
+tags: ["real and legitimate surveys for money","surveys for money","highest paid surveys"]
+date: "2022-05-09T04:01:19+03:00"
+vid_date: "2017-05-01T17:15:45Z"
+duration: "PT1M24S"
+viewcount: "5"
+likeCount: "0"
+dislikeCount: ""
+channel: "funny media"
+---
+{% raw %}<a rel="nofollow" target="blank" href="http://bit.ly/2qpVXzx...">http://bit.ly/2qpVXzx...</a> for a very long time I was fooled by widely available legitimate paid surveys reviews that supposed to give me access to survey panels that offer surveys for money. <br /><br />I wanted to make some money with these incredibly easy and well paying surveys... so why I couldn't make any?! I signed up for all &quot;the best&quot; and recommended survey sites... and I could not make a dime! I wasted dozens of hours taking hundreds of surveys and I almost gave up. <br /><br />It was all a lie... but what was the lie? Was the promise of making money with legitimate surveys a lie?... or was the direction I was steered to a lie? Both, to a degree, with the bigger lie towards where, then to how much. <br /><br />Lets talk about how much first. I have seen promises of $50, $75 or even $90 per survey! So why I couldn't get any?! It's because they are very rare! Making someone believe EVERY survey will pay that much is an out right lie! Most surveys pay $1 to $5. That doesn't meant that $5 is bad, but how will it make you feel when someone told you, you will get $90 for a survey and all you'll get is $5? Where did the $85 go?! You will feel cheated, that's how you'll feel. So did I. Its a scam you'll say... but it's not entirely true. <br /><br />It is survey sites fault (it is), especially the bad once! They often pay recruiters for new members, because they cant retain their existing members. Why? Because they don't pay them. They hang a sweepstake at front of them and ask them to try to win it. More surveys you'll do, more sweepstake entries you'll get... and that's most likely all you'll ever get. All that time to influence the future... and maybe strike gold with improbable sweepstake win. For sure you will change the future of the survey panel you work for (for free). You will help them make a lot of money. After all market research is a $50 billion (with the B) per year industry!<br /><br />Greed of bad survey panels ruins it for all survey sites because they pay for new members and they have no influence on what techniques are being used by recruiters. They will tell you what you want to hear, just to get you to sign up. They get paid regardless if you'll be happy or get disappointed and quit after a week or two. They will get paid regardless! They have no interest in being honest, or knowledgeable for that matter. They need literally zero survey experience to post a review.<br /><br />I am very curious how many people will read this, let me know if you did. If you did, congrats on being serious and doing your research. Best of luck!{% endraw %}
