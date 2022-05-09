@@ -1,0 +1,15 @@
+---
+title: "How to build a capsule wardrobe in 2022 (successfully!)"
+image: "https:\/\/i.ytimg.com\/vi\/Bvds52B4OJY\/hqdefault.jpg"
+vid_id: "Bvds52B4OJY"
+categories: "Howto-Style"
+tags: ["capsule wardrobe","how to capsule wardrobe","how to build a capsule wardrobe"]
+date: "2022-05-09T07:58:57+03:00"
+vid_date: "2022-05-08T16:00:05Z"
+duration: "PT9M38S"
+viewcount: "8844"
+likeCount: "770"
+dislikeCount: ""
+channel: "Use Less"
+---
+{% raw %}CLICK FOR LINKS<br />@USELESS_DK on IG for more outfits &amp; style tips <br /><br />► JOIN MY CAPSULE WARDROBE MASTERCLASS<br />Start building you conscious wardrobe today: <a rel="nofollow" target="blank" href="https://www.uselesswardrobe.dk/use-less-style-masterclass/">https://www.uselesswardrobe.dk/use-less-style-masterclass/</a><br /><br />►BOOK A STYLE CONSULTATION<br />Wardrobe reviews &amp; personal shopping: <a rel="nofollow" target="blank" href="https://www.uselesswardrobe.dk/online-virtual-styling-sessions/">https://www.uselesswardrobe.dk/online-virtual-styling-sessions/</a><br />Colour consultations: <a rel="nofollow" target="blank" href="https://www.uselesswardrobe.dk/colour-consultations/">https://www.uselesswardrobe.dk/colour-consultations/</a><br /><br />► FOLLOW ME <br />My blog: <a rel="nofollow" target="blank" href="http://www.uselesswardrobe.dk/">http://www.uselesswardrobe.dk/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/useless_dk/">https://www.instagram.com/useless_dk/</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.dk/signeh90">https://www.pinterest.dk/signeh90</a><br /><br />► SUSTAINABLE BRANDS LIBRARY<br />EU, UK, DK, NZ, AU: <a rel="nofollow" target="blank" href="http://www.uselesswardrobe.dk/sustainable-brands/">http://www.uselesswardrobe.dk/sustainable-brands/</a><br /><br />► MY CAPSULE WARDROBES <br />Find all my capsule wardrobes here: <a rel="nofollow" target="blank" href="https://www.pinterest.dk/signeh90/my-capsule-wardrobes/">https://www.pinterest.dk/signeh90/my-capsule-wardrobes/</a><br /><br />—————<br /><br />► MORE ABOUT ADLINKS <br /><br />Pls. Note that some of the links are just similar items due to availability (many of my clothes are older), and that some of them are adlinks which means I might be working on an affiliate-based term with the brand/website. Therefore I may receive a small percentage in commission if a purchase is being made. If you choose to use these links, thank you for your support! :-)<br /><br />Also note that I go out of my way to find eco-friendly alternatives - either straight from an eco-brand or from a brand that is improving qualities (organic cotton, recycled polyester etc.).<br /><br /> Pls. read my disclaimer for products linked and more transparency: <a rel="nofollow" target="blank" href="http://www.uselesswardrobe.dk/disclaimer/">http://www.uselesswardrobe.dk/disclaimer/</a><br /><br />► Music credit: Epidemicsound.com (Youtube creator song library)<br /><br />—————<br /><br />#minimalist #capsulewardrobe #slowfashion{% endraw %}
