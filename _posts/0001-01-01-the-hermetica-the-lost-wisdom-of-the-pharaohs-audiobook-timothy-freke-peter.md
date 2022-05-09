@@ -1,0 +1,15 @@
+---
+title: "THE HERMETICA The Lost Wisdom of the Pharaohs - AUDIOBOOK || Timothy Freke & Peter Gandy"
+image: "https:\/\/i.ytimg.com\/vi\/N7hrzOCxaIE\/hqdefault.jpg"
+vid_id: "N7hrzOCxaIE"
+categories: "Education"
+tags: ["Esoterica","Hermes Trismegistus","Ancient Egypt"]
+date: "2022-05-09T20:35:53+03:00"
+vid_date: "2021-07-17T04:47:00Z"
+duration: "PT2H36M23S"
+viewcount: "859638"
+likeCount: "23210"
+dislikeCount: ""
+channel: "JB Sparks"
+---
+{% raw %}This Audiobook Version is Read by Julian Brown<br /><br />00:00  Introduction<br />04:57  The Last Words Of Thrice Great Hermes<br />05:56  Chapter 1: The Prophecies of Hermes<br />14:48  Chapter 2: The Initiation of Hermes<br />23:27  Chapter 3: The Being of Atum<br />34:10  Chapter 4: Contemplate Creation<br />42:27  Chapter 5: The Living Cosmos<br />48:24  Chapter 6: The Circle of Time<br />52:09  Chapter 7: The Gods<br />58:23  Chapter 8: The Hierarchy of Creation<br />1:02:05  Chapter 9: The Creation of Humankind<br />1:09:44  Chapter 10: The Birth of Human Culture<br />1:15:11  Chapter 11: Man is Marvel<br />1:24:11  Chapter 12: The Zodiac and Destiny<br />1:30:32  Chapter 13: The Universe and the Particular<br />1:37:13  Chapter 14: Incarnation of the Soul<br />1:45:18  Chapter 15: Death and Immortality<br />1:53:45  Chapter 16: Ignorance of the Soul<br />2:01:11  Chapter 17: Knowledge of Atum<br />2:09:01  Chapter 18: Rebirth<br />2:16:04  Chapter 19: Secret Teachings<br />2:22:19  Chapter 20: In Praise of Atum<br />2:32:02  Outro with Music<br /><br />For Micah, Malik and Zuri <br /><br />Music in this video<br /><br />Alpha Beta Border Beats by Patrol Music <br />(Introduction, Chapter 17, Chapter 20)<br /><br />Anubeat by GravyBeats <br />(Introduction, Chapter 8, Outro) <br /><br />The Mystery of the Desert by Magik Musik <br />(Chapter 1, Chapter 15)<br /><br />Pharoah Ramsis II by VlogBoys <br />(Chapter 3)<br /><br />Revival of Africa by Andreii Moiseii <br />(Chapter 4, Chapter 17)<br /><br />African School Theme Song by The Free Cat <br />(Chapter 5, Chapter 19)<br /><br />Strange African Improvisation by Andreii Moiseii <br />(Chapter 6)<br /><br />Nile Bound by Future Castle <br />(Chapter 7, Chapter 18)<br /><br />African Ethnic Cinematic Music by Infraction <br />(Chapter 9)<br /><br />Traditional African Music by Music Mood NCS <br />(Chapter 10)<br /> <br />Manetho by FES TV <br />(Chapter 11)<br /><br />Egypt Arab Music by FES TV <br />(Chapter 12, Chapter 20)<br /><br />AFROTRAP by KiLL TriO <br />(Chapter 13)<br /><br />African Traditional Tribal Music by Music Mood NCS<br />(Chapter 14)<br /><br />Momia Ancient Egyptian Music by World Music OFCL <br />(Chapter 16) <br /><br />African Beats by Toolbeat <br />(Outro) <br /><br />Epic Elctro Egyptian Music by DJ WOLFIE <br />(Outro) <br /><br />#AudioBook #TheHermetica #Mysticism #Thoth #Hermes #Tehuti #HermeticPhilosophy #Hermeticism #Shaman #Mystic #Arts #Sciences #Maat #UniversalLaw #TheUniverseIsMental #AncientMysterySchools #Initiation #Pagan #Ritual #Prayer #Religion #Ancestors #TimothyFreke #PeterGandy{% endraw %}
