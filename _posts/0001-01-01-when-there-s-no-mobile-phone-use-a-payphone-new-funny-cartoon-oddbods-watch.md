@@ -1,0 +1,15 @@
+---
+title: "When There's No Mobile Phone, Use A Payphone | New Funny Cartoon | ODDBODS"
+image: "https:\/\/i.ytimg.com\/vi\/7YV7KVGBPJ0\/hqdefault.jpg"
+vid_id: "7YV7KVGBPJ0"
+categories: "Film-Animation"
+tags: ["oddbods","oddbods 2021","funny"]
+date: "2022-05-09T06:47:19+03:00"
+vid_date: "2021-09-15T11:00:04Z"
+duration: "PT29M21S"
+viewcount: "1437341"
+likeCount: "10593"
+dislikeCount: ""
+channel: "Oddbods - Official Channel"
+---
+{% raw %}Watch back-to-back Oddbods full episodes: join the fuzzy rainbow friends on their BIG adventures!<br />►Subscribe to watch NEW Oddbods Episodes every week!: <a rel="nofollow" target="blank" href="https://bit.ly/OddbodsSubscribe">https://bit.ly/OddbodsSubscribe</a><br /><br />🔥 See more Oddbods! 🔥<br />► Watch NEW Oddbods videos! : <a rel="nofollow" target="blank" href="https://bit.ly/OddbodsNEWvideos">https://bit.ly/OddbodsNEWvideos</a> <br />► Watch Oddbods Full Episodes: <a rel="nofollow" target="blank" href="https://bit.ly/OddbodsFullEpisodesPlaylist">https://bit.ly/OddbodsFullEpisodesPlaylist</a><br />► Watch the BEST Oddbods episodes of 2021: <a rel="nofollow" target="blank" href="https://bit.ly/2021BestofOddbods">https://bit.ly/2021BestofOddbods</a> ⭐️<br />► Most Popular Oddbods videos: <a rel="nofollow" target="blank" href="https://bit.ly/OddbodsPopularVideos">https://bit.ly/OddbodsPopularVideos</a><br />► Watch Baby Oddbods 🍼: <a rel="nofollow" target="blank" href="https://bit.ly/BabyOddbodsPlaylist">https://bit.ly/BabyOddbodsPlaylist</a><br />► Get Active with Oddbods Busybodies: <a rel="nofollow" target="blank" href="https://bit.ly/WorkoutwithOddbods">https://bit.ly/WorkoutwithOddbods</a><br /><br />⭐️ Oddbods Toys and more available on Amazon: <a rel="nofollow" target="blank" href="https://amzn.to/3rQMO39">https://amzn.to/3rQMO39</a> ⭐️<br /><br />Welcome to the funny, colorful world of Oddbods! Meet your new 7 furry rainbow friends: Fuse, Newt, Pogo, Bubbles, Jeff, Zee and Slick as they laugh, trick and trip their way through life. Join in the funny cartoons for kids adventures with brand new Oddbods full episodes every week, as they cook up new recipes, chase after cute Baby Oddbods, go to the doctors, brush teeth at the dentist, go shopping and dress up as Party Monsters for Halloween! Life's always colorful in Oddsville! <br />Subscribe now to watch NEW Oddbods Episodes every week: <a rel="nofollow" target="blank" href="https://bit.ly/OddbodsSubscribe">https://bit.ly/OddbodsSubscribe</a><br /><br />The 7 ODDBODS:<br />----------------------------------------<br />Fuse ❤️ red - strong muscle, strong-willed<br />Bubbles 💛 yellow - smart, loves science and discovery<br />Newt 💗 pink - caring and sweet<br />Zee 💚 green - loves eating and sleeping<br />Slick 🧡 orange - a cool cat, loves a party<br />Jeff 💜 purple - loves cleaning and being neat<br />Pogo 💙 blue - playful, loves playing tricks<br /><br />Who is your favorite Oddbods character? <br /><br />#oddbods #oddbodsfullepisode #oddbodsbaby #oddbodstoys #cartoonsforkids #funnycartoonsforkids{% endraw %}
