@@ -1,0 +1,15 @@
+---
+title: "Let's hear your stories about exceptionally good players or DM's!"
+image: "https:\/\/i.ytimg.com\/vi\/QjU9LSJ-XYY\/hqdefault.jpg"
+vid_id: "QjU9LSJ-XYY"
+categories: "Entertainment"
+tags: ["MrRipper","Dungeons and Dragons","dnd stories"]
+date: "2022-05-09T17:15:14+03:00"
+vid_date: "2022-03-28T21:04:56Z"
+duration: "PT14M1S"
+viewcount: "26318"
+likeCount: "1254"
+dislikeCount: ""
+channel: "MrRipper"
+---
+{% raw %}Let's hear your stories about exceptionally good players or DM's!<br /><br />Put your stories in the comments below they could be in our next video! If you have your own video ideas submit them to us on Reddit at r/MrRipper<br />Stay tuned for more awesome DnD content!<br /><br />Also please check out our second channel Riptovia for feature-length stories! <br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCtlGvepbXcFn8xYdsVxGcJQ">https://www.youtube.com/channel/UCtlGvepbXcFn8xYdsVxGcJQ</a><br /><br /><br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/mrripperstream">https://www.twitch.tv/mrripperstream</a><br /><a rel="nofollow" target="blank" href="https://www.reddit.com/r/MrRipper/">https://www.reddit.com/r/MrRipper/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/MrRipperYT1">https://twitter.com/MrRipperYT1</a><br /><a rel="nofollow" target="blank" href="https://discord.gg/vnra3mz">https://discord.gg/vnra3mz</a><br /><br /><br />Source <br /><a rel="nofollow" target="blank" href="https://www.reddit.com/r/MrRipper/comments/tbkfuo/dms_of_reddit_id_like_to_hear_about_your/">https://www.reddit.com/r/MrRipper/comments/tbkfuo/dms_of_reddit_id_like_to_hear_about_your/</a><br /><br />#mrripper #dnd #dndstories<br /><br />Stay tuned for more awesome DnD content!<br /><br />D&amp;D players, what way did you use a &quot;useless&quot; spell in a good way? #2<br /><br />D&amp;D Players, What was your best &quot;Wait...what?!&quot; moment?<br /><br />What's the biggest mind-f**k you've seen during a DND campaign?<br />What's your worst loot stories?<br />What's the saddest death that you have ever encountered while playing D&amp;D?<br />What's the funniest way you spoiled a important plot element in your campaign?<br />DND players, what was your funniest “rolled a 1” moment?<br />DMs, What is a plotline you've always wanted to run?<br />Ever had another PC kill your character?<br />DND Players, What is the coolest character you have ever played?<br />DND players, what was your funniest “nat 20” moment? (r/askreddit)<br />DND players, what’s your best Stories of Rope? (r/dndstories)<br />D&amp;D Players, what's the most screwed up thing you've ever done in a game?<br />What's the worst TPK you've experienced?<br />D&amp;D Players, what's the most screwed up thing you've ever done in a game?<br />DND Nope Moments #1<br />What’s your best Tarrasque story?<br />What's the funniest thing PC's latched onto?<br />What is the most unexpected damage you've ever done as a PC or DM?<br />What is the smallest way your DM has driven home how &quot;evil&quot; a villain is?{% endraw %}
