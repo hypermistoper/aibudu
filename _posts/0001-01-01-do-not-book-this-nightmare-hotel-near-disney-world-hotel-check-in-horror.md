@@ -1,0 +1,15 @@
+---
+title: "Do NOT book this NIGHTMARE hotel near Disney World | Hotel check In horror story"
+image: "https:\/\/i.ytimg.com\/vi\/ZGnXQNXX1Bg\/hqdefault.jpg"
+vid_id: "ZGnXQNXX1Bg"
+categories: "Entertainment"
+tags: ["disney world vlogger","kyle pallo","Disney World"]
+date: "2022-05-10T20:55:50+03:00"
+vid_date: "2022-05-10T15:00:14Z"
+duration: "PT20M2S"
+viewcount: "5649"
+likeCount: "789"
+dislikeCount: ""
+channel: "Kyle Pallo"
+---
+{% raw %}Follow Me:<br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/kylepallo/">https://www.instagram.com/kylepallo/</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/KyleWPallo">https://www.facebook.com/KyleWPallo</a><br /><br />My PO Box:<br />P.O. Box 310 Windermere FL, 34786<br /><br />SUPPORT ME:<br />Donate to my Channel: <a rel="nofollow" target="blank" href="https://www.paypal.com/paypalme/kylepallo">https://www.paypal.com/paypalme/kylepallo</a><br />My Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/kylepallo">https://www.patreon.com/kylepallo</a><br />Membership: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UClCMqrvO9Wn11_hvuoH0WJA/join">https://www.youtube.com/channel/UClCMqrvO9Wn11_hvuoH0WJA/join</a><br />Dreamers Website: <a rel="nofollow" target="blank" href="https://www.dreamersbrand.shop">https://www.dreamersbrand.shop</a><br />My Merch: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UClCMqrvO9Wn11_hvuoH0WJA/store">https://www.youtube.com/channel/UClCMqrvO9Wn11_hvuoH0WJA/store</a><br /><br />My Gear: <br />Camera: Sony a7c <a rel="nofollow" target="blank" href="https://amzn.to/3bSI6LH">https://amzn.to/3bSI6LH</a><br />Mic: Sony ECM-B1M Mic <a rel="nofollow" target="blank" href="https://amzn.to/3slz7sk">https://amzn.to/3slz7sk</a><br />Lens: Sony 16-35MM  <a rel="nofollow" target="blank" href="https://amzn.to/30PAMKM">https://amzn.to/30PAMKM</a><br />2nd Camera: Canon G7X Mark ii <a rel="nofollow" target="blank" href="https://amzn.to/2OFfmx9">https://amzn.to/2OFfmx9</a><br />For Water Parks: Iphone 12 Pro  <a rel="nofollow" target="blank" href="https://amzn.to/3cd9BzT">https://amzn.to/3cd9BzT</a><br /><br />Business Inquiries: <br />Kwpallo@hotmail.com <br /><br />Thanks To All My Channel Members!<br />Matthew Willson<br />Lisa's Life<br />Natalie Conway <br />Topher Magellan<br />Matthew Anthony <br />Jerry Warren<br />James G. <br />John Morgan<br />Nicolina P<br />Patton Pandemonium<br />Miranda084<br />Jrod Lockwood<br />Sam Alicea<br />Fairy Tale Family<br />Lirr408<br />Mike88NYC<br />Andrew Joslyn<br />Michael McLeod<br />Hadley S.<br />Steve Hansen<br />Jeriza Montano<br />Will Simon<br />Jess Garback<br />ashalia11<br />WhirlOmar<br />Ben Gardner<br />Hannah Sakuma<br />Marjorie Fisher<br />Vanessa McLeod<br />Melissa Demastrie<br />John Mc<br />Ken Dettman<br />Alfred Menna<br />Jake It Or Leave It<br />Your girl Becca<br />Sun Principe <br />Leigh Ellen Barnes<br />Dale Farmer <br />Jon Mulawa{% endraw %}
