@@ -1,0 +1,15 @@
+---
+title: "You'll Need A New App To Open This Windows Defender Link Windows 11 - 2 Fix How To"
+image: "https:\/\/i.ytimg.com\/vi\/7tI8jyYIo-0\/hqdefault.jpg"
+vid_id: "7tI8jyYIo-0"
+categories: "Science-Technology"
+tags: ["Tech Bachhal","you'll need a new app to open this windowsdefender link","how to fix you'll need a new app to open this windowsdefender link"]
+date: "2022-05-10T08:07:53+03:00"
+vid_date: "2022-04-12T06:00:02Z"
+duration: "PT2M59S"
+viewcount: "4315"
+likeCount: "86"
+dislikeCount: ""
+channel: "Tech Bachhal"
+---
+{% raw %}“You'll need a new app to open this windowsdefender link” error in windows 11 can be fix with the assistance of this easy tutorial guide.<br />In the preview releases of Windows 11, an issue that appears to be common causes Windows Security to display the error message &quot;You'll need a new app to this windowsdefender link.&quot; The early beta of Windows 11 is now available to Windows Insider Program testers, and people are reporting a variety of faults and bugs with the revamped desktop OS. According to user complaints, Microsoft deployed a flawed update that is creating major issues with the Windows Security program, which is used to manage Windows Defender and other security capabilities. Fortunately, there's a quick cure for this.  Because &quot;Windows Security&quot; is a system software, PowerShell may be used to repair it.<br />Why the error “you'll need a new app to open this Windows Defender link “ appears in windows 11?<br />'To access this WindowsDefender Link, you'll need a new program' problem: When you try to launch Windows Security in your Windows 10/11 PC, this is a regular Windows problem. When you try to start Windows Defender/Windows Security on your computer, a popup window with the 'Ok' button on it may display the message 'You will need a new app to open this WindowsDefender.'<br />The popup window closes when you hit the 'Ok' button or the next choice on the popup. The biggest difficulty consumers are encountering is that while they can launch Microsoft Windows Defender, they are unable to use certain of its capabilities. The issue might be caused by the computer's Development/developer mode being activated.<br /><br /><br />Registry editor location:<br />HKEY-LOCAL-MACHINE-SOFTWARE-Microsoft-Windows Defender<br /><br />PowerShell Command:<br />Windows 11 :<br /><br />Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register &quot;$($_.InstallLocation)\AppXManifest.xml&quot;}<br /><br />Windows 10<br /><br />Add-AppxPackage -Register -DisableDevelopmentMode &quot;C:\Windows\SystemApps\Microsoft.Windows.SecHealthUI_cw5n1h2txyewy\AppXManifest.xml&quot;<br /><br />sfc/scannow<br /><br />00:00 Intro<br />00:14 Registry Editor<br />01:28 PowerShell<br />02:54 Outro<br /><br />This video will help to solve You'll Need A New App To Open This Windows Defender Link Windows 11 on computers, laptops, desktops running Windows 11, Windows 10, Windows 8/8.1, Windows 7 systems. Works on all computers and laptops (HP, Dell, Asus, Acer,  Lenovo, Samsung, Toshiba).<br /><br />#WindowsDefender #Windows11 @WindowsDefenderError{% endraw %}
