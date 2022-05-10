@@ -1,0 +1,15 @@
+---
+title: "Needless - Planet Oblivion (official video)"
+image: "https:\/\/i.ytimg.com\/vi\/kXOCncGe9LU\/hqdefault.jpg"
+vid_id: "kXOCncGe9LU"
+categories: "People-Blogs"
+tags: ["Planet Oblivion","Needless","The Cosmic Cauldron"]
+date: "2022-05-10T03:40:04+03:00"
+vid_date: "2021-12-10T13:16:24Z"
+duration: "PT4M49S"
+viewcount: "5497"
+likeCount: "190"
+dislikeCount: ""
+channel: "Uprising Records"
+---
+{% raw %}Featuring Martina Horvarth (Thy Catafalque).<br /><br />Taken from Needless upcoming album &quot;The Cosmic Cauldron&quot; to be released on UPRISING! Records on 07.01.2022.<br /><br />Digital single here: <a rel="nofollow" target="blank" href="https://orcd.co/need-planet">https://orcd.co/need-planet</a><br /><br />Directed by Péter Németh, and Márk Volner<br />Produced by Portrait Shot<br /><br />FOLLOW NEEDLESS:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/needlesshun/">https://www.facebook.com/needlesshun/</a><br />Bandcamp: <a rel="nofollow" target="blank" href="https://needlessofficial.bandcamp.com/">https://needlessofficial.bandcamp.com/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/needless_metal/">https://www.instagram.com/needless_metal/</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/official-needless">https://soundcloud.com/official-needless</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8XzjqCD5xolgQWjVH9HMBg">https://www.youtube.com/channel/UC8XzjqCD5xolgQWjVH9HMBg</a><br />Spotify: <a rel="nofollow" target="blank" href="https://sptfy.com/6z1Y">https://sptfy.com/6z1Y</a><br /><br />#thrashdeathmetal<br /><br />LYRICS:<br />Shipwrecked on the sea of birthstones,<br />Cast away on strange elevations, <br />Stained with cerulean and crimson, <br />A welcoming cradle, oh planet oblivion. <br /><br />How peculiar is the future,<br />Which burns on vain mountains?<br />How fragile is the past,<br />Broken by massive burdens? <br /><br />A fallen seer listens to floating whispers, <br />Takes the instrument of cruel creations.<br /><br />Breaths the virulent lore of carbon, <br />Fills his lungs with a lambent phenomenon. <br /><br />How peculiar is the future,<br />Which burns on vain mountains?<br />How fragile is the past,<br />Broken by massive burdens?<br /><br />Heed our call, we are the makers of the cauldron. <br />Shipwrecked on the sea of birthstones,<br />Cast away on strange elevations, <br />Stained with cerulean and crimson, <br />A welcoming cradle, oh planet oblivion. <br /><br />How peculiar is the future,<br />Which burns on vain mountains?<br />How fragile is the past,<br />Broken by massive burdens? <br /><br />A fallen seer listens to floating whispers, <br />Takes the instrument of cruel creations.<br /><br />Breaths the virulent lore of carbon, <br />Fills his lungs with a lambent phenomenon. <br /><br />How peculiar is the future,<br />Which burns on vain mountains?<br />How fragile is the past,<br />Broken by massive burdens?<br /><br />Heed our call, we are the makers of the cauldron.{% endraw %}
