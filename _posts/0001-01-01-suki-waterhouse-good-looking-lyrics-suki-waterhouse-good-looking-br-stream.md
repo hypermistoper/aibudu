@@ -1,0 +1,15 @@
+---
+title: "suki waterhouse - good looking (lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/ixE6wczxWs0\/hqdefault.jpg"
+vid_id: "ixE6wczxWs0"
+categories: "Music"
+tags: ["suki waterhouse","good looking","good looking lyrics"]
+date: "2022-05-10T06:10:05+03:00"
+vid_date: "2022-05-09T14:13:02Z"
+duration: "PT3M35S"
+viewcount: "4509"
+likeCount: "220"
+dislikeCount: ""
+channel: "TheGoodVibe"
+---
+{% raw %}Suki Waterhouse - Good Looking <br />Stream/Download:<br /><br />Follow Suki Waterhouse:<br /><a rel="nofollow" target="blank" href="https://twitter.com/sukiwaterhouse?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor">https://twitter.com/sukiwaterhouse?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/sukiwaterhouse/">https://www.instagram.com/sukiwaterhouse/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/sukiwaterhouse">https://www.facebook.com/sukiwaterhouse</a><br /><br />Become our friend:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/allGoodvibe">https://www.facebook.com/allGoodvibe</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/GoodVibesAllDay">https://www.youtube.com/GoodVibesAllDay</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/allGoodvibe">https://soundcloud.com/allGoodvibe</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/good_vibe/">https://www.instagram.com/good_vibe/</a><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/user/thegoodfm">https://open.spotify.com/user/thegoodfm</a><br /><br />(Lyrics):<br />tides thrash inside<br />baby, i’m high octane<br />fever in a shock wave<br />my core vibrates in an opium haze<br />yet you think we're the same<br /><br />the skyline falls as i try to make sense of it all<br />i thought i’d uncovered your secrets but turns out there's more<br />you adored me before<br />oh, my good looking boy<br /><br /> <br />the skyline falls as i try to make sense of it all<br />i thought i'd uncovered your secrets but turns out there's more<br />you adored me before<br />oh, my good looking boy<br />my good looking boy<br />my good looking boy<br />my good looking boy<br />oh, my good looking boy<br /><br />you're not who you are to anyone, to anyone<br />you're not who you are to anyone, to anyone these days<br />i’m not who i am to anyone, no, not me at all<br />i’m not who i am to anyone these days, not at all<br /><br />the skyline falls as i try to make sense of it all<br />i thought i'd uncovered your secrets but turns out there's more<br />you adored me before<br />oh, my good looking boy<br /><br />Tags:<br />suki waterhouse<br />good looking<br />good looking lyrics<br />suki waterhouse good looking<br />good looking suki waterhouse <br />suki waterhouse good looking lyrics<br />good looking suki waterhouse lyrics<br />suki waterhouse lyrics good looking<br />good looking lyrics suki waterhouse<br /><br /><br /><br /><br />#SukiWaterhouse #GoodLooking #Lyrics<br /><br />contact: ypmamusic@gmail.com{% endraw %}
