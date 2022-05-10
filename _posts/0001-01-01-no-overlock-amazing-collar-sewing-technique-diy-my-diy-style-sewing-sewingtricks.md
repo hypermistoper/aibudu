@@ -1,0 +1,15 @@
+---
+title: "😍✅No overlock! Amazing collar sewing technique"
+image: "https:\/\/i.ytimg.com\/vi\/Du_E9Xu2B28\/hqdefault.jpg"
+vid_id: "Du_E9Xu2B28"
+categories: "Howto-Style"
+tags: ["мой стиль diy","my style diy","мой стиль шитье"]
+date: "2022-05-10T11:12:57+03:00"
+vid_date: "2022-05-10T05:09:24Z"
+duration: "PT6M20S"
+viewcount: "6674"
+likeCount: "981"
+dislikeCount: ""
+channel: "My DIY style"
+---
+{% raw %}#МойстильDIY #My DIY style #sewing #sewingtricks #sewinglifehacks<br />This is a very useful tip for sewing lovers. If you do not have an overlocker, sew on the collar as we showed. It is very neat and beautiful. Watch our videos, they are for beginners and will teach you how to sew.<br />Watch carefully and repeat after me.❤️<br />Thanks for watching, you are amazing!<br />My greetings and kisses! 😘😘😘<br />Click to subscribe <a rel="nofollow" target="blank" href="https://goo-gl.ru.com/uaT">https://goo-gl.ru.com/uaT</a><br /><br />My useful video albums that you should definitely watch:<br />See sewing ideas <a rel="nofollow" target="blank" href="https://goo-gl.ru.com/uaU">https://goo-gl.ru.com/uaU</a><br />See sewing tips <a rel="nofollow" target="blank" href="https://goo-gl.ru.com/uaV">https://goo-gl.ru.com/uaV</a><br />See sewing life hacks <a rel="nofollow" target="blank" href="https://goo-gl.ru.com/uaW">https://goo-gl.ru.com/uaW</a><br /><br />My social networks:<br />Telegram: <a rel="nofollow" target="blank" href="https://t.me/sewing_tips_and_tricks">https://t.me/sewing_tips_and_tricks</a><br />Zen <a rel="nofollow" target="blank" href="https://zen.yandex.ru/id/5a4b0f2ff4a0dd4ec58988bd">https://zen.yandex.ru/id/5a4b0f2ff4a0dd4ec58988bd</a><br />TikTok <a rel="nofollow" target="blank" href="https://www.tiktok.com/@my01_style​">https://www.tiktok.com/@my01_style​</a><br />Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/my_style_diy_">https://www.instagram.com/my_style_diy_</a><br />VK: <a rel="nofollow" target="blank" href="https://vk.com/club140872845">https://vk.com/club140872845</a><br />OK: <a rel="nofollow" target="blank" href="https://ok.ru/group56014930116608">https://ok.ru/group56014930116608</a><br />RUTUBE: <a rel="nofollow" target="blank" href="https://rutube.ru/channel/23481498/">https://rutube.ru/channel/23481498/</a><br />For those who have just discovered my channel. I'm Oksana.<br />On this channel I show sewing projects, sewing tricks, sewing hacks, sewing tips for beginners, share videos that can inspire you for DIY ideas, recycling, embroidery, sewing. I try to post at least 2 or 3 new videos a week.<br />We have a big friendly family on the channel. If you'd like to join us and be part of our family, be sure to subscribe and turn on notifications.<br />I look forward to your questions, comments and applications for creating new useful videos.😊<br /><br />Thank you if you share this video with your friends 💖<br /><br />Write comments, but please respect others and me.<br />Please do not post spam or advertisements, they will be removed.{% endraw %}
