@@ -1,0 +1,15 @@
+---
+title: "Teach Kids Spanish and English words with Painting Pororo Toy Car and Tayo Playsets!"
+image: "https:\/\/i.ytimg.com\/vi\/XKbZJV1Ql4M\/hqdefault.jpg"
+vid_id: "XKbZJV1Ql4M"
+categories: "Film-Animation"
+tags: ["toy learning for kids","toys","learn colors"]
+date: "2022-05-11T15:28:21+03:00"
+vid_date: "2021-11-02T16:12:07Z"
+duration: "PT19M14S"
+viewcount: "22831876"
+likeCount: "33268"
+dislikeCount: ""
+channel: "Genevieve's Playhouse - Learning Videos for Kids"
+---
+{% raw %}Teach Kids Spanish and English words with Painting Pororo Toy Car Fun! Toy learning video for kids, teaching colors in Spanish and English. A great, colorful way for kids to learn while playing with fun Pororo toy cars on a bright playset. Then let's play with Tayo  the Little Bus Toys! In this preschool educational learning video for kids and toddlers, let's learn colors, counting, and vehicle names with three of the best Tayo the Little Bus toy playsets for kids! While playing with these fun and educational toys, we'll teach kids colors, counting, and vehicle names like police car, dump truck, tractor, fire truck and more! Our Tayo the Little Bus toys include the Tayo Bus Depot, Tayo Construction Zone, and the Tayo Rescue Center. Kids will have educational fun watching this preschool learning toy video!<br /><br /><br />You can buy some of the great toys featured in our videos here:<br /><a rel="nofollow" target="blank" href="https://www.genevievesplayhouse.com/shop-toys">https://www.genevievesplayhouse.com/shop-toys</a><br /><br />Subscribe to Genevieve's Playhouse Here:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/GenevievesPlayhouse?sub_confirmation=1">https://www.youtube.com/GenevievesPlayhouse?sub_confirmation=1</a><br /><br />Play these other learning videos for kids!<br />Giant 1 Hour Long Paw Patrol Learning Videos: <a rel="nofollow" target="blank" href="https://youtu.be/1tX2cyvMzX4">https://youtu.be/1tX2cyvMzX4</a><br />Educational Toy Car Videos for Kids: <a rel="nofollow" target="blank" href="https://youtu.be/XN8k8ZkJwiQ">https://youtu.be/XN8k8ZkJwiQ</a><br />PJ Masks Toy Car Race: <a rel="nofollow" target="blank" href="https://youtu.be/k0Twsb22Ld4">https://youtu.be/k0Twsb22Ld4</a><br />Genevieve Teaches Numbers with Cookie Monster: <a rel="nofollow" target="blank" href="https://youtu.be/_X78XfQkLk0">https://youtu.be/_X78XfQkLk0</a><br />Learn Words with Pororo the Little Penguin Toy House: <a rel="nofollow" target="blank" href="https://youtu.be/G-zIQqBE-Jg">https://youtu.be/G-zIQqBE-Jg</a><br />Laguna Blue and Pinkie Pie are Hungry: <a rel="nofollow" target="blank" href="https://youtu.be/oCbegRDxgak">https://youtu.be/oCbegRDxgak</a><br />Learn Colors w/ Paw Patrol Underwater Rescue Mission: <a rel="nofollow" target="blank" href="https://youtu.be/RhrKJvAKsGQ">https://youtu.be/RhrKJvAKsGQ</a><br />Peppa Pig gets a NEW House! <a rel="nofollow" target="blank" href="https://youtu.be/OoMONAVtcDw">https://youtu.be/OoMONAVtcDw</a>{% endraw %}
