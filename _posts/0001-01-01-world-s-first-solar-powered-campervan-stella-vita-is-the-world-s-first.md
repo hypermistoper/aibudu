@@ -1,0 +1,15 @@
+---
+title: "World's FIRST Solar Powered Campervan!"
+image: "https:\/\/i.ytimg.com\/vi\/4vHuldVlpFA\/hqdefault.jpg"
+vid_id: "4vHuldVlpFA"
+categories: "Autos-Vehicles"
+tags: ["electric car youtube channel","why should i buy an electric car","new transport ideas"]
+date: "2022-05-11T10:05:04+03:00"
+vid_date: "2022-05-10T16:00:02Z"
+duration: "PT15M28S"
+viewcount: "53140"
+likeCount: "3907"
+dislikeCount: ""
+channel: "Fully Charged Show"
+---
+{% raw %}Stella Vita is the World's first ever solar powered campervan capable of a staggering 600 Km on a single charge! Aptly described as a &quot;self-sustaining house on wheels&quot; it comes kitted out with a double bed, sofa, kitchen area, a shower, sink and toilet! This could just be the perfect way to go off-grid...! Robert went to meet the engineers at Eindhoven University of Technology to see it for himself.<br /><br />0:00 A solar powered campervan?!<br />1:20 A 3000Km road trip <br />3:55 Better than the back of a Tesla<br />4:38 Back to Uni<br />6:40 600Km of range<br />7:12 Everything is lightweight<br />8:51 Experimental but comfortable <br />9:44 Key design elements <br />10:43 Built in this room<br />11:35 Robert makes his bid <br />12:02 Arriving in Tarifa <br />12:50 Can we buy one?<br />13:30 Bobby's outro<br /><br /><br />Fully Charged LIVE is BACK! Get your tickets now:<br />Amsterdam - 20th, 21st &amp; 22nd May 2022: <a rel="nofollow" target="blank" href="https://fullycharged.live/eu/">https://fullycharged.live/eu/</a><br />San Diego - 10th &amp; 11th September 2022: <a rel="nofollow" target="blank" href="https://fullycharged.live/us/">https://fullycharged.live/us/</a><br /><br />Become a Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/fullychargedshow">https://www.patreon.com/fullychargedshow</a><br />Become a YouTube member: use JOIN button above<br />Subscribe to Fully Charged &amp; the Fully Charged PLUS channels <br />Buy the Fully Charged Guide to Electric Vehicles &amp; Clean Energy : <a rel="nofollow" target="blank" href="https://buff.ly/2GybGt0">https://buff.ly/2GybGt0</a><br /><br />Browse the Fully Charged store: <a rel="nofollow" target="blank" href="https://shop.fullycharged.show/">https://shop.fullycharged.show/</a><br />Visit our LIVE exhibitions in the UK, USA &amp; Europe: <a rel="nofollow" target="blank" href="https://FullyCharged.Show/events">https://FullyCharged.Show/events</a><br />Subscribe for episode alerts and the Fully Charged newsletter: <a rel="nofollow" target="blank" href="https://fullycharged.show/zap-sign-up/">https://fullycharged.show/zap-sign-up/</a><br />Visit: <a rel="nofollow" target="blank" href="https://FullyCharged.Show">https://FullyCharged.Show</a><br />Find us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/fullychargedshw">https://twitter.com/fullychargedshw</a><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/fullychargedshow">https://instagram.com/fullychargedshow</a><br /> <br />#FullyChargedLIVE #FullyChargedEUROPE #solarpower #campervan #vanlife #electricvehicle #EV #solar #innovation{% endraw %}
