@@ -1,0 +1,15 @@
+---
+title: "This is NOT what he meant by tape mod"
+image: "https:\/\/i.ytimg.com\/vi\/6IzGdiVnDJo\/hqdefault.jpg"
+vid_id: "6IzGdiVnDJo"
+categories: "Science-Technology"
+tags: ["meant"]
+date: "2022-05-13T01:35:59+03:00"
+vid_date: "2022-05-10T11:30:03Z"
+duration: "PT13M1S"
+viewcount: "42786"
+likeCount: "2062"
+dislikeCount: ""
+channel: "Switch and Click"
+---
+{% raw %}Thanks to @Hipyo Tech for co-building the Freebird TKL with me. It was a ton of fun to troubleshoot things with someone else. <br /><br />DISCLAIMER: This was a prototype build. KeebsForAll also assured me this won't happen again, so check out the Freebird at <a rel="nofollow" target="blank" href="https://keebsforall.com/products/freebird-tkl">https://keebsforall.com/products/freebird-tkl</a><br /><br />Buy Switch and Click merch: <a rel="nofollow" target="blank" href="https://shopswitchandclick.com/">https://shopswitchandclick.com/</a><br /><br />Video edited by <a rel="nofollow" target="blank" href="https://twitter.com/RyoMedokPlays">https://twitter.com/RyoMedokPlays</a><br /><br />AFFILIATES &amp; REFERRALS<br />---------------------------------------------------<br />✅All of the gear we use: <a rel="nofollow" target="blank" href="https://kit.co/bvan1412/2022-stream-video-setup">https://kit.co/bvan1412/2022-stream-video-setup</a><br />✅For keyboard accessories (switches, keycaps, etc): <a rel="nofollow" target="blank" href="https://kineticlabs.store/switchandclick">https://kineticlabs.store/switchandclick</a> and <a rel="nofollow" target="blank" href="https://prevailkeyco.com/?ref=switchandclick">https://prevailkeyco.com/?ref=switchandclick</a> and <a rel="nofollow" target="blank" href="https://divinikey.com/?rfsn=6411844.9ad41d">https://divinikey.com/?rfsn=6411844.9ad41d</a> (use code switchandclick for 5% off)<br />✅Custom coiled cables: <a rel="nofollow" target="blank" href="https://store.cablemod.com?ref=54789">https://store.cablemod.com?ref=54789</a> <br /> <br />OTHER PLATFORMS<br />---------------------------------------------------  <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/switch_click">https://twitter.com/switch_click</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/switch_and_click">https://instagram.com/switch_and_click</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/switchandclick">https://discord.gg/switchandclick</a><br />All my links: <a rel="nofollow" target="blank" href="https://wlo.link/@switchandclick">https://wlo.link/@switchandclick</a><br /><br />Jake and Betty, LLC is a participant in the Amazon Services LLC Associates Program , an affiliate advertising program designed to provide a means for sites to earn advertising fees by advertising and linking to amazon.com and mechanicalkeyboards.com. As an Amazon Associate, I earn a commission from qualifying purchases. All prices and star-ratings mentioned during the videos are at the time of purchase and what it was when we bought it, they may not be representative of the current data involving the products specified. Links starting with geni.us will most likely lead to Amazon.{% endraw %}
