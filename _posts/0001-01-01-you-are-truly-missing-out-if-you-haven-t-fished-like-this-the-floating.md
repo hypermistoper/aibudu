@@ -1,0 +1,15 @@
+---
+title: "YOU Are TRULY Missing Out If You HAVEN'T Fished Like This"
+image: "https:\/\/i.ytimg.com\/vi\/i5wCPP69avc\/hqdefault.jpg"
+vid_id: "i5wCPP69avc"
+categories: "Sports"
+tags: ["floating worm","best bass fishing","bass fishing"]
+date: "2022-05-13T23:16:57+03:00"
+vid_date: "2022-05-12T21:00:17Z"
+duration: "PT10M2S"
+viewcount: "17374"
+likeCount: "880"
+dislikeCount: ""
+channel: "BassFishingHQ"
+---
+{% raw %}The floating worm is without a doubt one of my favorite bass fishing techniques. At it is super simply to learn!<br /><br />COBB Series Spinning Rod (Kinda Shakey) - <a rel="nofollow" target="blank" href="https://rebrand.ly/50w398p">https://rebrand.ly/50w398p</a><br />TRICK WORM - <a rel="nofollow" target="blank" href="https://rebrand.ly/t9o0abc">https://rebrand.ly/t9o0abc</a><br />Wacky Hooks - <a rel="nofollow" target="blank" href="https://rebrand.ly/mtiduzu">https://rebrand.ly/mtiduzu</a><br />Braid - <a rel="nofollow" target="blank" href="https://rebrand.ly/33dku9v">https://rebrand.ly/33dku9v</a><br />Flourocarbon - <a rel="nofollow" target="blank" href="https://rebrand.ly/e63hurt">https://rebrand.ly/e63hurt</a><br /><br />SUPPORT THE CHANNEL:<br />FINN Fishing Gear - <a rel="nofollow" target="blank" href="https://rebrand.ly/FinnFishing">https://rebrand.ly/FinnFishing</a><br />The BASS Hat - <a rel="nofollow" target="blank" href="https://rebrand.ly/2qf5uh5">https://rebrand.ly/2qf5uh5</a><br />INSTAGRAM - ty_berger<br /><br />SUPPORT MY PARTNERS:<br />Sportsman's Outfitters - <a rel="nofollow" target="blank" href="https://rebrand.ly/SportsmanOutfitters">https://rebrand.ly/SportsmanOutfitters</a><br />MONSTERBASS - <a rel="nofollow" target="blank" href="https://rebrand.ly/MonsterBASS">https://rebrand.ly/MonsterBASS</a><br />Deep Dive App - <a rel="nofollow" target="blank" href="https://rebrand.ly/DeepDiveApp">https://rebrand.ly/DeepDiveApp</a><br />Ark Rods - <a rel="nofollow" target="blank" href="https://rebrand.ly/6745e8y">https://rebrand.ly/6745e8y</a><br />WaterLandCo - <a rel="nofollow" target="blank" href="https://rebrand.ly/Polarized-Sunglasses">https://rebrand.ly/Polarized-Sunglasses</a><br />Cool JAPANESE Lures - <a rel="nofollow" target="blank" href="https://rebrand.ly/JPNTackle">https://rebrand.ly/JPNTackle</a><br /><br />Something that I love about a floating worm is that it is extremely visual. You get to see every bass that eat your bait!<br /><br />BassFishingHQ is dedicated to teaching people how to catch more and bigger bass. I will go over different bass fishing tips &amp; techniques that will put more fish in the boat or on the shore. Whether you are just starting out or a seasoned tournament angler, my goal is to help you catch more bass.<br /><br />DISCLAIMER: Links included in this description might be affiliate links. If you purchase a product or service with the links that I provide I may receive a small commission. There is no additional charge to you! Thank you for supporting my channel so I can continue to provide you with free content each week!{% endraw %}
