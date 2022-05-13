@@ -1,0 +1,15 @@
+---
+title: "External Wall Insulation ~ The Ugly Truth?"
+image: "https:\/\/i.ytimg.com\/vi\/z53EWwDYNao\/hqdefault.jpg"
+vid_id: "z53EWwDYNao"
+categories: "Education"
+tags: ["insulate britain","insulate britain protest","insulate britain campaign"]
+date: "2022-05-13T19:41:33+03:00"
+vid_date: "2022-04-25T18:00:14Z"
+duration: "PT10M21S"
+viewcount: "111249"
+likeCount: "3678"
+dislikeCount: ""
+channel: "Skill Builder"
+---
+{% raw %}Roger looks at the disadvantages of external wall insulation and the misguided efforts of the Insulate Britain protests.<br /><br />EWI Store: <a rel="nofollow" target="blank" href="https://ewistore.co.uk">https://ewistore.co.uk</a><br /><br />Weber Training Academy: <a rel="nofollow" target="blank" href="https://www.uk.weber/training/academy">https://www.uk.weber/training/academy</a><br /><br />Insulation Superstore - external wall insulation diagram<br /><a rel="nofollow" target="blank" href="https://www.insulationsuperstore.co.uk/help-and-advice/project-guides/insulation/how-to-install-external-wall-insulation/attachment/external-wall-insulation-diagram/">https://www.insulationsuperstore.co.uk/help-and-advice/project-guides/insulation/how-to-install-external-wall-insulation/attachment/external-wall-insulation-diagram/</a><br /><br />Look out for our future videos that will cover:<br /><br />• External wall insulation grants<br />• The external wall insulation DIY options<br />• Finding external wall insulation installers<br />• The best external wall insulation<br />• Using an external wall insulation cost calculator<br /><br />===============================================<br />#EWI #ExternalWallInsulation #InsulateBritain<br /><br />🔗 Skill Builder Link Tree: <a rel="nofollow" target="blank" href="https://linktr.ee/skillbuilder">https://linktr.ee/skillbuilder</a><br /><br />👍 Tell us what you like: <a rel="nofollow" target="blank" href="http://skill-builder.uk/vote">http://skill-builder.uk/vote</a><br /><br />📪 Ask Skill Builder: <a rel="nofollow" target="blank" href="http://skill-builder.uk/send">http://skill-builder.uk/send</a><br /><br />🎥 TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@skillbuilder">https://www.tiktok.com/@skillbuilder</a><br /><br />📖 Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/skillbuilderchannel">https://www.facebook.com/skillbuilderchannel</a><br /><br />📷 Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/skill_builder">https://www.instagram.com/skill_builder</a><br /><br />🛒 As an Amazon Associate, we earn from qualifying purchases<br /><br />🎬 All videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/skillbuilderchannel/videos">https://www.youtube.com/skillbuilderchannel/videos</a><br /><br />💧 We Support Charity Water: <a rel="nofollow" target="blank" href="https://www.charitywater.org">https://www.charitywater.org</a><br /><br />◾ Out of respect to our channel sponsors and the wide variety of people who watch our videos, we'll remove comments that do not follow common standards of politeness and decency.{% endraw %}
