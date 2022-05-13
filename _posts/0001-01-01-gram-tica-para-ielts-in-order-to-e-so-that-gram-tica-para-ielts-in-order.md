@@ -1,0 +1,15 @@
+---
+title: "Gramática para IELTS: in order to e so that."
+image: "https:\/\/i.ytimg.com\/vi\/ye9numFCOSg\/hqdefault.jpg"
+vid_id: "ye9numFCOSg"
+categories: "Education"
+tags: ["ingles","aprender ingles","estudar ingles"]
+date: "2022-05-14T01:22:59+03:00"
+vid_date: "2021-02-27T10:27:20Z"
+duration: "PT25M40S"
+viewcount: "1750"
+likeCount: "146"
+dislikeCount: ""
+channel: "Soraya Quirino"
+---
+{% raw %}Gramática para IELTS: in order to e so that.<br /><br />Meu nome é Soraya Quirino, sou professora de inglês especialista em IELTS com 17 anos de experiência. Moro em Montreal, no Canadá, e ofereço aulas preparatórias para IELTS, aulas de inglês regular e cursos self-study de inglês online. <br /><br /><br />Para saber mais sobre o meu trabalho visite meu site: <a rel="nofollow" target="blank" href="http://www.sorayaquirino.com">http://www.sorayaquirino.com</a>  <br /><br />Para dicas rápidas de IELTS me siga no Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/soraya.quirino">https://instagram.com/soraya.quirino</a><br /><br />------------------------------<br /><br /><br />Livros recomendados para IELTS:<br /><br />Cambridge Grammar for IELTS - <a rel="nofollow" target="blank" href="https://amzn.to/3fxz1Ic">https://amzn.to/3fxz1Ic</a><br />Cambridge Vocabulary for IELTS - <a rel="nofollow" target="blank" href="https://amzn.to/2SQ9j86">https://amzn.to/2SQ9j86</a><br />Cambridge Vocabulary for Ielts Advanced Band 6.5+ - <a rel="nofollow" target="blank" href="https://amzn.to/3dt0fOd">https://amzn.to/3dt0fOd</a><br />Ielts 14 General Training Student's Book 2019 - <a rel="nofollow" target="blank" href="https://amzn.to/2Whm0Lk">https://amzn.to/2Whm0Lk</a><br />IELTS 14 Academic Student's Book 2019 - <a rel="nofollow" target="blank" href="https://amzn.to/2WRtEev">https://amzn.to/2WRtEev</a><br /><br /><br />Livros de leitura (graded readers) para todos os níveis: <br /><br /><br />Graded readers – Elementary level<br />Penguin readers 2: The Mysterious Island Book – Level 2 - <a rel="nofollow" target="blank" href="https://amzn.to/3chmLt8">https://amzn.to/3chmLt8</a><br />Penguin readers 2: Three Short Stories Of Sherlock Holmes - <a rel="nofollow" target="blank" href="https://amzn.to/35Jbu2z">https://amzn.to/35Jbu2z</a><br /><br /><br />Graded readers – Pre-intermediate level<br />Oxford Bookworms Library: Picture of Dorian Gray - <a rel="nofollow" target="blank" href="https://amzn.to/2WC6QPJ">https://amzn.to/2WC6QPJ</a><br /><br /><br /><br />Graded readers – Intermediate level<br />King Solomon's Mines (Pearson English Graded Readers) - <a rel="nofollow" target="blank" href="https://amzn.to/2YIHRwy">https://amzn.to/2YIHRwy</a><br /><br /><br /><br />Graded readers – Advanced level<br />Born A Crime: Stories from a South African Childhood - <a rel="nofollow" target="blank" href="https://amzn.to/3fp2dkq">https://amzn.to/3fp2dkq</a><br /><br /><br /><br />#ielts #ieltsprep #ieltstest #ieltsexam #ieltswriting #ieltslistening #ieltsreading #inglesnocanada #brasileirosnocanada #brasileirosemtoronto #brasileirosemvancouver #expressentry #brasileirosemwinnipeg #materialielts #livroielts{% endraw %}
