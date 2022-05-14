@@ -1,0 +1,15 @@
+---
+title: "What Amber Heard's Body Language Tells Us In Her 2022 Trial Testimony"
+image: "https:\/\/i.ytimg.com\/vi\/lERDFc4Hgbc\/hqdefault.jpg"
+vid_id: "lERDFc4Hgbc"
+categories: "Education"
+tags: ["Logan Portenier","Observe","Mentalist"]
+date: "2022-05-14T15:12:22+03:00"
+vid_date: "2022-05-10T07:22:57Z"
+duration: "PT27M36S"
+viewcount: "747077"
+likeCount: "37695"
+dislikeCount: ""
+channel: "Observe"
+---
+{% raw %}1ST ANALYSIS: <a rel="nofollow" target="blank" href="https://youtu.be/hQFFm_X2lps">https://youtu.be/hQFFm_X2lps</a><br />Depp Analysis: <a rel="nofollow" target="blank" href="https://youtu.be/s_goakXDstc">https://youtu.be/s_goakXDstc</a><br /><br />2022 Amber Heard testimony body language and nonverbal analysis.<br /><br />Save Money on Your College Degree<br />Observe is partnered with the Emotional Intelligence Academy in the UK to offer discounts of 10%-50% on your education including a fully accredited Master's Degree! Just follow the link: <a rel="nofollow" target="blank" href="https://www.eiagroup.com/observe">https://www.eiagroup.com/observe</a><br /><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/observeentertainment">https://www.patreon.com/observeentertainment</a><br />Other Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/LoganPortenier">https://www.youtube.com/c/LoganPortenier</a><br />My Wife's (Megan's) channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/MeganPortenier">https://www.youtube.com/c/MeganPortenier</a><br />Observe Merch Shop: <a rel="nofollow" target="blank" href="https://teespring.com/stores/observe-4">https://teespring.com/stores/observe-4</a><br />Audible Trial Link: <a rel="nofollow" target="blank" href="http://www.audibletrial.com/observe">http://www.audibletrial.com/observe</a><br />Subscribe: <a rel="nofollow" target="blank" href="http://www.youtube.com/c/ObserveWithLogan?sub_confirmation=1">http://www.youtube.com/c/ObserveWithLogan?sub_confirmation=1</a><br /><br />INTRO/OUTRO MUSIC BY AMARIA: <br />––––––––––––––––––––––––––––––<br />&quot;Funky Souls&quot; | &quot;Elizabeth's Groove&quot; | &quot;Lovely Swindler&quot; by Amarià <a rel="nofollow" target="blank" href="https://soundcloud.com/amariamusique">https://soundcloud.com/amariamusique</a><br />Creative Commons — Attribution 3.0 Unported  — CC BY 3.0 <br />Free Download / Stream: <a rel="nofollow" target="blank" href="http://bit.ly/Funky-Souls">http://bit.ly/Funky-Souls</a><br />Music promoted by Audio Library <a rel="nofollow" target="blank" href="https://youtu.be/jFMCyqKF-EE">https://youtu.be/jFMCyqKF-EE</a><br />Lovely Swindler by Amarià <a rel="nofollow" target="blank" href="https://soundcloud.com/amariamusique">https://soundcloud.com/amariamusique</a><br />Free Download / Stream: <a rel="nofollow" target="blank" href="https://bit.ly/lovely-swindler">https://bit.ly/lovely-swindler</a><br />––––––––––––––––––––––––––––––<br />Business Email: observe.contact@gmail.com{% endraw %}
