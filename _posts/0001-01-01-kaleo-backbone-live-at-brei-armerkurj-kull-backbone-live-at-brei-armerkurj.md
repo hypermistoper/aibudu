@@ -1,0 +1,15 @@
+---
+title: "KALEO - Backbone (LIVE at Breiðarmerkurjökull)"
+image: "https:\/\/i.ytimg.com\/vi\/bv5RuxhBEqk\/hqdefault.jpg"
+vid_id: "bv5RuxhBEqk"
+categories: "Music"
+tags: ["kaleo","kaleo music","way down we go"]
+date: "2022-05-14T22:54:05+03:00"
+vid_date: "2022-03-11T18:00:04Z"
+duration: "PT5M35S"
+viewcount: "1672694"
+likeCount: "47433"
+dislikeCount: ""
+channel: "KALEO"
+---
+{% raw %}Backbone - Live at Breiðarmerkurjökull<br /><br />Stream/Download here: <a rel="nofollow" target="blank" href="https://kaleo.lnk.to/backbone">https://kaleo.lnk.to/backbone</a><br />Get the album Surface Sounds out now: <a rel="nofollow" target="blank" href="https://kaleo.lnk.to/surfacesounds">https://kaleo.lnk.to/surfacesounds</a><br /><br />See Kaleo on tour - get tickets: <a rel="nofollow" target="blank" href="https://officialkaleo.com/tour">https://officialkaleo.com/tour</a><br /><br />Music and Lyrics by JJ Julius Son<br /><br />Produced: Rough Cult<br /><br />Director: Baldvin Vernharðsson<br /><br />DOP: Bryngeir Vattnes<br /><br />Set photography: Berglaug Petra Garðarsdóttir<br /><br />Producer / AD: Guðmundur Hólm<br /><br />Data wrangler: Gabríel Bachmann<br /><br />Documentary camera: Sindri Steinarsson<br /><br />Set sound: Daníel Kári Árnason<br /><br />Drone operator: Arnar Þór Þórsson <br /><br />Gaffer: Alexander Sær Elfarsson<br /><br />Location manager/Location Scout: Sigurður Guðmundsson<br /><br />1st AC: Róbert Magnússon<br /><br />Sound engineer: Teitur Ingi Sigurðsson<br /><br />Make Up &amp; Styling: Kolbrún Anna Vignisdóttir<br /><br />PA: Sölvi Bernódus Helgason<br /><br />Mountain guide: Stephan Mantler<br /><br />Mountain guide: Guillaume Martin Kollibay<br /><br />Driver: Anton Crivello<br /><br />Medic: Þórlaug Sveinsdóttir<br /><br /><br />Music mixed and mastered by Arnar Guðjónsson at Aeronaut Studios<br /><br />Special thanks<br /> <br />Þorleifur Gaukur Davíðsson<br /><br />STUDIO K6<br /><br />66 north<br /><br />Ölgerðin<br /><br />Wasteland<br /><br />Reykjavík photo<br /><br />Gerði Guesthouse<br /><br />www.gocarrental.is<br /><br />www.vatnajokulsthjodgardur.is<br /><br />www.timberland.is<br /><br />www.mymedia4you.com<br /><br />www.localicelander.is<br /><br />www.southeasticeland.is<br /><br />KALEO<br />JJ Julius Son<br />David Antonsson<br />Daniel Kristjansson<br />Rubin Pollock<br /><br />Subscribe for more official content from Kaleo:<br /><a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/KaleoSubscribe">https://Atlantic.lnk.to/KaleoSubscribe</a><br /><br />Follow Kaleo<br /><a rel="nofollow" target="blank" href="https://officialkaleo.com">https://officialkaleo.com</a><br /><a rel="nofollow" target="blank" href="https://facebook.com/officialkaleo">https://facebook.com/officialkaleo</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/officialkaleo">https://instagram.com/officialkaleo</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/officialkaleo">https://twitter.com/officialkaleo</a><br /><br />#Kaleo #Backbone #LiveFromIceland{% endraw %}
