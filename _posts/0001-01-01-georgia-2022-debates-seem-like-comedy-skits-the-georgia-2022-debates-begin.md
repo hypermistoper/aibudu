@@ -1,0 +1,15 @@
+---
+title: "Georgia 2022 Debates Seem Like Comedy Skits"
+image: "https:\/\/i.ytimg.com\/vi\/UPi7dAdekKQ\/hqdefault.jpg"
+vid_id: "UPi7dAdekKQ"
+categories: "News-Politics"
+tags: ["georgia 2022 debate","georgia primary debate","georgia senate primary debate"]
+date: "2022-05-15T23:56:28+03:00"
+vid_date: "2022-05-03T00:15:00Z"
+duration: "PT9M20S"
+viewcount: "457885"
+likeCount: "13197"
+dislikeCount: ""
+channel: "David Pakman Show"
+---
+{% raw %}--The Georgia 2022 debates begin, including Marjorie Taylor Greene's House debate and the Gubernatorial debate, and both are disastrous<br />💰 Get $5 just for signing up for FREE at <a rel="nofollow" target="blank" href="https://privacy.com/pakman">https://privacy.com/pakman</a><br />---<br />Become a Member: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/membership">https://www.davidpakman.com/membership</a><br />Become a Patron: <a rel="nofollow" target="blank" href="https://www.patreon.com/davidpakmanshow">https://www.patreon.com/davidpakmanshow</a><br />Book David Pakman: <a rel="nofollow" target="blank" href="https://www.cameo.com/davidpakman">https://www.cameo.com/davidpakman</a><br />---<br />Subscribe to the SECOND channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/pakmanlive">https://www.youtube.com/pakmanlive</a><br />Follow David on Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/dpakman">http://www.twitter.com/dpakman</a><br />David on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/david.pakman">http://www.instagram.com/david.pakman</a><br />TDPS Subreddit: <a rel="nofollow" target="blank" href="http://www.reddit.com/r/thedavidpakmanshow/">http://www.reddit.com/r/thedavidpakmanshow/</a><br />Pakman Discord: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/discord">https://www.davidpakman.com/discord</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/davidpakmanshow">http://www.facebook.com/davidpakmanshow</a><br />Leave a Voicemail Line: (219)-2DAVIDP<br />---<br />David tech:<br />-Camera: Sony PXW-X70 <a rel="nofollow" target="blank" href="https://amzn.to/3emv1v1">https://amzn.to/3emv1v1</a><br />-Microphone: Shure SM7B: <a rel="nofollow" target="blank" href="https://amzn.to/3hEVtSH">https://amzn.to/3hEVtSH</a><br />-Voice Processor: dbx 266xs <a rel="nofollow" target="blank" href="https://amzn.to/3B1SV8N">https://amzn.to/3B1SV8N</a><br />-Stream Controller: Elgato Stream Deck <a rel="nofollow" target="blank" href="https://amzn.to/3B4jPNq">https://amzn.to/3B4jPNq</a><br />-Microphone Cloudlifter: <a rel="nofollow" target="blank" href="https://amzn.to/2T9bhne">https://amzn.to/2T9bhne</a><br /><br />-Timely news is important! We upload new clips every day! Make sure to subscribe!<br /><br />Get 2 free months of Artlist: <a rel="nofollow" target="blank" href="https://bit.ly/3DsDxnr">https://bit.ly/3DsDxnr</a><br /><br />-Timely news is important! We upload new clips every day! Make sure to subscribe!<br /><br />Broadcast on May 2, 2022<br /><br />#davidpakmanshow #georgia #2022midterms{% endraw %}
