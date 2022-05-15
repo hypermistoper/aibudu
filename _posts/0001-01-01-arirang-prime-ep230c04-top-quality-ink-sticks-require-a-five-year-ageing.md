@@ -1,0 +1,15 @@
+---
+title: "Arirang Prime - Ep230C04 Top quality ink sticks require a five year ageing process"
+image: "https:\/\/i.ytimg.com\/vi\/nAO-C1PbnsM\/hqdefault.jpg"
+vid_id: "nAO-C1PbnsM"
+categories: "Nonprofits-Activism"
+tags: ["arirang","korea","korean"]
+date: "2022-05-15T03:46:46+03:00"
+vid_date: "2014-03-12T04:57:27Z"
+duration: "PT8M51S"
+viewcount: "36913"
+likeCount: "583"
+dislikeCount: ""
+channel: "Arirang Culture"
+---
+{% raw %}Arirang Prime Ep230<br /><br />Korean Calligraphy, Spirit of the East<br />Calligraphy is the culmination of thousands of years of Oriental art. The process of writing calligraphy, is also an expression of one's spirit, making it a unique form of art. But how is it possible to mirror one's inner thoughts on paper through writings formed with simple brush strokes? To answer that question, this documentary goes back 200 years ago to trace the life of Kim Jeong-hui. Through his works, viewers will be introduced to the marvelous achievement of Korean calligraphy and gain insights on Oriental art and its underlying philosophy. <br />Calligraphy, a spiritual art that is expressed through letters<br />Lines and dots are the main structures of calligraphy. At first glance, calligraphy may look easy, but that is not the case. Calligraphy is an art where the act of writing produces a vibrant, rhythmical beauty. Engaging in calligraphy is also a type of ascetic exercise. A person with a twisted mind can only write twisted letters. Thus, it is said that calligraphy is a reflection of the writer's character. Where do people need to begin to understand the ethos of Korean calligraphy? <br />Munbangsawu, the essence of calligraphy<br />In calligraphy, every writing instrument and stationery is used with purpose. Munbangsawu (brush, ink stick, paper, and inkstone) are the essential tools in calligraphy, and each of these items contain the spirit of the craftsmen who made them. It takes 150 manual processes to make a single brush. Top-quality ink sticks require a five-year ageing process. It's the hardest rocks that make the best inkstones. Hanji paper is a work of art in itself. How is munbangsawu, which enhances the artistic quality of calligraphy, made? <br />Known for his fierce artistic spirit, Kim Jeong-hui was the first famous Hallyu figure<br />As an intellectual, Kim Jeong-hui was also talented in many different fields. He was born to a powerful family clan and received classical education based on Chinese classics. He was groomed for success. He drew envy from his political opponents who planned his downfall by having him sent into exile in Jeju, which was cut off from the rest of the society by the treacherous waters around the island. He spent nearly ten years in exile and managed to survive by turning to calligraphy as his salvation. His chusache style and &quot;Saehando&quot; was developed during his time in Jeju. How did Kim create such masterpieces of Oriental art under such difficult circumstances? <br />Kim's calligraphy works are widely acclaimed even to this day. This documentary brings to viewers the remarkable life and works of Kim Jeong-hui.{% endraw %}
