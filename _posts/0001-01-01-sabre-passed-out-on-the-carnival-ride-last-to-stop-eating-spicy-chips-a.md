@@ -1,0 +1,15 @@
+---
+title: "SABRE PASSED OUT ON THE CARNIVAL RIDE"
+image: "https:\/\/i.ytimg.com\/vi\/sAqEYQHR93c\/hqdefault.jpg"
+vid_id: "sAqEYQHR93c"
+categories: "People-Blogs"
+tags: ["norris nuts","family friendly","family vlog"]
+date: "2022-05-15T14:49:28+03:00"
+vid_date: "2022-05-14T09:15:02Z"
+duration: "PT28M47S"
+viewcount: "1224431"
+likeCount: "45336"
+dislikeCount: ""
+channel: "The Norris Nuts"
+---
+{% raw %}LAST TO STOP EATING SPICY CHIPS <a rel="nofollow" target="blank" href="https://youtu.be/lznLm5l7YiA">https://youtu.be/lznLm5l7YiA</a><br />HELP US MATCH OUR DREAM OUTFITS UP <a rel="nofollow" target="blank" href="https://youtu.be/kKChVuANeds">https://youtu.be/kKChVuANeds</a><br />BIGGY'S SURPRISE HOLIDAY BIRTHDAY <a rel="nofollow" target="blank" href="https://youtu.be/W9LlVUpOLLI">https://youtu.be/W9LlVUpOLLI</a><br />WHO CAN EAT MOST FRIES <a rel="nofollow" target="blank" href="https://youtu.be/8laG-jfyTC8">https://youtu.be/8laG-jfyTC8</a><br /><br />If you liked this video you may also like these other videos...<br />WHICH NORRIS NUT CAN TAKE BEST UNDERWATER PHOTO <a rel="nofollow" target="blank" href="https://youtu.be/YlNC5_pYgcw">https://youtu.be/YlNC5_pYgcw</a><br />WHO CAN EAT MOST CHICKEN NUGGETS <a rel="nofollow" target="blank" href="https://youtu.be/DtWpSMjP5N4">https://youtu.be/DtWpSMjP5N4</a><br />Our Latest challenges here <a rel="nofollow" target="blank" href="https://youtu.be/7VNvxbEN1sI">https://youtu.be/7VNvxbEN1sI</a> <br /><br />#familyvlog #challenge #norrisnuts<br />In this video the Norris Nuts go to the carnival and Eat Carnival Food for 24hrs but there also is another challenge. If Sabre can go on the scariest ride at the carnival she will win a Dream Holiday for all the Norris Nuts. <br /><br />Check out our other channels here <br />NORRIS NUTS GAMING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSGAMING">http://bit.ly/NORRISNUTSGAMING</a><br />MAIN CHANNEL <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTS">http://bit.ly/NORRISNUTS</a><br />NORRIS NUTS DO STUFF <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSDOSTUFF">http://bit.ly/NORRISNUTSDOSTUFF</a><br />NORRIS NUTS COOKING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCOOKING">http://bit.ly/NORRISNUTSCOOKING</a><br />NORRIS NUTS CLIPS <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCLIPS">http://bit.ly/NORRISNUTSCLIPS</a><br />NORRIS NUTS SQUAD (adventures) <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSSQUAD">http://bit.ly/NORRISNUTSSQUAD</a><br /><br />Our MOST POPULAR VIDEOS HERE <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS">https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS</a><br /><br />*Comment on our Community Tab on the Channel Page<br /><br />MAKE CLOSED CAPTIONS (subtitles) in your language here <a rel="nofollow" target="blank" href="http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2">http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2</a>{% endraw %}
