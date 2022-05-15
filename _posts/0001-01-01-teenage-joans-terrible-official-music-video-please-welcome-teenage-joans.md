@@ -1,0 +1,15 @@
+---
+title: "Teenage Joans - Terrible [Official Music Video]"
+image: "https:\/\/i.ytimg.com\/vi\/01RLvVdkUC4\/hqdefault.jpg"
+vid_id: "01RLvVdkUC4"
+categories: "Music"
+tags: ["Teenage","Joans","Terrible"]
+date: "2022-05-15T04:46:34+03:00"
+vid_date: "2022-04-28T22:00:28Z"
+duration: "PT4M55S"
+viewcount: "3203"
+likeCount: "167"
+dislikeCount: ""
+channel: "Domestic La La"
+---
+{% raw %}Please welcome Teenage Joans to the Domestic La La gang!<br /><br />Terrible is out now - <a rel="nofollow" target="blank" href="https://teenagejoans.lnk.to/Terrible">https://teenagejoans.lnk.to/Terrible</a><br /><br />Created By Lemonade City @lemonadecity <br />Directors Tom Parolin &amp; Kamryn Henschke 1st AD Nic Hutton<br />Edit &amp; Colour Lemonade City<br />DOP Riley Scott<br />1st AC Ella Burton<br />2nd AC Mayah Salter<br />Art Dep Rachel Whitford<br />Gaff Slavi Gait<br />SFX Artist Jade Lovett<br />Hair &amp; Makeup Evangeline Yiakoumis <br />VFX Jac Carey<br />Best Boy Austin Arruzzolo<br />Key Grip Joseph Clarke<br />Unit Iona McDonough<br />Catering Jack Bennett<br />Foley Peter Spiniello<br />BTS &amp; Design William Johnstone<br /><br />Starring:<br />Teenage Joans<br />Brian Gilbertson, Chris Koch, Jarrad Nettle, Amanda Almogela, Aliesha Burchell, Lewis Lake ,Audrey Rosser, Scarlett Archer, Jordan Tito, Chanel Balaza, Ashlee Heffernan, Reuben Gore, Samuel Joseph, Niko Rails, Samantha James, Jess Rallis, Nadia Peterson<br /><br />Special Thanks:<br />Suzi Lake, Angela Rosser, Lisa Borg, Roger &amp; Jane Parolin, Rohan Lockhart, Campbell Clarke, McBride Family, AAA Casting, Joe Parisi, Luke Franceschini, Daniel Steinhart, Gags &amp; Bubs.<br /><br />Filmed on the land of the KAURNA PEOPLE.<br /><br />You hold me like you’re gonna drop me<br />Knowing you’ll never do it softly<br />Slipping through your fingers with the grease <br /><br />Then you told me I taste like a lolly <br />So sweet, but only when you want me<br />Changing like a channel on TV<br /><br />I saw the newspaper on the <br />Front lawn of the neighbours and thought<br />&quot;They haven’t brought it inside yet&quot;<br />Now I'm remembering the things I can't forget<br /><br />I've been figuring out<br />How to figure things out<br />But you’d rather your eyes shut tightly<br />So you don’t have to see what I see<br />You’ve been living with doubt<br />Leaves a bad taste in your mouth<br />Now I’ve been holding on too long<br />If you’re gonna drop me do it softly <br /><br />It’s such a terrible time to<br />Be the one, the bubblegum, the glue that’s stuck to you<br />Why can’t I scrub me off of you? <br /><br />I've been figuring out<br />How to figure things out<br />But you’d rather your eyes shut tightly<br />So you don’t have to see what I see<br />You’ve been living with doubt<br />Leaves a bad taste in your mouth<br />Now I’ve been holding on too long<br />If you’re gonna drop me do it softly <br /><br />It's terrible but it'll do<br />I'm terrible but I'm not you <br />It's terrible but it'll do<br />I'm terrible and so are you<br /><br />#TeenageJoans #Terrible #DomesticLaLa{% endraw %}
