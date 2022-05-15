@@ -1,0 +1,15 @@
+---
+title: "How to make your houses Safer! | Terraria 1.4.3"
+image: "https:\/\/i.ytimg.com\/vi\/bH-ZCy_LeCw\/hqdefault.jpg"
+vid_id: "bH-ZCy_LeCw"
+categories: "Gaming"
+tags: ["Terraria","Terraria Timelapse","Timelapse"]
+date: "2022-05-15T14:14:03+03:00"
+vid_date: "2022-03-17T17:36:03Z"
+duration: "PT11M31S"
+viewcount: "76058"
+likeCount: "5358"
+dislikeCount: ""
+channel: "Khaios"
+---
+{% raw %}Today, I show you some tips and tricks to make your house safer from enemies and invasions. From zombie proofing to traps, this video will help you keep your npcs safe, with some fun house designs to boot!<br /><br />Art and animations by MythicalWater<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/mythicalwater">https://www.youtube.com/mythicalwater</a><br />_________________________________<br /><br />You can support me on Patreon for various rewards:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/khaios">https://www.patreon.com/khaios</a><br /><br />Becoming a YouTube member helps your comments stand out:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC369-iFdOQjLKXE4v7sP6wQ/join">https://www.youtube.com/channel/UC369-iFdOQjLKXE4v7sP6wQ/join</a><br /><br />Or you can donate directly:<br /><a rel="nofollow" target="blank" href="https://bit.ly/khaiosdonate">https://bit.ly/khaiosdonate</a><br />_________________________________<br /><br />You can also find me at:<br />◖ <a rel="nofollow" target="blank" href="https://www.youtube.com/khaioslive">https://www.youtube.com/khaioslive</a> ◗<br />◖ <a rel="nofollow" target="blank" href="https://www.twitch.tv/khaioslive">https://www.twitch.tv/khaioslive</a> ◗<br />◖ <a rel="nofollow" target="blank" href="http://bit.ly/KhaiosTwitter">http://bit.ly/KhaiosTwitter</a> ◗<br />◖ <a rel="nofollow" target="blank" href="http://bit.ly/KhaiosTCF">http://bit.ly/KhaiosTCF</a> ◗<br />◖ <a rel="nofollow" target="blank" href="https://www.reddit.com/r/TheKhaiosRealm/">https://www.reddit.com/r/TheKhaiosRealm/</a> ◗<br />_________________________________<br /><br />Music (in order played): <br /><br />8-Bit March by Twin Musicom is licensed under a Creative Commons Attribution 4.0 license. <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br />Artist: <a rel="nofollow" target="blank" href="http://www.twinmusicom.org/">http://www.twinmusicom.org/</a><br /><br />Blue Dream - Cheel<br />Lazy Walk - Cheel<br />Soft Feeling - Cheel<br />Sunday Rain - Cheel<br /><br />8bit Dungeon Boss - Video Classica by Kevin MacLeod is licensed under a Creative Commons Attribution license (<a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/)">https://creativecommons.org/licenses/by/4.0/)</a><br />Source: <a rel="nofollow" target="blank" href="http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1200067">http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1200067</a><br />Artist: <a rel="nofollow" target="blank" href="http://incompetech.com/">http://incompetech.com/</a><br /><br />#Khaios #Terraria{% endraw %}
