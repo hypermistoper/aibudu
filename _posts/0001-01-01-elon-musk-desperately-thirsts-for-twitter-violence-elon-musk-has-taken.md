@@ -1,0 +1,15 @@
+---
+title: "Elon Musk Desperately Thirsts For Twitter Violence"
+image: "https:\/\/i.ytimg.com\/vi\/ofkn_EY1TAY\/hqdefault.jpg"
+vid_id: "ofkn_EY1TAY"
+categories: "News-Politics"
+tags: ["220510__DR11ElonMuskBP","News","Politics"]
+date: "2022-05-16T16:25:42+03:00"
+vid_date: "2022-05-15T19:00:25Z"
+duration: "PT4M52S"
+viewcount: "8313"
+likeCount: "521"
+dislikeCount: ""
+channel: "The Damage Report"
+---
+{% raw %}Elon Musk has taken to Twitter, while going back and forth about buying the company, to encourage violence between the right and left. John Iadarola and Yasmin Khan break it down on The Damage Report. <br /><br />Read more here:<br /><br />Twitter Has ‘Strong Left-Wing Bias’: Elon Musk Responds to Tweet Encouraging Violence Against Pro-Lifers - <a rel="nofollow" target="blank" href="https://www.mediaite.com/politics/twitter-has-strong-left-wing-bias-elon-musk-responds-to-tweet-encouraging-violence-against-pro-lifers/?utm_source=pocket_mylist">https://www.mediaite.com/politics/twitter-has-strong-left-wing-bias-elon-musk-responds-to-tweet-encouraging-violence-against-pro-lifers/?utm_source=pocket_mylist</a><br /><br />&quot;Twitter has an obvious and strong left-wing bias, Elon Musk declared in a tweet on Monday. The sentiment is in line with statements the soon-to-be-owner of Twitter has said in the past about the platform, and the newest accusation came in response to a tweet highlighting a reporter calling for violence against pro-life activists amid controversy surrounding the recent opinion draft leak that suggests Roe v. Wade could potentially be overturned by the Supreme Court.<br /><br />“Twitter [obviously] has a strong left wing bias,” Musk tweeted in response to a post from right-wing conspiracy theorist and MAGA Mindset author Mike Cernovich.&quot;<br /><br />**<br /><br />Become a TDR YouTube Member: <a rel="nofollow" target="blank" href="http://www.youtube.com/thedamagereport/join">http://www.youtube.com/thedamagereport/join</a> <br /><br />Follow The Damage Report on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheDamageReportTYT/">https://www.facebook.com/TheDamageReportTYT/</a><br /><br />Help build the Home of the Progressives <a rel="nofollow" target="blank" href="http://tyt.com/JOIN">http://tyt.com/JOIN</a><br /><br />Subscribe to The Damage Report YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/thedamagereport?sub_confirmation=1">https://www.youtube.com/thedamagereport?sub_confirmation=1</a><br /><br />Follow The Damage Report on TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@thedamagereport?lang=en">https://www.tiktok.com/@thedamagereport?lang=en</a><br /><br />Follow The Damage Report on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/thedamagereport/">http://www.instagram.com/thedamagereport/</a> <br /><br />Follow The Damage Report on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TheDamageReport">https://twitter.com/TheDamageReport</a><br /><br />#TheDamageReport #JohnIadarola #TheYoungTurks{% endraw %}
