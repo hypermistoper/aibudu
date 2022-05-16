@@ -1,0 +1,15 @@
+---
+title: "Desi People In Restaurant | Unique MicroFilms | Comedy Skit | UMF"
+image: "https:\/\/i.ytimg.com\/vi\/CVkohGNg3T8\/hqdefault.jpg"
+vid_id: "CVkohGNg3T8"
+categories: "Entertainment"
+tags: ["UniqueMicroFilms","people in restaurant","restaurant funny video"]
+date: "2022-05-16T21:26:34+03:00"
+vid_date: "2022-05-15T13:00:05Z"
+duration: "PT8M15S"
+viewcount: "209106"
+likeCount: "10268"
+dislikeCount: ""
+channel: "Unique MicroFilms"
+---
+{% raw %}#uniquemicrofilms #desipeopleinrestaurant #comedyskit<br /><br />UNIQUE MICROFILMS:<br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/uniquemicrofilms">https://www.youtube.com/uniquemicrofilms</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/uniquemicrofilms">https://www.facebook.com/uniquemicrofilms</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/uniquemicrofilms">https://www.instagram.com/uniquemicrofilms</a><br />----------------------------------------------------------------------------------------------------------------------------------------<br />SAMI CHAUDHRY:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/isamichaudry">https://www.facebook.com/isamichaudry</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/isamichaudhry">https://www.instagram.com/isamichaudhry</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCjb-PvcTeeWgVQ2Y8dZeeBA">https://www.youtube.com/channel/UCjb-PvcTeeWgVQ2Y8dZeeBA</a><br />----------------------------------------------------------------------------------------------------------------------------------------<br />ALI HAIDER FAROOK:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/haideralifarook">https://www.facebook.com/haideralifarook</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/alihaiderfarook">https://www.instagram.com/alihaiderfarook</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/alihaiderfarook">https://www.youtube.com/alihaiderfarook</a><br />----------------------------------------------------------------------------------------------------------------------------------------<br />AMEER HAMZA:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/rj.hamzaistic">https://www.facebook.com/rj.hamzaistic</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/rjameerhamza">https://www.instagram.com/rjameerhamza</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCMjldOe2tnh-aMe1tCAe24g">https://www.youtube.com/channel/UCMjldOe2tnh-aMe1tCAe24g</a><br />----------------------------------------------------------------------------------------------------------------------------------------<br /><br />SEARCH TAGS:<br />#uniquemicrofilms #unique #microfilms #umf #funny #funnyvideos #funnyvines #comedyvideos #pakistan #youtubevideos #samichaudhry #alihaider #ameerhamza #comedy #comedysketch #shortfilms{% endraw %}
