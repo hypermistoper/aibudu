@@ -1,0 +1,15 @@
+---
+title: "Johnny Depp and Judge annoyed by lies... 🤦‍♂️"
+image: "https:\/\/i.ytimg.com\/vi\/lfsqrq6vxxM\/hqdefault.jpg"
+vid_id: "lfsqrq6vxxM"
+categories: "Gaming"
+tags: ["Johnny","Judge","annoyed"]
+date: "2022-05-16T11:44:13+03:00"
+vid_date: "2022-05-14T14:00:15Z"
+duration: "PT1M16S"
+viewcount: "3453621"
+likeCount: "59667"
+dislikeCount: ""
+channel: "CaiBurz"
+---
+{% raw %}Amber Heard Says She Hasn't Hit Him??<br />Johnny Depp Is Annoyed...<br /><br />Respect Both Johnny Depp And Amber Heard This Video Is Jokingly!<br /><br />Show Support! By Clicking the Thanks Icon Next To The Share Button! THANK YOU BIG THANKS!<br /><br /><a rel="nofollow" target="blank" href="https://biblia.com/bible/esv/genesis/1/1">https://biblia.com/bible/esv/genesis/1/1</a><br /><br />Others Court Videos!<br />Everyone's Thought When Amber Heard Got Scared Of Johnny Depp! 🤣<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Y65nBJWOaAY">https://www.youtube.com/watch?v=Y65nBJWOaAY</a><br />Amber Heard Tries To Avoid Accidental Laugh By Crying! 🤣<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Motv8vsMHDA">https://www.youtube.com/watch?v=Motv8vsMHDA</a><br />Johnny Depp's Lawyers Anger Amber Heard! 🤣<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=024Fmd9ZIH0">https://www.youtube.com/watch?v=024Fmd9ZIH0</a><br />Amber Heard Brainstorms An Entire Plot After Asked A Question! 🤣<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=za-LKbpIvBw">https://www.youtube.com/watch?v=za-LKbpIvBw</a><br /><br />Business inquiries and Socials:<br />birdtipred@gmail.com<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/caiburz/">https://www.instagram.com/caiburz/</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@caiburze">https://www.tiktok.com/@caiburze</a><br /><br />How To Act 101<br />Scheming Weasel (faster version) by Kevin MacLeod <a rel="nofollow" target="blank" href="http://incompetech.com">http://incompetech.com</a><br />Creative Commons — Attribution 3.0 Unported — CC BY 3.0<br />Free Download / Stream: <a rel="nofollow" target="blank" href="https://bit.ly/scheming-weasel">https://bit.ly/scheming-weasel</a><br />Music promoted by Audio Library <a rel="nofollow" target="blank" href="https://youtu.be/2CapGaKMsWU">https://youtu.be/2CapGaKMsWU</a><br /><br />Like &amp; Subscribe... Like Right Now...Please!<br /><br />#JohnnyDepp #AmberHeard #JusticeForJohnnyDepp #Court #Memes<br />#Depp #trial #JohnnyDepptrial #DeppHeard #Caiburz<br /><br />johnny depp trial 2022,johnny depp amber heard,johnny depp court case, johnny depp trial highlights, johnny depp lawyer,johnny depp court case funny moments,Andrew Pandrew,Watch Live Day 15,johnny depp trial live,johnny depp defamation lawsuit,johnny depp v amber heard,johnny depp 2022,rich manner amber heard johnny depp,johnny depp amber heard trial 2022 johnny depp defamation lawsuit defamation johnny depp{% endraw %}
