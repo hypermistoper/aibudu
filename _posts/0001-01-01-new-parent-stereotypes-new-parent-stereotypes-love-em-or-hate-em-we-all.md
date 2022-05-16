@@ -1,0 +1,15 @@
+---
+title: "New Parent Stereotypes"
+image: "https:\/\/i.ytimg.com\/vi\/_CH8uu3L4D0\/hqdefault.jpg"
+vid_id: "_CH8uu3L4D0"
+categories: "Sports"
+tags: ["dude perfect","dude perfect stereotypes","dude perfect water bottle flip"]
+date: "2022-05-16T05:16:00+03:00"
+vid_date: "2022-05-14T13:59:57Z"
+duration: "PT10M49S"
+viewcount: "4978773"
+likeCount: "219174"
+dislikeCount: ""
+channel: "Dude Perfect"
+---
+{% raw %}New Parent Stereotypes... Love 'em or Hate 'em, we all know 'em! <br />► Come see us on tour! <a rel="nofollow" target="blank" href="http://dudeperfect.com/tour/">http://dudeperfect.com/tour/</a><br />► Thanks for subscribing! - <a rel="nofollow" target="blank" href="http://bit.ly/SubDudePerfect">http://bit.ly/SubDudePerfect</a><br /><br />NEXT LEVEL STUFF <br />-------------------------------------------<br />🎒 NEW Merch - <a rel="nofollow" target="blank" href="http://bit.ly/DPStore">http://bit.ly/DPStore</a><br />📱 Text us - (469) 205-7005<br />🔔 Hit the bell next to Subscribe so you don't miss a video!<br />👨🏻‍💻 Watch our newest vids! - <a rel="nofollow" target="blank" href="http://bit.ly/NewDPVids">http://bit.ly/NewDPVids</a><br />📕 Read our Book - &quot;101 Tips, Tricks and Cool Stuff&quot; - <a rel="nofollow" target="blank" href="https://bit.ly/NewDPBook">https://bit.ly/NewDPBook</a><br /><br />Follow our Instagrams so we can be best friends <br />-------------------------------------------<br />🏆 <a rel="nofollow" target="blank" href="http://Instagram.com/DudePerfect">http://Instagram.com/DudePerfect</a><br />🧔🏻 <a rel="nofollow" target="blank" href="http://Instagram.com/TylerNToney">http://Instagram.com/TylerNToney</a><br />👱🏻‍♂️ <a rel="nofollow" target="blank" href="http://Instagram.com/Cody_Jones_">http://Instagram.com/Cody_Jones_</a><br />🙋🏻‍♂️ <a rel="nofollow" target="blank" href="http://Instagram.com/CobyCotton">http://Instagram.com/CobyCotton</a><br />👨‍🦰 <a rel="nofollow" target="blank" href="http://Instagram.com/GarrettHilbert">http://Instagram.com/GarrettHilbert</a><br />⛹🏻‍♂️ <a rel="nofollow" target="blank" href="http://Instagram.com/CoryCotton">http://Instagram.com/CoryCotton</a><br />-------------------------------------------<br />Bonus points if you're still reading this! <br />Comment: What stereotype should we do next!?<br /><br />Click here to learn more about Dude Perfect:<br /><a rel="nofollow" target="blank" href="http://bit.ly/AboutDudePerfect">http://bit.ly/AboutDudePerfect</a><br /><br />As always...Go Big and God Bless!<br />- Your friends at Dude Perfect<br /><br />Business or Media, please contact us at: <br />Dude@DudePerfect.com<br /><br />------------<br /><br />5 Best Friends and a Panda.<br />If you like Sports + Comedy, come join the Dude Perfect team!<br /><br />Best known for trick shots, stereotypes, battles, bottle flips, ping pong shots and all-around competitive fun, Dude Perfect prides ourselves in making the absolute best family-friendly entertainment possible! Welcome to the crew! <br /><br />Pound it 👊🏻 Noggin 🙇🏻‍♂️ <br />- Dude Perfect{% endraw %}
