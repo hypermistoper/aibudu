@@ -1,0 +1,15 @@
+---
+title: "How to Reach 30 DAYS ON NOFAP (NoFap Advice)"
+image: "https:\/\/i.ytimg.com\/vi\/l--wVo2YjLc\/hqdefault.jpg"
+vid_id: "l--wVo2YjLc"
+categories: "People-Blogs"
+tags: ["NoFap","No Fap","No Fap Challenge Transformation"]
+date: "2022-05-17T10:01:04+03:00"
+vid_date: "2022-05-16T17:00:21Z"
+duration: "PT11M20S"
+viewcount: "3430"
+likeCount: "454"
+dislikeCount: ""
+channel: "Jordan Green"
+---
+{% raw %}Thanks to Remojo for sponsoring this video! Click the link below to achieve sexual self-mastery once and for all:<br /><a rel="nofollow" target="blank" href="https://remojo.onelink.me/nx29/jordangreen">https://remojo.onelink.me/nx29/jordangreen</a><br /><br />In this video, I walk you through the most impactful lessons that my NoFap journey has taught me. NoFap is by no means an easy task, but it is certainly a journey worth embarking on. If you follow the NoFap advice that I give in this video, you WILL succeed on NoFap and integrate it into your lifestyle for good.<br /><br />If you like the video, be sure to like it and subscribe to my channel for DAILY content!<br /><br />Check out my new book:<br /><a rel="nofollow" target="blank" href="https://tinyurl.com/soul-shock">https://tinyurl.com/soul-shock</a><br /><br />Check out my website:<br /><a rel="nofollow" target="blank" href="https://jordan-green.com">https://jordan-green.com</a><br /><br />For 1 on 1 video advice/consulations:<br /><a rel="nofollow" target="blank" href="https://www.wisio.com/JordanGreen">https://www.wisio.com/JordanGreen</a><br /><br />Personal email: dmjordangreen@yahoo.com<br />Business inquiries: business.jordangreen@gmail.com<br /><br />Equipment I Use:<br />Camera/Lens: <a rel="nofollow" target="blank" href="https://amzn.to/3Hbv0GZ">https://amzn.to/3Hbv0GZ</a><br />Lighting: <a rel="nofollow" target="blank" href="https://amzn.to/3xrGS3m">https://amzn.to/3xrGS3m</a><br />Back Light: <a rel="nofollow" target="blank" href="https://amzn.to/3Ibd5RB">https://amzn.to/3Ibd5RB</a><br />Lamp: <a rel="nofollow" target="blank" href="https://amzn.to/3nZhcrz">https://amzn.to/3nZhcrz</a><br />Mic: <a rel="nofollow" target="blank" href="https://amzn.to/3lf5APx">https://amzn.to/3lf5APx</a><br />Foam Windscreen: <a rel="nofollow" target="blank" href="https://amzn.to/3D1E4uK">https://amzn.to/3D1E4uK</a><br />Desk: <a rel="nofollow" target="blank" href="https://amzn.to/3rjTWGS">https://amzn.to/3rjTWGS</a><br />Chair: <a rel="nofollow" target="blank" href="https://amzn.to/3CTn8GY">https://amzn.to/3CTn8GY</a><br /><br />Take your channel to the next level: <br /><a rel="nofollow" target="blank" href="https://www.tubebuddy.com/JordanGreen">https://www.tubebuddy.com/JordanGreen</a><br /><br />Join the discord for chill vibes and motivation!<br /><a rel="nofollow" target="blank" href="https://discord.gg/ZD5efjPBJX">https://discord.gg/ZD5efjPBJX</a><br /><br />*Disclaimer: Some of the links above are affiliate links, meaning that I earn a commission from purchases made via those links (at no extra cost to you).<br /><br />#nofap #selfhelp #advice #motivation{% endraw %}
