@@ -1,0 +1,15 @@
+---
+title: "PATHOLOGY - Engaging in Homicide (OFFICIAL MUSIC VIDEO)"
+image: "https:\/\/i.ytimg.com\/vi\/-RaBrAy4UgY\/hqdefault.jpg"
+vid_id: "-RaBrAy4UgY"
+categories: "Music"
+tags: ["PATHOLOGY","Engaging","Homicide"]
+date: "2022-05-18T05:27:01+03:00"
+vid_date: "2021-08-27T16:00:01Z"
+duration: "PT3M53S"
+viewcount: "35247"
+likeCount: "1757"
+dislikeCount: ""
+channel: "Nuclear Blast Records"
+---
+{% raw %}Official music video for the track &quot;Engaging in Homicide&quot; from the PATHOLOGY album &quot;The Everlasting Plague,&quot; out November 19th, 2021 via Nuclear Blast. Order at: <a rel="nofollow" target="blank" href="http://nuclearblast.com/pathology-theeverlastingplague">http://nuclearblast.com/pathology-theeverlastingplague</a><br /><br />SUBSCRIBE to Nuclear Blast: <a rel="nofollow" target="blank" href="https://nblast.de/NBytb">https://nblast.de/NBytb</a><br />SUBSCRIBE to Pathology: <a rel="nofollow" target="blank" href="http://nblast.de/Subs-Pathology-YT">http://nblast.de/Subs-Pathology-YT</a><br />LISTEN: <a rel="nofollow" target="blank" href="https://bfan.link/pathology-theeverlastingplague">https://bfan.link/pathology-theeverlastingplague</a><br /><br />VISIT THE BAND<br />Website: <a rel="nofollow" target="blank" href="https://pathologyband.com/">https://pathologyband.com/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/PathologyMusic">https://www.facebook.com/PathologyMusic</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/pathologyband/">https://www.instagram.com/pathologyband/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/PathologyMetal">https://twitter.com/PathologyMetal</a><br />YouTube: <a rel="nofollow" target="blank" href="http://nblast.de/Subs-Pathology-YT">http://nblast.de/Subs-Pathology-YT</a><br /><br />Music Video Directed by Jeff Forrest <br /><br />LYRICS: <br />Rage is consuming <br />Thoughts of murderous pride <br />A rampage in blood <br />Horrifying scene of crime <br />My instincts are peeking <br />An inhuman drive<br />I want nothing more than to see your empty eyes <br /><br />Engaging in homicide <br /><br />Fantasizing my plan <br />Playing out in my head <br />Over and over again your spirit I must break <br />My choice is final <br />I cannot fail <br />Steps are memorized<br />To satisfy the blood craving<br /><br />Engaging in homicide<br /><br />The perfect opportunity <br />To make you pay<br />Quivering rabidly <br />Lying in wait<br />Repeated death blows<br />To your skull<br />Nothing will stand in my way<br /><br />Overwhelming clarity <br />As I squeeze out your life<br />I’m a machine built to end you<br /><br />Rage is consuming<br />Thoughts of murderous pride <br />A rampage and blood <br />Horrifying scene of crime<br /><br />Arterial fountains transform walls<br />Into works of the darkest art <br />Crimson particulates pepper the halls <br />As my sanity falls apart! <br /><br /><br />#Pathology #TheEverlastingPlague{% endraw %}
