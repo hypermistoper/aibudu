@@ -1,0 +1,15 @@
+---
+title: "Can Data Make a Medicine? - with Patrick Vallance"
+image: "https:\/\/i.ytimg.com\/vi\/zvJdnLkJH6Q\/hqdefault.jpg"
+vid_id: "zvJdnLkJH6Q"
+categories: "Science-Technology"
+tags: ["Ri","Royal Institution","pharma"]
+date: "2022-05-18T03:14:17+03:00"
+vid_date: "2017-06-07T14:15:34Z"
+duration: "PT46M59S"
+viewcount: "7840"
+likeCount: "114"
+dislikeCount: ""
+channel: "The Royal Institution"
+---
+{% raw %}Patrick Vallance, President of Research and Development at GlaxoSmithKline, explores how real-time data and open-source information can improve the world of medicine.<br />Watch the Q&amp;A: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=aClJ1QZYsVw">https://www.youtube.com/watch?v=aClJ1QZYsVw</a><br />Subscribe for regular science videos: <a rel="nofollow" target="blank" href="http://bit.ly/RiSubscRibe">http://bit.ly/RiSubscRibe</a><br /><br />Patrick Vallance is President, R&amp;D at GlaxoSmithKline (GSK). Prior to this, he was Senior Vice President, Medicines Discovery and Development. Patrick joined the company in May 2006 as Head of Drug Discovery. He is a member of the Board and the Corporate Executive Team.<br /><br />Prior to joining GSK, Patrick was a clinical academic and as Professor of Medicine led the Division of Medicine at University College London.<br /><br />He has worked in clinical medicine, general internal medicine, cardiovascular medicine and clinical pharmacology for over 20 years. He has an international reputation as a vascular biologist and clinician scientist. His research has spanned structural and molecular studies, in vitro and in vivo experimental pharmacology and clinical studies including the use of large-scale patient databases. At GSK, he has transformed the discovery engine to focus on therapy areas that are underpinned by the most promising and mature science, and which offer fresh insights into diseases. He is also responsible for creating small, empowered research teams, called Discovery Performance Units. This approach has led to a new wave of medicines for diseases from malaria through to cancer treatments. He has championed open innovation and transparency of clinical trial results.<br /><br />This Discourse was filmed at the Ri on 26 May 2017.<br /><br />Subscribe for regular science videos: <a rel="nofollow" target="blank" href="http://bit.ly/RiSubscRibe">http://bit.ly/RiSubscRibe</a><br /><br />The Ri is on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/ri_science">http://twitter.com/ri_science</a><br />and Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/royalinstitution">http://www.facebook.com/royalinstitution</a><br />and Tumblr: <a rel="nofollow" target="blank" href="http://ri-science.tumblr.com/">http://ri-science.tumblr.com/</a><br />Our editorial policy: <a rel="nofollow" target="blank" href="http://www.rigb.org/home/editorial-policy">http://www.rigb.org/home/editorial-policy</a><br />Subscribe for the latest science videos: <a rel="nofollow" target="blank" href="http://bit.ly/RiNewsletter">http://bit.ly/RiNewsletter</a>{% endraw %}
