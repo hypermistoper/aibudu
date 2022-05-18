@@ -1,0 +1,15 @@
+---
+title: "New Game Announced! | Rule the Waves 3: Ironclads to Missile Cruisers"
+image: "https:\/\/i.ytimg.com\/vi\/7NNjPYGfGCA\/hqdefault.jpg"
+vid_id: "7NNjPYGfGCA"
+categories: "Gaming"
+tags: ["Rule the Waves II","Rule the Waves","Rule the Waves 3"]
+date: "2022-05-18T18:33:09+03:00"
+vid_date: "2022-05-18T15:00:02Z"
+duration: "PT22M"
+viewcount: "257"
+likeCount: "33"
+dislikeCount: ""
+channel: "thehistoricalgamer"
+---
+{% raw %}See The Announcement: <a rel="nofollow" target="blank" href="https://nws-online.proboards.com/thread/5684/ironclads-missile-cruisers-rtw2-expansion?page=85&amp;scrollTo=92211">https://nws-online.proboards.com/thread/5684/ironclads-missile-cruisers-rtw2-expansion?page=85&amp;scrollTo=92211</a><br />Check Out The Feature Catalog: <a rel="nofollow" target="blank" href="https://www.navalwarfare.net/files/SAI/RTW2_Expansion_Catalog.pdf">https://www.navalwarfare.net/files/SAI/RTW2_Expansion_Catalog.pdf</a><br />Get Rule the Waves II: <a rel="nofollow" target="blank" href="https://nws-software.com/">https://nws-software.com/</a><br />Join my Streams on Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/thehistoricalgamer">https://www.twitch.tv/thehistoricalgamer</a><br />Join my Discord: <a rel="nofollow" target="blank" href="https://discord.gg/4vDbUA9">https://discord.gg/4vDbUA9</a><br />Follow me on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/HistoricalGamer">https://twitter.com/HistoricalGamer</a><br />Support the Channel: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/thehistoricalgamer">https://www.amazon.com/shop/thehistoricalgamer</a> (Affiliate) <br />My Book Store: <a rel="nofollow" target="blank" href="https://bookshop.org/shop/thehistoricalgamer">https://bookshop.org/shop/thehistoricalgamer</a> (Affiliate)<br /><br />Rule the Waves 3 has been announced! In today’s video I’ll discuss some of the features and speculate on maybe why the decision to move Rule the Waves to steam was made. <br /><br />RULE THE WAVES II <br />Rule the Waves II is the sequel to our successful game of ship design and naval battles, Rule the Waves. Whereas Rule the Waves ended by 1925, Rule The Waves II covers the entire time period from 1900 to 1955, including aircraft and aircraft carriers. Ownership of Rule the Waves is not required to be able to play Rule the Waves II. Rule the Waves II places you in the role of 'Grand Admiral' of a navy during the first half of the 20th Century. The game is centered on designing ships and fighting naval battles, but politics, economic and foreign policy decisions will be necessary as the Player guides their navy's deployment, construction and operations during a period of great technological innovation and political tensions. Rule the Waves is modeled on the period up to the end of the second world war, but is not intended to precisely recreate history. Rather RTW2 gives the Player the tools to lead a navy during the era when 'steam and iron' dominated the high seas.{% endraw %}
