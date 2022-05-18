@@ -1,0 +1,15 @@
+---
+title: "HYUN BIN AND SON YE JIN SPOTTED VERY SWEET TO EACH OTHER WHILE WALKING SLOWLY! #fyp"
+image: "https:\/\/i.ytimg.com\/vi\/gDQePYHy_9A\/hqdefault.jpg"
+vid_id: "gDQePYHy_9A"
+categories: "Entertainment"
+tags: ["hyun bin","son ye jin","binjin"]
+date: "2022-05-19T02:13:39+03:00"
+vid_date: "2022-05-18T04:54:12Z"
+duration: "PT2M15S"
+viewcount: "9170"
+likeCount: "192"
+dislikeCount: ""
+channel: "Binjin International News"
+---
+{% raw %}HYUN BIN AND SON YE JIN SPOTTED VERY SWEET TO EACH OTHER WHILE WALKING SLOWLY! <br /><br />Hello Every One this is My Channel if you are New here please subscribe to be updated on my next upload, thankyou!<br /><br />Son Ye Jin's husband hyun bin, was an actor who synthesized a succession of deaths<br />thanks to this deed. Photographs of a cult &quot;crossing squad.&quot; Because of the couple's &quot;hot&quot; level, they are continuously caught in the &quot;crosser team's&quot; camera lens, no matter where they go or how discreet they are.<br /><br />The most evident feature in the series of<br />images is that Hyun Bin is always entangled with his wife Son Ye Jin. The actor never stood too far away from his wife, carried his luggage everywhere, held Son Ye Jin's hand, and kept a close eye on whether or not his wife was in a safe place.<br /><br />Looking back on these events, Son Ye Jin did not make the wrong choice in marrying Hyun.<br /><br />Hyun Bin always wrapped his arms around<br />his bride in front of the media and<br />numerous supporters on the flight back to<br />Korea after his honeymoon. Ye Jin's son similarly looks at his husband with &quot;passionate&quot; eyes.<br /><br />While watching basketball, the famous<br />couple was photographed.<br />The couple always dresses comfortably Hyun Bin always wrapped his arms around<br />his bride in front of the media and numerous supporters on the flight back to<br />Korea after his honeymoon. <br /><br />Son Ye Jin similarly looks at his husband with &quot;passionate&quot; eyes.<br />While watching basketball, the famous couple was photographed.<br /><br />The couple always dresses comfortably and simply when walking together. Even images taken from behind make admirers feel incredibly cute.<br /><br />THIS IS MY REAL VOICE!!!<br /><br />If there is an issue with the photos and videos, let's talk, whether to give me credit or just delete it! You can Contact me @redgirlred01@gmail.com<br /><br />Disclaimer:  Photo /video/audio/not mine<br />this is fan made video. <br /><br />thankyou so much and credits to the rightful owner!!!<br /><br />COPYRIGHT DISCLAIMER<br />under section 107 of the copyright act 1976, allowance is made for  &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching scholarship, and research, fair use is a use permitted by copyright statue that might otherwise be infringing non-profit, educational or personal use tips the balance in favor of fair use.<br /><br />Thankyou very much for supporting my channel❤️{% endraw %}
