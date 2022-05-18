@@ -1,0 +1,15 @@
+---
+title: "Online Slots - Super Mega Bonus Hunt, 13 games!"
+image: "https:\/\/i.ytimg.com\/vi\/M6X04LpDSIc\/hqdefault.jpg"
+vid_id: "M6X04LpDSIc"
+categories: "Entertainment"
+tags: ["online slots","bonus","free spins"]
+date: "2022-05-19T01:42:38+03:00"
+vid_date: "2022-05-18T15:00:19Z"
+duration: "PT39M41S"
+viewcount: "1838"
+likeCount: "82"
+dislikeCount: ""
+channel: "The Gentleman Gambler"
+---
+{% raw %}Hi All,<br /><br /><a rel="nofollow" target="blank" href="https://www.gentlemangambler.com/promotions/the-gentlemans-exclusive-offers/">https://www.gentlemangambler.com/promotions/the-gentlemans-exclusive-offers/</a><br /><br />18+ begambleaware.org<br /><br />Firstly, thank you all for the feedback to the slot battle on Monday.  I enjoyed doing that and will hopefully have chance to recommence battle another time.<br /><br />Prior to this, I had posted a shorter video on Sunday, having decided to get what I could from a more modest start bank and not to redeposit.  As this lead to a shorter video, today I have bitten the bullet with the intention of going to the other end of the scale.  I redeposited £350 and managed to get something of a run together, resulting in a promising 13 game selection:<br /><br />Rainbow Gold<br />Buffalo King MW<br />Great Rhino MW<br />Centurion MW<br />Chilli Picante MW<br />Rock Vegas<br />Primal<br />Reel King MW<br />Scarab Queen<br />Wheel of Fortune MW<br />5 Lions MW<br />Pirates Kingdom MW<br />Madame Destiny MW<br /><br />In the peculiar way the often seems to happen, my excellent run ended abruptly after Madame Destiny.  My next 3 choices all failed, and the well ran dry.  A real shame given I still had over £200 left at this point, and was seemingly heading towards 20 bonuses!  Just serves as a reminder that you can never take landing a bonus for granted.<br /><br />The good work was done though, and with 13 from £570 I am fairly confident of at least getting close to break even, if not managing a profit.  Yet as we know, it could easily be 13 duds.  Let's see, I hope you enjoy this one.<br /><br />I will be including safer gambling information in all my videos from now on, alongside links back to my own website.  This is an important aspect of gambling, and I urge anyone affected to use all the available resources, no matter how big or small you feel the issue might be.  <br /><br />GamCare: <a rel="nofollow" target="blank" href="https://www.gamcare.org.uk/">https://www.gamcare.org.uk/</a><br />BeGambleAware: <a rel="nofollow" target="blank" href="https://www.begambleaware.org/">https://www.begambleaware.org/</a><br />GAMSTOP - <a rel="nofollow" target="blank" href="https://www.gamstop.co.uk/">https://www.gamstop.co.uk/</a><br /><br />Please also remember that my videos are highlights of longer sessions.  A more complete picture is given with the statistics given and the profit / loss videos I post on my channel and website.  Put simply, playing these slots is a losing proposition over time, and is simply a means of paying for entertainment.<br /><br />#onlineslots #slots #bonushunt{% endraw %}
