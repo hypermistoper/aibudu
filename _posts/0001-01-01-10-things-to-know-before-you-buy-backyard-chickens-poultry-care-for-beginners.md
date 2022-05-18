@@ -1,0 +1,15 @@
+---
+title: "10 Things To Know BEFORE You Buy Backyard Chickens | Poultry Care For Beginners | Homesteading Tips"
+image: "https:\/\/i.ytimg.com\/vi\/aQMLQo-u7Sc\/hqdefault.jpg"
+vid_id: "aQMLQo-u7Sc"
+categories: "People-Blogs"
+tags: ["backyard chicken care","egg laying chickens","hens for eggs"]
+date: "2022-05-18T04:14:51+03:00"
+vid_date: "2022-03-14T22:45:37Z"
+duration: "PT15M16S"
+viewcount: "227132"
+likeCount: "7390"
+dislikeCount: ""
+channel: "Oak Abode"
+---
+{% raw %}Think you're ready for backyard chickens? Make sure you know these 10 tidbits of egg layer info before you bring home your baby chicks! More resources below!<br /><br />(Part 2) - 10 MORE Things To Know About Backyard Chickens: <a rel="nofollow" target="blank" href="https://youtu.be/XcNCKKQJ3a4">https://youtu.be/XcNCKKQJ3a4</a><br /><br />INSTAGRAM: @oak_abode<br />BLOG: <a rel="nofollow" target="blank" href="https://oakabode.com/10-things-to-know-about-owning-chickens-in-the-suburbs/">https://oakabode.com/10-things-to-know-about-owning-chickens-in-the-suburbs/</a><br />PODCAST (Spotify): <a rel="nofollow" target="blank" href="https://spoti.fi/3E7ADE4">https://spoti.fi/3E7ADE4</a><br />PODCAST (Apple): <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/oak-abode-podcast/id1591445965">https://podcasts.apple.com/us/podcast/oak-abode-podcast/id1591445965</a><br /><br />GRUBTERRA: Save 10% on GrubTerra Chicken Treats with code &quot;OakAbode&quot;: <a rel="nofollow" target="blank" href="https://bit.ly/3nCS2vZ​">https://bit.ly/3nCS2vZ​</a><br /><br />OUR FAVORITE CHICKEN GEAR: <a rel="nofollow" target="blank" href="https://kit.co/oakabode/backyard-chickens-gear">https://kit.co/oakabode/backyard-chickens-gear</a><br /><br />MY VLOGGING CAMERAS + GEAR: <a rel="nofollow" target="blank" href="https://kit.co/oakabode/film-video-gear​">https://kit.co/oakabode/film-video-gear​</a><br /><br />CHICKEN CARE 101 (Video): <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=SDppwYI8AgU">https://www.youtube.com/watch?v=SDppwYI8AgU</a><br />BABY CHICK CARE (Video): <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=VUtDlccPbRI">https://www.youtube.com/watch?v=VUtDlccPbRI</a><br />INTEGRATING CHICKS WITH OLDER CHICKENS (Video): <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=HfoQNnK2Xog">https://www.youtube.com/watch?v=HfoQNnK2Xog</a><br /><br />0:00-0:41 - Intro<br />0:42-1:47 - They're Addicting<br />1:48-3:36 - Laying Fluctuates<br />3:37-4:45 - Social Circle<br />4:46-5:36 - Everything Loves Chicken<br />5:37-7:20 - Confinement<br />7:21-8:54 - Surprise Roosters<br />8:55-9:53 - They're Easy<br />9:54-11:06 - &quot;Free&quot; Eggs<br />11:07-12:34 - Weather Considerations<br />12:35-15:16 - Old Wives' Tales<br /><br />We're not experts, so we always recommend talking to the pros for the best advice. This post and comments below contain affiliate links, which may lead to a commission if purchased. This comes at no extra cost to you. Thanks!{% endraw %}
