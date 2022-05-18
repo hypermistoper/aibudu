@@ -1,0 +1,15 @@
+---
+title: "LIVERPOOL ATAU MAN CITY JUARA EPL ? ARSENAL BOTTLE TOP 4...."
+image: "https:\/\/i.ytimg.com\/vi\/4z-xO2C7NXA\/hqdefault.jpg"
+vid_id: "4z-xO2C7NXA"
+categories: "Sports"
+tags: ["jugadortv","mizanen","kapiu"]
+date: "2022-05-18T23:49:22+03:00"
+vid_date: "2022-05-18T10:00:02Z"
+duration: "PT23M7S"
+viewcount: "7672"
+likeCount: "424"
+dislikeCount: ""
+channel: "Jugador TV"
+---
+{% raw %}Time stamp<br /><br />00:00 Intro<br />00:33 Man City vs West Ham<br />5:06 Liverpool vs Southampton<br />8:06 Arsenal vs Newcastle<br />17:36 Spurs vs Burnley<br /><br />FOLLOW INSTAGRAM<br /><br />Jugador TV: <a rel="nofollow" target="blank" href="https://www.instagram.com/jugadortv/">https://www.instagram.com/jugadortv/</a><br /><br />Mizanen: <a rel="nofollow" target="blank" href="https://www.instagram.com/mizanen_/?h...">https://www.instagram.com/mizanen_/?h...</a><br />Kapiu: <a rel="nofollow" target="blank" href="https://www.instagram.com/kapiu_jugad...">https://www.instagram.com/kapiu_jugad...</a><br />Zaid: <a rel="nofollow" target="blank" href="https://www.instagram.com/zaidmuhdrzk...">https://www.instagram.com/zaidmuhdrzk...</a><br />________________________________________________________________<br />FOLLOW TWITTER<br />Mizanen: <a rel="nofollow" target="blank" href="https://twitter.com/mizanen">https://twitter.com/mizanen</a><br />Kapiu: <a rel="nofollow" target="blank" href="https://twitter.com/kapiu_jugador">https://twitter.com/kapiu_jugador</a><br />Zaid: <a rel="nofollow" target="blank" href="https://twitter.com/zaidmuhd">https://twitter.com/zaidmuhd</a><br /><br />Music credit to:<br /><br />Track: Rameses B - Can't Let You Go (feat. Florenza) [NCS Release]<br />Music provided by NoCopyrightSounds.<br />Watch: <a rel="nofollow" target="blank" href="https://youtu.be/JZk8X7fRkKY">https://youtu.be/JZk8X7fRkKY</a><br />Free Download / Stream: <a rel="nofollow" target="blank" href="http://ncs.io/CLYG">http://ncs.io/CLYG</a><br /><br />---------------------------------------------------------------------------------------------------------<br />I must state that in NO way, shape or form am I intending to infringe rights of the copyright holder. Content used is strictly for research/reviewing purposes and to help educate. All under the Fair Use law.<br /><br />&quot;Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.<br />------------------------------------------------------------------------------------------------------<br />COPYRIGHT LAWS AND PROPOSALS:<br />Act of 4 February 1994 on Copyright and Related Rights<br />This video is fair use under U.S. copyright law because it is noncommercial and transformative in nature, uses no more of the original than necessary, and has no negative effect on the market for the original work.<br /><br />#jugadortv #roadto35ksubs{% endraw %}
