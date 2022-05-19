@@ -1,0 +1,15 @@
+---
+title: "THIS Toilet Trick should really know EVERYONE 💥 (IMPORTANT) 🤯"
+image: "https:\/\/i.ytimg.com\/vi\/K58G4UGghFM\/hqdefault.jpg"
+vid_id: "K58G4UGghFM"
+categories: "People-Blogs"
+tags: ["toilet trick","flush the toilet","flush without water"]
+date: "2022-05-19T18:38:40+03:00"
+vid_date: "2022-05-19T14:00:06Z"
+duration: "PT2M10S"
+viewcount: "2655"
+likeCount: "77"
+dislikeCount: ""
+channel: "Smart Fox"
+---
+{% raw %}Do you know how to flush a toilet without the cistern working? - Here I show you! <br /><br /><br />✅ Is HERE something for you? ➡️ <a rel="nofollow" target="blank" href="https://amzn.to/3Hi7tEy">https://amzn.to/3Hi7tEy</a> *<br /><br /><br />When your cistern is broken or your water stops working, it can get pretty messy when you have to go to the bathroom. After all, you want to flush away what you've left behind. And how exactly that still works, I show you in this video!<br /><br />Of course, you still need water for this, but it does not have to come from the cistern. If the cistern is broken, for example, you can fill water from the sink into a bucket. Otherwise, you can also take water from a rain barrel, if you have one.<br /><br />Fill the bucket with water and then go to your toilet. Now just tip this into the toilet and your leavings will be gone.<br />Because the cistern does nothing but run water into the toilet until the water level is so high that everything can drain out the back.<br /><br />So now you also know how to flush your toilet when there is no water coming out of the cistern. Even if you don't need this information now, it can't hurt to know about it!<br /><br /><br />-----------------------------------------------------------------------------------------------------------------------------------<br />❌ THIS must not be missing in any household! ❌<br /><br />✅ Washing Soda ➡️ <a rel="nofollow" target="blank" href="https://amzn.to/3nafQKa">https://amzn.to/3nafQKa</a> *<br />✅ Baking Soda ➡️ <a rel="nofollow" target="blank" href="https://amzn.to/3Dha8f6">https://amzn.to/3Dha8f6</a> *<br />✅ Citric Acid ➡️ <a rel="nofollow" target="blank" href="https://amzn.to/3DgGUgt">https://amzn.to/3DgGUgt</a> *<br />✅ Vinegar ➡️ <a rel="nofollow" target="blank" href="https://amzn.to/3cbH9xz">https://amzn.to/3cbH9xz</a> *<br />✅ Microfiber Cloth ➡️ <a rel="nofollow" target="blank" href="https://amzn.to/2YGgG82">https://amzn.to/2YGgG82</a> *<br />-----------------------------------------------------------------------------------------------------------------------------------<br /><br />Subscribe to my Channel for Free ➡️ <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8c3P7NxLr7k6XRC6VVMJmg?sub_confirmation=1">https://www.youtube.com/channel/UC8c3P7NxLr7k6XRC6VVMJmg?sub_confirmation=1</a> ☑️<br /><br /><br />* I use so-called affiliate links here. If you buy one of the products through these links, I get a commission. This way you support my channel, but of course there are no additional costs for you!<br /><br /><br />#smartfox{% endraw %}
