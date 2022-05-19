@@ -1,0 +1,15 @@
+---
+title: "Two Houston Robberies Show Plenty of Opportunities To End The Threat"
+image: "https:\/\/i.ytimg.com\/vi\/fwSCDzzxj7M\/hqdefault.jpg"
+vid_id: "fwSCDzzxj7M"
+categories: "Education"
+tags: ["self defense","self protection","active self"]
+date: "2022-05-19T13:43:36+03:00"
+vid_date: "2022-05-18T14:00:21Z"
+duration: "PT8M7S"
+viewcount: "75750"
+likeCount: "4055"
+dislikeCount: ""
+channel: "Active Self Protection"
+---
+{% raw %}Please thank MantisX for bringing us today’s video of Two Houston Robberies Show Plenty of Opportunities To End The Threat! Check them out at <a rel="nofollow" target="blank" href="https://get-asp.com/mantisx">https://get-asp.com/mantisx</a> or their FB page at <a rel="nofollow" target="blank" href="https://www.facebook.com/MantisFTS/">https://www.facebook.com/MantisFTS/</a> Whether you’re using the X10, the Blackbeard, the Laser Academy, or all three together, the Mantis family of products is your fastest way to defensive firearms skill improvement!<br /><br />ASP Community Standards: <a rel="nofollow" target="blank" href="https://activeselfprotection.com/page-guidelines/">https://activeselfprotection.com/page-guidelines/</a><br /><br />News Stories: <br />All I have is in the raws, but they’re from Houston PD so there are good descriptions there.<br /><br />Raw videos: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=X7tz6TTF0p0">https://www.youtube.com/watch?v=X7tz6TTF0p0</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=D_Vs8mq7kQ8">https://www.youtube.com/watch?v=D_Vs8mq7kQ8</a><br /><br />Check out the ASP National Conference: <a rel="nofollow" target="blank" href="https://activeselfprotection.com/asp-national-conference-bullets-and-bibles-2022/">https://activeselfprotection.com/asp-national-conference-bullets-and-bibles-2022/</a><br /><br />If you value what we do at ASP, would you consider becoming an ASP Patron Member to support making videos like Two Houston Robberies Show Plenty of Opportunities To End The Threat? <a rel="nofollow" target="blank" href="https://get-asp.com/patron">https://get-asp.com/patron</a> or <a rel="nofollow" target="blank" href="https://get-asp.com/patron-annual">https://get-asp.com/patron-annual</a> gives the details and benefits.<br /><br />Attitude. Skills. Plan.<br /><br />ASP Sponsors and Recommended Products: <a rel="nofollow" target="blank" href="https://activeselfprotection.com/recommended-products-and-sponsors/">https://activeselfprotection.com/recommended-products-and-sponsors/</a><br /><br />Copyright Disclaimer. Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.<br /> <br />(music in the outro courtesy of Bensound at <a rel="nofollow" target="blank" href="http://www.bensound.com)">http://www.bensound.com)</a>{% endraw %}
