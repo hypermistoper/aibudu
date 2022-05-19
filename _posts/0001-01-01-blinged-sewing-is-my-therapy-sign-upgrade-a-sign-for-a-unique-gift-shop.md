@@ -1,0 +1,15 @@
+---
+title: "Blinged \"Sewing is my Therapy\" sign | Upgrade a sign for a unique gift!"
+image: "https:\/\/i.ytimg.com\/vi\/ly8DJgPcctM\/hqdefault.jpg"
+vid_id: "ly8DJgPcctM"
+categories: "Howto-Style"
+tags: ["totally dazzled","DIY store bought sign upgrade","DIY store bought sign upgrade with bling"]
+date: "2022-05-19T09:26:07+03:00"
+vid_date: "2022-05-18T23:00:14Z"
+duration: "PT12M39S"
+viewcount: "27"
+likeCount: "2"
+dislikeCount: ""
+channel: "Totally Dazzled"
+---
+{% raw %}Shop Totally Dazzled: <a rel="nofollow" target="blank" href="https://www.totallydazzled.com/">https://www.totallydazzled.com/</a> <br />In this video tutorial from Totally Dazzled, Kris teaches you how to make a sign that says &quot;Sewing is my Therapy&quot; using a premade sewing machine-shaped sign, wood beads, and bobbin, Totally dazzled bling Wrap, and Embellishments. Find a complete list of supplies in the description below. <br /><br />SUPPLIES:<br />Mixed Bling: <a rel="nofollow" target="blank" href="https://www.totallydazzled.com/collections/mixed-packs/rose-gold">https://www.totallydazzled.com/collections/mixed-packs/rose-gold</a><br />Bling Wrap: <a rel="nofollow" target="blank" href="https://www.totallydazzled.com/collections/bling-wrap/products/rose-gold-bling-wrap-rhinestone-mesh-ribbon-trim-901-r">https://www.totallydazzled.com/collections/bling-wrap/products/rose-gold-bling-wrap-rhinestone-mesh-ribbon-trim-901-r</a><br /><br />***Get your FREE Printable Sparkle Quotes here***<br /><a rel="nofollow" target="blank" href="https://www.totallydazzled.com/pages/50sparklequotes">https://www.totallydazzled.com/pages/50sparklequotes</a><br /><br />RECOMMENDED VIDEOS <br />Bling Flip Flops: <a rel="nofollow" target="blank" href="https://youtu.be/GvZSS1efO2M">https://youtu.be/GvZSS1efO2M</a><br />Easy Leather Cuff Bracelet: <a rel="nofollow" target="blank" href="https://youtu.be/FhkydyDWjxM">https://youtu.be/FhkydyDWjxM</a><br />Rustic Fabric Flowers: <a rel="nofollow" target="blank" href="https://youtu.be/9U5w7xroJvU">https://youtu.be/9U5w7xroJvU</a><br /><br />ABOUT TOTALLY DAZZLED<br />Totally Dazzled is a rhinestone craft supply company that helps sparkle lovers shine by providing education and tools to create glamorous crafts, weddings, events, and DIY’s. <br /><br />TOTALLY DAZZLED SOCIAL MEDIA <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TotallyDazzledBiz/">https://www.facebook.com/TotallyDazzledBiz/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/natalie_totallydazzled/">https://www.instagram.com/natalie_totallydazzled/</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.ca/totallydazzled1/">https://www.pinterest.ca/totallydazzled1/</a><br /><br />SUBSCRIBE TO OUR CHANNEL<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/totallydazzled?sub_confirmation=1">https://www.youtube.com/totallydazzled?sub_confirmation=1</a><br /><br />Talent: <br />Kris | Creating with Kris Hunter{% endraw %}
