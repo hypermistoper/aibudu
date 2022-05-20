@@ -1,0 +1,15 @@
+---
+title: "World expert Dr. Pavel Podvig: How likely is a nuclear war?"
+image: "https:\/\/i.ytimg.com\/vi\/_FsSLq1qvX8\/hqdefault.jpg"
+vid_id: "_FsSLq1qvX8"
+categories: "News-Politics"
+tags: ["pavelpodvig","nuclear war","russia"]
+date: "2022-05-20T19:48:47+03:00"
+vid_date: "2022-05-20T15:51:33Z"
+duration: "PT25M44S"
+viewcount: "1354"
+likeCount: "117"
+dislikeCount: ""
+channel: "UnHerd"
+---
+{% raw %}Freddie Sayers meets world expert, Dr. Pavel Podvig.<br /><br />Read the supporting article: <a rel="nofollow" target="blank" href="https://unherd.com/thepost/dr-pavel-podvig/">https://unherd.com/thepost/dr-pavel-podvig/</a><br /><br />Listen to the podcast version: <a rel="nofollow" target="blank" href="https://shows.acast.com/lockdowntv-with-freddie-sayers/world-expert-dr-pavel-podvig-how-likely-is-a-nuclear-war">https://shows.acast.com/lockdowntv-with-freddie-sayers/world-expert-dr-pavel-podvig-how-likely-is-a-nuclear-war</a><br /><br />Since the invasion of Ukraine, the outcome that nobody has wanted to contemplate is that of Russian nuclear escalation. Threats that “mirror moves” would be made by the Kremlin if NATO expanded, as we heard in last week’s interview with UN representative for Russia Dmitry Polyanskiy, suggest that a strike might not be out of the question. With Finland and Sweden seeking to join NATO, is nuclear war more likely now that it was three months ago? By trying to push Vladimir Putin to the brink, is the West actually increasing the chance of a nuclear incident? What actually is the sequence of events that would lead to nuclear conflict?<br /><br />To help us think through this difficult topic, UnHerd invited Dr. Pavel Podvig to the studio. Podvig is a senior researcher in the WMD programme at the Institute for Disarmament Research and a researcher with the programme on science and global security at Princeton University. He runs the world’s premier website dedicated to analysing Putin’s nuclear capability and edited the definitive encyclopaedia of Russian nuclear forces. <br /><br />Dr. Podvig joined Freddie Sayers live from his office in Geneva.<br /><br />Follow UnHerd on social media:<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/unherd">https://twitter.com/unherd</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/unherd/">https://www.facebook.com/unherd/</a><br /><br /><br />// Timecodes //<br /><br />00:00 - 01:43 - Introduction<br />01:43 - 04:30 - How many nuclear warheads does Russia have, and where are they?<br />04:30 - 08:13 - Are these nukes a relic from the Cold War? Do they even work?<br />08:13 - 12:56 - What is the decision-making process behind firing a nuclear weapon?<br />12:56 - 16:56 - What is an ‘existential threat’ for Russia?<br />16:56 - 20:24 - How would NATO respond to a Russian nuclear detonation?<br />20:24 - 24:57 - Is a nuclear incident now more likely than ever?<br />24:57 - 25:43 - Concluding thoughts<br /><br />#UnHerd #pavelpodvig #nuclearwar{% endraw %}
