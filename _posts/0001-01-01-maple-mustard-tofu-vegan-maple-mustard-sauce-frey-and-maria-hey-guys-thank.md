@@ -1,0 +1,15 @@
+---
+title: "MAPLE MUSTARD TOFU | VEGAN MAPLE MUSTARD SAUCE | Frey and Maria"
+image: "https:\/\/i.ytimg.com\/vi\/Og3X5yaMPAM\/hqdefault.jpg"
+vid_id: "Og3X5yaMPAM"
+categories: "Howto-Style"
+tags: ["Maple Mustard Tofu","maple mustard tofu marinade","maple mustard tofu recipe"]
+date: "2022-05-22T00:48:32+03:00"
+vid_date: "2022-05-21T21:00:13Z"
+duration: "PT5M19S"
+viewcount: "22"
+likeCount: "5"
+dislikeCount: ""
+channel: "Frey and Maria"
+---
+{% raw %}Hey guys, thank you for taking the time to watch our video! 💕 <br /><br />Who fancies some #MapleMustardTofu? 🙋🏻‍♂️🙋🏻‍♀️💕 This is one of our simple and inexpensive family-pleasing dinner recipe. The method is easy to follow and the Dijon mustard makes it super tasty! 😋 To all the tofu lovers out there - this is a must try dish! 👌<br /><br />MAPLE MUSTARD TOFU ✨<br /><br />300 g firm tofu, cubed<br />1/4 cup maple syrup<br />3 tbsp. Dijon mustard<br />1 tsp garlic, crushed<br />2 tsp apple cider vinegar<br />2 tbsp. water<br />salt and pepper to taste<br /><br />For the garnish:<br />sesame seeds (optional)<br /><br />Method<br /><br />Make the Marinade:<br />In a small mixing bowl, combine the maple syrup, Dijon mustard, crushed gallic, apple cider vinegar, water and season with salt &amp; pepper to taste. Mix it well and set aside.<br /><br />Using a clean towel, pat dry your firm tofu to remove the excess water. Cut tofu into cubes and transfer them into a medium-sized food container. Next, pour the liquid mixture over the tofu, making sure that it's nice and snug in the marinade. Cover with lid and place it in the refrigerator to marinate overnight.<br /><br />The next day, line the tofu pieces on a baking sheet and fan bake it in the oven for 10-15 minutes at 200 degrees Celsius or 392 degrees Fahrenheit.<br />After that, flip the tofu and put it back in the oven to fan bake for another 10 minutes.<br /> <br />In a non-stick pan, pour the remaining marinade and let it simmer for 1 minute before adding the baked tofu cubes. Give it a good stir and make sure that it's all covered up with with the sauce. Transfer in a plate and garnish with sesame seeds. Serve immediately and enjoy with steamed rice.<br /><br />*Feel free to adjust the recipe measurements according to your preference. Cheers! 😊<br />_______________________________________________________________________<br /><br />LET'S BE FRIENDS! <br />» Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/freyandmaria/">https://www.instagram.com/freyandmaria/</a><br />» Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/freyandmaria/">https://www.facebook.com/freyandmaria/</a><br />» Website: <a rel="nofollow" target="blank" href="https://www.freyandmaria.com">https://www.freyandmaria.com</a> (coming soon!)<br /> <br />Please 'Subscribe' and ‘like’ this video. We upload helpful and practical content every week. Hope you can support our little passion project. 💛<br /><br />You'll always find a home here,<br /><br />Frey and Maria<br /><br />#plantbased #vegan #maplemustardtofurecipe{% endraw %}
