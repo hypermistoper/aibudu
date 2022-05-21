@@ -1,0 +1,15 @@
+---
+title: "Snoop Dogg Has Hilarious Plan For “Buying Twitter”"
+image: "https:\/\/i.ytimg.com\/vi\/w3AoqQq4CRY\/hqdefault.jpg"
+vid_id: "w3AoqQq4CRY"
+categories: "Music"
+tags: ["snoop dogg","twitter","snoop dogg buys twitter"]
+date: "2022-05-21T07:27:54+03:00"
+vid_date: "2022-05-18T03:00:19Z"
+duration: "PT1M23S"
+viewcount: "6627"
+likeCount: "180"
+dislikeCount: ""
+channel: "HipHopDX"
+---
+{% raw %}Full Article: <a rel="nofollow" target="blank" href="https://hiphopdx.com/news/id.70259/title.snoop-dogg-wants-to-buy-twitter-and-shares-hilarious-revamp-plan#">https://hiphopdx.com/news/id.70259/title.snoop-dogg-wants-to-buy-twitter-and-shares-hilarious-revamp-plan#</a><br /><br />Snoop Dogg knows how to run a business given the several projects he’s a part of, and it looks like he wants to have his hands in another lucrative pot. On Friday (May 13), the Doggfather took to his Twitter to announce he has a plan to possibly purchase the app.<br /><br />According to Snoop, his plan is to replace the board of directors with a bunch of characters that probably have no business running the show over at Twitter. The West Coast legend also wants to get free WiFi on planes so people can tweet as much as they want in the air.<br /><br />Subscribe to HipHopDX on Youtube for daily Hip Hop News:<br /><a rel="nofollow" target="blank" href="http://bit.ly/dxsubscribe">http://bit.ly/dxsubscribe</a><br /><br />Check out more of DX here on social media:<br /><a rel="nofollow" target="blank" href="http://www.hiphopdx.com">http://www.hiphopdx.com</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/hiphopdx">https://twitter.com/hiphopdx</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/hiphopdx">https://www.facebook.com/hiphopdx</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/hiphopdx">http://instagram.com/hiphopdx</a><br /><br />Script: Mark Elibert<br />Voiceover: Ashia Skye<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ashiaskye/?hl=en">https://www.instagram.com/ashiaskye/?hl=en</a><br />Video Edit: Alex Vasallo<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/kooks33">https://www.instagram.com/kooks33</a><br />Video Manager: Jeremy Hecht<br /><a rel="nofollow" target="blank" href="http://www.instagram.com/jeremy_hecht">http://www.instagram.com/jeremy_hecht</a><br />Executive Producer: Sharath Cherian <br /><br />For over 21 years, HipHopDX has been at the forefront of Hip Hop culture, reaching over 3.2 million readers and 5 million followers per month. As one of the longest-standing Hip Hop digital publications, DX not only stays current on Hip Hop culture, but continues to influence it, encourage it, and simultaneously reflect on its past. Our insightful, honest editorials, unbiased reviews, premier audio and video sections, and original video content, draws one of the most loyal followings online. As a part of Warner Music Group, HipHopDX is expanding internationally and continues to build upon the reputation it has garnered from decades of work.<br /><br />#SNOOPDOGG #TWITTER{% endraw %}
