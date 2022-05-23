@@ -1,0 +1,15 @@
+---
+title: "How God Speaks To You Specifically About Life | The Wisdom of God | Apostle Joshua Selman 2022"
+image: "https:\/\/i.ytimg.com\/vi\/gbc6GY7CTF4\/hqdefault.jpg"
+vid_id: "gbc6GY7CTF4"
+categories: "Education"
+tags: ["apostle joshua selman","apostle joshua selman sermons","koinonia apostle joshua selman"]
+date: "2022-05-23T18:38:53+03:00"
+vid_date: "2022-05-20T19:48:25Z"
+duration: "PT16M1S"
+viewcount: "5409"
+likeCount: "157"
+dislikeCount: ""
+channel: "Revival Alert"
+---
+{% raw %}How God Speaks To You Specifically About Life and The Wisdom of God | Apostle Joshua Selman 2022<br /><br />Click this link to join the channel membership to partner and support us and equally get access to more exclusive contents -<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCgz7sa4AWiAVeoipBPmyxHw/join">https://www.youtube.com/channel/UCgz7sa4AWiAVeoipBPmyxHw/join</a><br /><br />#Apostle_Joshua_Selman<br />Thanks...<br /><br />Please 🙏, remember to #Subscribe to #Revival_Alert and turn on the notification by clicking the bell icon 🔔... <br />Simply click this to subscribe: <a rel="nofollow" target="blank" href="https://bit.ly/revivalalert">https://bit.ly/revivalalert</a><br />Equally🙏, Follow and Like our New Facebook Page: <a rel="nofollow" target="blank" href="https://www.facebook.com/revivalalert">https://www.facebook.com/revivalalert</a><br /><br />»» Video original and  produced exclusively by REVIVAL ALERT<br /><br /><br />Our purpose, when making these videos, is to make quality educational motivational videos and share these with our viewers.<br /><br /><br />License for Images and clips used in video production – Pixabay License: Images and Videos on Pixabay are made available under the Pixabay License on the following terms: Under the Pixabay License you are granted an irrevocable, worldwide, non-exclusive, and royalty-free right to use, download, copy, modify or adapt the Images and Videos for commercial or non-commercial purposes. Attribution of the photographer or Pixabay is not required but is always appreciated.<br /><br /><br />Copyright Disclaimer under section 107 of the Copyright Act of 1976, allowance is made for “fair use” for purposes such as criticism, comment, news reporting, teaching, scholarship, education, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing.”<br /><br /><br />►Fair Use Disclaimer:<br />The purpose of making this video is to make an Educational and inspirational illustrative video that will add significant value to listeners.<br />Thus:<br />1) This video is transformative in nature.<br />2)This video is used for teaching purposes.<br />3)This video has no negative impact on the original works (It would actually be positive for them).<br />4) Only bits and pieces were used to adequately pass this teaching across.<br /><br /><br />If you have any concerns regarding the material used in this upload, please contact us via email at revivalalerts@gmail.com and we can come to a resolution, thanks.{% endraw %}
