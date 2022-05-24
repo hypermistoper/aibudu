@@ -1,0 +1,15 @@
+---
+title: "ニューリー \/ Settee feat.kojikoji (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/jFxnVoCRRdY\/hqdefault.jpg"
+vid_id: "jFxnVoCRRdY"
+categories: "Music"
+tags: ["kojikoji","ニューリー","Chilly Source"]
+date: "2022-05-24T20:18:30+03:00"
+vid_date: "2020-07-14T15:00:12Z"
+duration: "PT5M22S"
+viewcount: "59571"
+likeCount: "2526"
+dislikeCount: ""
+channel: "Chilly Source"
+---
+{% raw %}ニューリー / Settee feat.kojikoji<br />digital link → <a rel="nofollow" target="blank" href="https://linkco.re/5Mnc9nXP">https://linkco.re/5Mnc9nXP</a><br /><br />・Beat &amp; Lyric by <br />ニューリー ( Chilly Source )<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/newly_____/">https://www.instagram.com/newly_____/</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/newly-beat">https://soundcloud.com/newly-beat</a><br /><br />kojikoji<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/kojikoji__i2/">https://www.instagram.com/kojikoji__i2/</a><br /><br />・Director &amp; CG Design by<br />watakemi ( Chilly Source / tsuchifumazu )<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/watakeminote/">https://www.instagram.com/watakeminote/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/watakemi725">https://twitter.com/watakemi725</a><br /><br />--ARフィルター同時リリース--<br />以下のリンクからSettee filterをお楽しみいただけます<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ar/893576137804250/">https://www.instagram.com/ar/893576137804250/</a><br /><br />------------------------------------------------------------------------------<br />▼Chilly Source<br />Chillで気持ち良い音楽をテーマにラジオ配信、楽曲制作、映像制作、アパレル制作、空間プロデュースなどを総合的に行うライフスタイルレーベル。<br /><br />毎週日曜日、YouTubeで22時からDJやゲストアーティストによる様々なChillout musicを配信している。<br /><br />Chillな音の源。それがChilly Source。皆様に最高の音楽をお届けします。ちょっと僕らのChilly Source味見してみませんか？<br /><br />English Below<br />Chilly Source broadcasts Chilled and relaxing music through its radio station, Chilly Source Radio. As a lifestyle label, we release tracks and provide a chill atmosphere.<br />On every Sunday, from 22:00 to 23:00 on our YouTube channel, we have a live broadcast of music.<br /><br />We Provide Chilly New Lifestyle<br />Web<br /><a rel="nofollow" target="blank" href="http://chillysourcetokyo.com/">http://chillysourcetokyo.com/</a><br />SoundCloud<br /><a rel="nofollow" target="blank" href="https://soundcloud.com/chillysource">https://soundcloud.com/chillysource</a><br />Facebook<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/chillysourcetokyo/">https://www.facebook.com/chillysourcetokyo/</a><br />Instagram<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/chillysourcetyo/">https://www.instagram.com/chillysourcetyo/</a><br />Twitter<br /><a rel="nofollow" target="blank" href="https://twitter.com/ChillySourceTyo">https://twitter.com/ChillySourceTyo</a><br /><br />------------------------------------------------------------------------------{% endraw %}
