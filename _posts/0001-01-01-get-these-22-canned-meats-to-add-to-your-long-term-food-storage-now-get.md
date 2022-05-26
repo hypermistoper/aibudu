@@ -1,0 +1,15 @@
+---
+title: "GET THESE 22 CANNED MEATS TO ADD TO YOUR LONG TERM FOOD STORAGE NOW"
+image: "https:\/\/i.ytimg.com\/vi\/2BSXkCZD-qQ\/hqdefault.jpg"
+vid_id: "2BSXkCZD-qQ"
+categories: "People-Blogs"
+tags: ["THESE","CANNED","MEATS"]
+date: "2022-05-27T02:18:35+03:00"
+vid_date: "2022-05-26T21:00:02Z"
+duration: "PT18M35S"
+viewcount: "1951"
+likeCount: "341"
+dislikeCount: ""
+channel: "MAMABEAR PREPPING"
+---
+{% raw %}Get these 22 canned meats to add to your long term food storage now. <br />Let me know in the comments below your thoughts on this topic and discuss anything you would like to add.<br /><br />#prepping<br />#prepare<br />#stockpilefood<br />***************************************<br />MAMABEAR HOMESTEAD CHANNEL (MBP BACK UP CHANNEL):<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC3V3BdxvLilO7r2xBFqMFmA">https://www.youtube.com/channel/UC3V3BdxvLilO7r2xBFqMFmA</a><br />***************************************<br />Mamabear Prepping Amazon Influencer Page: <br />One link to several emergency preparedness items. <br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/mamabearprepping">https://www.amazon.com/shop/mamabearprepping</a><br />****************************************<br /> Follow Me On:<br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/mamabearprepping/">https://www.instagram.com/mamabearprepping/</a> <br />PINTEREST: <a rel="nofollow" target="blank" href="https://www.pinterest.com/mamabearprepping/_saved/">https://www.pinterest.com/mamabearprepping/_saved/</a> <br />TIKTOK: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@mamabearprepping?lang=en">https://www.tiktok.com/@mamabearprepping?lang=en</a> <br />***********************************<br />Join Me In MBP Memberships:<br />-Hit the Join Button Tab on Channel to View Perks-<br />MBP MEMBERSHIP: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCnFoCnZ3lh1TDF_UJG8bsMA/join">https://www.youtube.com/channel/UCnFoCnZ3lh1TDF_UJG8bsMA/join</a><br />**************************************<br />Buy Your Girl a Coffee or Whiskey: <br />Paypal: mamabearprepping@gmail.com<br />CashApp: $mamabearprepping<br />**************************************<br />Disclaimer: I am not sponsored  in any way by anything or anyone I discuss on my videos. As an Amazon Associate I earn from qualifying purchases when you use any links connected to my Amazon Influencer Page. Additionally,  I am also an affiliate of several great companies like Mira Safety &amp; Refuge Medical which does mean I get a small commission should you decide to use one of my links. No pressure at all. I am just a prepper and mom who prepares daily for emergency situations. I am not an expert, nor am I a doctor. You are advised to never take my words as educated or as the survival or medical expertise. I merely talk about what me and my family do and how we prepare to give you ideas but I urge you to always do your own research before acting on anything and/or purchasing anything I might mention to be using or doing myself.{% endraw %}
