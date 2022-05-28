@@ -1,0 +1,15 @@
+---
+title: "All this stuff was free!"
+image: "https:\/\/i.ytimg.com\/vi\/kwUy9btwxQA\/hqdefault.jpg"
+vid_id: "kwUy9btwxQA"
+categories: "People-Blogs"
+tags: ["trash picking in rich neighborhood","trash picking","trash picker"]
+date: "2022-05-28T04:03:51+03:00"
+vid_date: "2022-05-26T09:55:10Z"
+duration: "PT41M1S"
+viewcount: "7500"
+likeCount: "852"
+dislikeCount: ""
+channel: "Texan Picker"
+---
+{% raw %}Private pick at a huge warehouse and a short evening of trash picking in rich neighborhood. Plus we announce the winner of the Betsy Johnson compact AND announce a NEW CONTEST!!!! Who wants a free COACH WALLET????<br /><br />Follow me on social media!<br /><br /><a rel="nofollow" target="blank" href="https://www.TEXANPICKER.com">https://www.TEXANPICKER.com</a><br /><br />Instagram<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/texan_picker">https://www.instagram.com/texan_picker</a><br /><br />TikTok <br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@texanpicker">https://www.tiktok.com/@texanpicker</a><br /><br />Facebook sales group<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/groups/780406112021597/?ref=share">https://www.facebook.com/groups/780406112021597/?ref=share</a><br /><br />eBay <br /><a rel="nofollow" target="blank" href="https://www.ebay.com/usr/daddycane">https://www.ebay.com/usr/daddycane</a><br /><br />Mercari <br /><a rel="nofollow" target="blank" href="https://www.mercari.com/u/872636275">https://www.mercari.com/u/872636275</a><br /><br />Flip Flop Picker (Chris's Channel) <a rel="nofollow" target="blank" href="https://youtu.be/XX3BWHcDvVs">https://youtu.be/XX3BWHcDvVs</a><br /><br />Chris's warehouse video <a rel="nofollow" target="blank" href="https://youtu.be/es_ZA84qhTw">https://youtu.be/es_ZA84qhTw</a><br /><br />About me: I've been trash picking and using the money I make from my sales to buy treasures at garage sales! I make both picking and garage sale videos so check out my playlists to get all your trash picking or garage selling<br /><br />I am based out of the Houston area and have lived here basically all my life. I am happily married with 2 kids. My son, Anthony proudly serves in the US ARMY!!! My beautiful daughter is a musician just like her mom and dad! I also have two fur babies. Judy, our Pomeranian and Sasha,  our Yorkie.<br /><br />#trashpicking #scrapper #dumpsterdiving<br /><br />New Hope Church: <a rel="nofollow" target="blank" href="https://youtube.com/c/NHChurch">https://youtube.com/c/NHChurch</a><br /><br />Lonique’s Instagram:<br /><br /><a rel="nofollow" target="blank" href="https://instagram.com/phdofposh?utm_medium=copy_link">https://instagram.com/phdofposh?utm_medium=copy_link</a><br /><br />Her Mercari Store:<br /><br /><a rel="nofollow" target="blank" href="https://www.mercari.com/u/776827078">https://www.mercari.com/u/776827078</a><br /><br />Her Poshmark Closet:<br /><br /><a rel="nofollow" target="blank" href="https://posh.mk/8pJqSgsEZob">https://posh.mk/8pJqSgsEZob</a>{% endraw %}
