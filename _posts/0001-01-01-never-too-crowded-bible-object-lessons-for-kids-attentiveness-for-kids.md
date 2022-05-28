@@ -1,0 +1,15 @@
+---
+title: "Never too Crowded | Bible Object Lessons for Kids | Attentiveness for Kids (Week 1)"
+image: "https:\/\/i.ytimg.com\/vi\/BDoFDIdCiRE\/hqdefault.jpg"
+vid_id: "BDoFDIdCiRE"
+categories: "Nonprofits-Activism"
+tags: ["character for kids","object lessons for kids","object lessons for sunday school"]
+date: "2022-05-28T06:53:34+03:00"
+vid_date: "2020-08-03T11:00:03Z"
+duration: "PT2M21S"
+viewcount: "197"
+likeCount: "3"
+dislikeCount: ""
+channel: "In The Gap Kids"
+---
+{% raw %}Did you know God is attentive to you and care about you? God is never too busy for His children! Children can learn about the importance of Attentiveness in this object lessons for kids video. Watch and use these object lessons for Sunday school, children’s church, or for a Sunday school at home. Not only will kids learn about Attentiveness in this character for kids video but they will also learn important truths from the Bible in this Bible object lessons for kids. Ready for these Sunday school lessons? Let's go!<br /><br />🎁God's Gift: if you're not God's child, check out this video about God's amazing gift of salvation!<br /><a rel="nofollow" target="blank" href="https://youtu.be/Zc1UNSY-fdY">https://youtu.be/Zc1UNSY-fdY</a><br /><br />🎥Watch more Bible object lessons for kids videos by going to our object lessons for kids playlist: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLgVbLvMRuUI6FhZa6KArYzQbz-g5slxAL">https://youtube.com/playlist?list=PLgVbLvMRuUI6FhZa6KArYzQbz-g5slxAL</a><br /><br />📺Looking for more object lessons for Sunday school? Visit us on our kid’s website: <a rel="nofollow" target="blank" href="https://www.inthegapkids.org/">https://www.inthegapkids.org/</a><br /><br />📸Take a picture of your kids learning this kids Sunday school lesson and share it with us @ <a rel="nofollow" target="blank" href="https://www.facebook.com/inthegap.ok/">https://www.facebook.com/inthegap.ok/</a>  We'd love to see it!<br /><br />Enjoy this Bible object lessons video! If you would like to see more object lessons for kids be sure to subscribe!<br />🎉Subscribe here: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/InTheGapOKC?sub_confirmation=1">https://www.youtube.com/user/InTheGapOKC?sub_confirmation=1</a><br /><br />Some more of our favorite character for kids object lessons! ⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇⬇<br /><br />Frozen Water Balloons | Object lessons for kids<br /><a rel="nofollow" target="blank" href="https://youtu.be/__EJL-56aMw">https://youtu.be/__EJL-56aMw</a><br /><br />Follow the Way | Bible Object lessons for kids<br /><a rel="nofollow" target="blank" href="https://youtu.be/H85VG2TLRjo">https://youtu.be/H85VG2TLRjo</a><br /><br />Would you like to learn how you can teach using Bible object lessons for kids? Check out Leadership Missions Training at In The Gap! We train young adults to teach kids a lot of different things including object lessons! Visit us here: <a rel="nofollow" target="blank" href="https://www.inthegap.org/">https://www.inthegap.org/</a><br /><br />#characterforkids #objectlessons #sundayschoolobjectlessons{% endraw %}
