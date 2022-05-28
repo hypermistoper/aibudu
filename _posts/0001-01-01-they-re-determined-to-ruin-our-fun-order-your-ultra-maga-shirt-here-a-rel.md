@@ -1,0 +1,15 @@
+---
+title: "They’re Determined To Ruin Our Fun"
+image: "https:\/\/i.ytimg.com\/vi\/7YBqk0WAj4c\/hqdefault.jpg"
+vid_id: "7YBqk0WAj4c"
+categories: "Entertainment"
+tags: ["Funny","Entertainment","Fun"]
+date: "2022-05-29T00:39:13+03:00"
+vid_date: "2022-05-28T12:00:03Z"
+duration: "PT4M13S"
+viewcount: "112359"
+likeCount: "20560"
+dislikeCount: ""
+channel: "Mark Dice"
+---
+{% raw %}🚨  Order your ULTRA MAGA shirt here ➡️  <a rel="nofollow" target="blank" href="https://Teespring.com/ULTRA_MAGA">https://Teespring.com/ULTRA_MAGA</a><br />Use promo code ULTRAMAGA at the checkout to get free shipping this weekend<br /><br />Support my channel with a membership for $5 a month here <a rel="nofollow" target="blank" href="https://Youtube.com/MarkDice/join">https://Youtube.com/MarkDice/join</a> <br /><br />🎥  Support me on Patreon for just $5 a month here ➡️  <a rel="nofollow" target="blank" href="https://Patreon.com/MarkDice">https://Patreon.com/MarkDice</a> <br /><br />Order my book &quot;Hollywood Propaganda: How TV, Movies, and Music Shape Our Culture&quot; from Amazon here: <a rel="nofollow" target="blank" href="https://amzn.to/30xPFl5">https://amzn.to/30xPFl5</a> or download the e-book from Kindle, iBooks, Google Play, or Nook.<br /><br />📖  Order my book, &quot;The True Story of Fake News&quot; here ➡️  <a rel="nofollow" target="blank" href="https://amzn.to/2Zb1Vps">https://amzn.to/2Zb1Vps</a>   <br /><br />📖  Order my book &quot;The Liberal Media Industrial Complex&quot; here: <a rel="nofollow" target="blank" href="https://amzn.to/2X5oGKx">https://amzn.to/2X5oGKx</a>   <br />------------------------------------------<br /><br />⚠️  Order your &quot;F*ck Joe Biden&quot; shirt here: <a rel="nofollow" target="blank" href="https://TeeSpring.com/F-JoeBiden">https://TeeSpring.com/F-JoeBiden</a><br /><br />⚠️   Order your &quot;Operation Mockingbird&quot; shirt here: <a rel="nofollow" target="blank" href="https://TeeSpring.com/OperationMockingbird">https://TeeSpring.com/OperationMockingbird</a> <br /><br />⚠️   Order your Warning: Contains Facts &amp; Opinions Some May Find Offensive shirt here: <a rel="nofollow" target="blank" href="https://TeeSpring.com/TriggerWarning">https://TeeSpring.com/TriggerWarning</a><br />------------------------------------------<br /><br />Mark Dice is an independent media analyst and bestselling author of &quot;Hollywood Propaganda: How TV, Movies, and Music Shape Our Culture.”  He has a bachelor's degree in Communication from California State University and was the first conservative YouTuber to reach 1 million subscribers (in 2017).    <br /><br />He has been featured on Fox News, the History Channel, E! Entertainment, the Drudge Report, and news outlets around the world.  <br />------------------------------------------<br /><br />This video description and the pinned comment contains Amazon and/or other affiliate links, which means if you click them and purchase the product(s), Mark will receive a small commission.  <br /><br /><br /><br /><br />Copyright © 2022 by Mark Dice.  All Rights Reserved.{% endraw %}
