@@ -1,0 +1,15 @@
+---
+title: "What Are People Wearing in New York City 2022? | Street Style"
+image: "https:\/\/i.ytimg.com\/vi\/E5DL10pI5rY\/hqdefault.jpg"
+vid_id: "E5DL10pI5rY"
+categories: "People-Blogs"
+tags: ["what are people wearing","what everyone is wearing in new york","what are people wearing in new york"]
+date: "2022-05-30T18:53:49+03:00"
+vid_date: "2022-05-29T15:00:12Z"
+duration: "PT7M10S"
+viewcount: "1379"
+likeCount: "133"
+dislikeCount: ""
+channel: "MAIAZINE | Maia G.V."
+---
+{% raw %}Today we're stalking new yorkers outfits, baby! Thank you to BetterHelp for sponsoring this video! Get 10% off your first month of therapy here: <a rel="nofollow" target="blank" href="https://betterhelp.com/maiazine">https://betterhelp.com/maiazine</a><br /><br />Also! I launched MAIAZINE's instagram! ↓<br />📰 MAIAZINE's instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/maia.zine/">https://www.instagram.com/maia.zine/</a><br />🧃 my instagram:  <a rel="nofollow" target="blank" href="https://www.instagram.com/maia.gv/">https://www.instagram.com/maia.gv/</a><br />🎸 listen to MAIAZINE's jams here! <a rel="nofollow" target="blank" href="https://open.spotify.com/playlist/5ao">https://open.spotify.com/playlist/5ao</a><br /><br />» watch my other fashion content<br />»*virtually* styling my Dream Closet: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=pTIfs...">https://www.youtube.com/watch?v=pTIfs...</a><br />»What Fashion Students in NYC Are Wearing: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=DefKV...">https://www.youtube.com/watch?v=DefKV...</a><br />»100 Years of Fashion Trends: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=PUn5_...">https://www.youtube.com/watch?v=PUn5_...</a><br /><br />»wanna know +?<br />how old are you? 19 years old<br />what's ur nationality? i'm half american and half portuguese!<br />what cameras do u use? canon t5i aka canon 700d + canon 250d<br />what editor do u use? final cut pro x<br />what microphones do u use: iphone's dictafone + rode videomicro<br />how do u colorgrade ur videos? i use adobe lightroom<br /><br />💌 contact me: maiayt333@gmail.com<br /><br />thank you for watching this &amp; joining the mag :))<br />sub count: 52.1k<br /><br />Music by HOAX - soju - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=BFB6FAA9">https://thmatc.co/?l=BFB6FAA9</a> <br /><br />what everyone is wearing in new york, what are people wearing, what are people wearing in new york, what are people wearing in new york city, what people are wearing, what fashion students in nyc are wearing, what fashion students are wearing, what people are wearing in NY, what people are wearing in new york, what people in new york city are wearing, what people in new york are actually wearing, streetstyle outfits, street style outfits, streetstyle,outfit ideas, streetwear outfits, winter outfits, casual outfits, streetstyle outfit ideas, streetstyle outfit lookbook{% endraw %}
