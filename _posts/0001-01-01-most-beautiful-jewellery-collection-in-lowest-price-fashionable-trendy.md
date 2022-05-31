@@ -1,0 +1,15 @@
+---
+title: "Most Beautiful Jewellery Collection in Lowest Price | Fashionable Trendy Jewellery"
+image: "https:\/\/i.ytimg.com\/vi\/K-VYcQxw5Fg\/hqdefault.jpg"
+vid_id: "K-VYcQxw5Fg"
+categories: "Howto-Style"
+tags: ["fashion hacks","fashionable jewellery","best jewellery collection"]
+date: "2022-06-01T00:19:21+03:00"
+vid_date: "2022-05-31T13:48:08Z"
+duration: "PT7M2S"
+viewcount: "8619"
+likeCount: "695"
+dislikeCount: ""
+channel: "Srinaya"
+---
+{% raw %}Most Beautiful and Fashionable Trendy Jewellery Collection in Lowest Price.<br /><br />DOWNLOAD MEESHO APP VIA ANY OF THE FOLLOWING LINKS AND GET YOUR<br />FIRST ORDER DISCOUNT OF 15% OFF UPTO ₹50. ALSO GET FREE DELIVERY,<br />CASH ON DELIVERY, AND EASY RETURNS<br /><br />Product 1: Samriddhi DC Mirror Choker<br />Product Code :  s-98413026 ( ₹ 192)<br />Purchase Link - <a rel="nofollow" target="blank" href="https://cutt.ly/uJoLP5V">https://cutt.ly/uJoLP5V</a><br /><br />Product 2: Jewellery Set<br />Product Code :  s-92176334 (₹ 181)<br />Purchase Link -  <a rel="nofollow" target="blank" href="https://cutt.ly/QJoLDlQ">https://cutt.ly/QJoLDlQ</a><br /><br />Product 3 : Unique American Earring For Girls<br />Product Code :  s-98324744 (₹ 250)<br />Purchase Link - <a rel="nofollow" target="blank" href="https://cutt.ly/JJoLGWf">https://cutt.ly/JJoLGWf</a><br /><br />Product 4 :    Jewellery Set<br />Product Code : s-70301184 ( ₹ 133 )<br />Purchase Link -  <a rel="nofollow" target="blank" href="https://cutt.ly/gJoLJJC">https://cutt.ly/gJoLJJC</a><br /><br />Product 5 : Latest Earring &amp; Studs<br />Product Code : s -42565433( ₹ 203 )<br />Purchase Link - <a rel="nofollow" target="blank" href="https://cutt.ly/AJoLLAV">https://cutt.ly/AJoLLAV</a><br /><br />Product 6 : Elegant Pearl Jewellery Set<br />Product Code : s -2242543( ₹ 252 )<br />Purchase Link - <a rel="nofollow" target="blank" href="https://cutt.ly/OJfdVQA">https://cutt.ly/OJfdVQA</a><br /><br />Product 7 : Shimmering Fancy Jewellery Set<br />Product Code : s -47757702( ₹ 1179 )<br />Purchase Link - <a rel="nofollow" target="blank" href="https://cutt.ly/oJoLBT6">https://cutt.ly/oJoLBT6</a><br /><br />Shop at <a rel="nofollow" target="blank" href="https://www.meesho.com">https://www.meesho.com</a> for quality products at best prices.<br /><br />#Collaboration #Meesho #MeeshoHaul<br /><br />If you like our effort please do LIKE this video and share as much as possible and Subscribe our Channel - <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCuJUmPQgcV9B2P_2C_0mn7A?sub_confirmation=1">https://www.youtube.com/channel/UCuJUmPQgcV9B2P_2C_0mn7A?sub_confirmation=1</a><br /><br />▷ Soma's Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/royalquinn.official">https://www.instagram.com/royalquinn.official</a><br /><br />Connect with us on - <br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/srinaya_yt/">https://www.instagram.com/srinaya_yt/</a><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/Srinaya-109004277165730">https://www.facebook.com/Srinaya-109004277165730</a>{% endraw %}
