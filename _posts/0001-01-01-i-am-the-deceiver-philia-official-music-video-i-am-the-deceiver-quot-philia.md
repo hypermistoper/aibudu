@@ -1,0 +1,15 @@
+---
+title: "I Am The Deceiver - Philia (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/B0mJ9y0dtNk\/hqdefault.jpg"
+vid_id: "B0mJ9y0dtNk"
+categories: "Music"
+tags: ["Deceiver","Philia","(Official"]
+date: "2022-06-01T23:28:43+03:00"
+vid_date: "2022-05-31T22:00:09Z"
+duration: "PT4M12S"
+viewcount: "242"
+likeCount: "44"
+dislikeCount: ""
+channel: "I Am The Deceiver"
+---
+{% raw %}I Am The Deceiver &quot;Philia&quot; <br /><br />Available on all streaming platforms<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/IAmTheDeceiver">https://www.facebook.com/IAmTheDeceiver</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/iamthedecei...">https://www.instagram.com/iamthedecei...</a><br />Store: <a rel="nofollow" target="blank" href="http://iamthedeceiver.bigcartel.com">http://iamthedeceiver.bigcartel.com</a><br /><br />Written by I Am The Deceiver <br />Synths by Raúl Platzer &amp; Paul Gleitsmann<br />Produced by Raúl Platzer &amp; I Am The Deceiver<br />Mix by Raúl Platzer &amp; I Am The Deceiver<br />Master by I Am The Deceiver<br /><br />Visuals by Strangeworks<br /><br />LYRICS:<br /><br />How, can I resist egomania? <br />Vow, loyalty through a prayer, <br />Take my hand, my dearest friend, <br />Trust in me, you won't repent.<br />How, how can I resist egomania? <br />Thou deal with giants &amp; failure <br />Take my hand, my dearest friend, <br />Trust in me, you won't repent. <br /><br />Oh son of Jesse, let me know <br />How I can show you, <br />How much I owe you? <br />Ignore the succession to the throne <br />Cause without you, I am so alone. <br /><br />Take my sword and take my bow,<br />My father Saul - your biggest foe, <br />Take my sword and take my bow, <br />Dear God, protect his soul. <br /><br />No secrets, no lies, <br />Just equal allies!<br />We take this oath <br />and we fight a green-eyed monster. <br />We will rise! <br />No secrets, no lies, <br />Just equal allies<br />Our eyes shine so bright, <br />While we realize the tie!  <br /><br />Your father stood between us! <br />I should be the king and <br />You should, be my prince.<br />The shepherd, The Archer. <br />The shepherd, The Archer. <br /><br />Always a teacher and friend for me! <br />Always a friend for me! <br />A teacher &amp; friend for me! <br /><br />How the mighty have fallen, <br />And the weapons of war perished<br />Why didn't I take caution, <br />Concerning the friend I cherished. <br /><br />I promised you to assist you, <br />That's why Mephibosheth is my son, too.<br />Very pleasant have you been to me, <br />Now I'm lamenting your destiny. <br /><br />No rivals, no enemies!<br /><br />No secrets, no lies, <br />Just equal allies!<br />We take this oath <br />and we fight a green-eyed monster. <br />We will rise! <br />No secrets, no lies, <br />Just equal allies<br />Our eyes shine so bright, <br />While we realize the tie! <br /><br />The shepherd, the archer{% endraw %}
