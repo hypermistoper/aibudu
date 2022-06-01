@@ -1,0 +1,15 @@
+---
+title: "GENIUS HACKS YOU NEED TO TRY AT HOME | DIY IDEAS AND TIPS FOR EMERGENCY SITUATIONS"
+image: "https:\/\/i.ytimg.com\/vi\/F3w8b4rveY0\/hqdefault.jpg"
+vid_id: "F3w8b4rveY0"
+categories: "Entertainment"
+tags: ["diy","do it yourself","prank"]
+date: "2022-06-01T17:09:13+03:00"
+vid_date: "2022-06-01T13:15:00Z"
+duration: "PT6M8S"
+viewcount: "6047"
+likeCount: "123"
+dislikeCount: ""
+channel: "Crafty Hype"
+---
+{% raw %}Anna, Jake, and Josh need help!<br /><br />Do they know what to do in emergency situations?<br />Use these DIY tips and ideas for a quick fix!<br />Which idea do you think was best?<br /><br /><br />0:00-0:54 Exfoliate Dead Skin With DIY Coffee Mix<br />0:55-1:32 Aloe Vera To Soothe Burns<br />1:33-2:26 How To Fix A Dead Arm<br />2:27-3:06 Fixing A Toothache By Biting Garlic<br />3:07-4:02 Helping Cramps With Pickle Juice<br />4:03-4:57 Avocado &amp; Lime Hair Removal <br />4:58-5:59 Sleeping Better With A Full Stomach<br />6:00-6:07 Outro<br /><br /><br />Subscribe for notifications to new videos: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCVBqGZrGmtCwks54PMyQQMA?sub_confirmation=1">https://www.youtube.com/channel/UCVBqGZrGmtCwks54PMyQQMA?sub_confirmation=1</a><br /><br /><br />Check out our latest videos playlist:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=R3kgcCqvKsc&amp;list=PLuUXjwDebE66HkQAmMPFxJk8U5TBfiRa5">https://www.youtube.com/watch?v=R3kgcCqvKsc&amp;list=PLuUXjwDebE66HkQAmMPFxJk8U5TBfiRa5</a><br />Check out Crafty Hype Shorts:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC-5w5PPLhiCMQhsO2kN2zXg/featured?sub_confirmation=1">https://www.youtube.com/channel/UC-5w5PPLhiCMQhsO2kN2zXg/featured?sub_confirmation=1</a><br />Check out Crafty Hacks Plus:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCD5BJYvR9yTPB7n46DK1wRA?sub_confirmation=1">https://www.youtube.com/channel/UCD5BJYvR9yTPB7n46DK1wRA?sub_confirmation=1</a><br />Check out Crafty Hacks ES:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCBn0INB-A36iBvcpcxfAKKg?sub_confirmation=1">https://www.youtube.com/channel/UCBn0INB-A36iBvcpcxfAKKg?sub_confirmation=1</a><br />Check Out Sweedee:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCMPQD9gyyH0hj_-t9CNwRaw?sub_confirmation=1">https://www.youtube.com/channel/UCMPQD9gyyH0hj_-t9CNwRaw?sub_confirmation=1</a><br /><br /><br />This video is made for entertainment purposes. We do not make any warranties about the completeness, safety, and reliability. Any action you take upon the information on this video is strictly at your own risk, and we will not be liable for any damages or losses. It is the viewer's responsibility to use judgment, care, and precautions if one plans to replicate. The following video might feature activity performed by our actors within a controlled environment - please use judgment, care, and precaution if you plan to replicate.{% endraw %}
