@@ -1,0 +1,15 @@
+---
+title: "Now & Then — Official Trailer | Apple TV+"
+image: "https:\/\/i.ytimg.com\/vi\/zfyk7tbtTN4\/hqdefault.jpg"
+vid_id: "zfyk7tbtTN4"
+categories: "Entertainment"
+tags: ["now and then","now & then","trailer"]
+date: "2022-06-01T14:52:57+03:00"
+vid_date: "2022-04-19T12:59:49Z"
+duration: "PT2M4S"
+viewcount: "104423"
+likeCount: "1164"
+dislikeCount: ""
+channel: "Apple TV"
+---
+{% raw %}Blackmailed before a college reunion, five friends are confronted by their dark past. After 20 years, will their secret finally come out? Stream Now &amp; Then, only on Apple TV+ <a rel="nofollow" target="blank" href="https://apple.co/_NowAndThen">https://apple.co/_NowAndThen</a><br /><br />Now and Then is a multi-layered thriller that explores the differences between youthful aspirations and the reality of adulthood, when the lives of a group of college best friends are forever changed after a celebratory weekend ends up with one of them dead. Now the remaining five are reluctantly reunited by a threat that puts their seemingly perfect worlds at risk. <br /><br />Set in Miami and shot in both Spanish and English, Now and Then stars an exceptional ensemble cast, including Academy Award nominees Marina de Tavira and Rosie Perez, Ariel Award winner José María Yazpik, multi-Goya Award winner Maribel Verdú, Manolo Cardona, Goya Award winner Soledad Villamil, Emmy Award winner Željko Ivanek, Jorge López, Alicia Jaziz, Dario Yazbek Bernal, Alicia Sanz, Jack Duarte and Miranda de la Serna.<br /><br />Song: “Nada (feat. Li Saumet)” by Lido Pimienta <a rel="nofollow" target="blank" href="https://apple.co/Nada_LidoPimienta">https://apple.co/Nada_LidoPimienta</a><br /><br />Subscribe to Apple TV’s YouTube channel: <a rel="nofollow" target="blank" href="https://apple.co/AppleTVYouTube">https://apple.co/AppleTVYouTube</a><br /><br />Follow Apple TV:<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/AppleTV">https://instagram.com/AppleTV</a><br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/AppleTV">https://facebook.com/AppleTV</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/AppleTV">https://twitter.com/AppleTV</a><br />Giphy: <a rel="nofollow" target="blank" href="https://giphy.com/AppleTV">https://giphy.com/AppleTV</a><br /><br />Follow Apple TV+<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/AppleTVPlus">https://instagram.com/AppleTVPlus</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/AppleTVPlus">https://twitter.com/AppleTVPlus</a><br /><br />More from Apple TV: <a rel="nofollow" target="blank" href="https://apple.co/32qgOEJ">https://apple.co/32qgOEJ</a><br /><br />Apple TV+ is a streaming service with original stories from the most creative minds in TV and film. Watch now on the Apple TV app: <a rel="nofollow" target="blank" href="https://apple.co/_AppleTVapp">https://apple.co/_AppleTVapp</a><br /><br />#NowAndThen #Trailer #AppleTV{% endraw %}
