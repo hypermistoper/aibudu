@@ -1,0 +1,15 @@
+---
+title: "The Search Engine Song - LOLNEIN"
+image: "https:\/\/i.ytimg.com\/vi\/rYquvyP2HW0\/hqdefault.jpg"
+vid_id: "rYquvyP2HW0"
+categories: "Entertainment"
+tags: ["Search","Engine","LOLNEIN"]
+date: "2022-06-02T14:07:12+03:00"
+vid_date: "2021-09-02T11:27:02Z"
+duration: "PT3M49S"
+viewcount: "292347"
+likeCount: "9608"
+dislikeCount: ""
+channel: "LOLNEIN"
+---
+{% raw %}Available on Spotify and other streaming services: <a rel="nofollow" target="blank" href="https://open.spotify.com/album/3hemNklasGDjA8uAGHgu9G?si=DVLxbzWxQhyg2Uj3WWw5dA&amp;dl_branch=1">https://open.spotify.com/album/3hemNklasGDjA8uAGHgu9G?si=DVLxbzWxQhyg2Uj3WWw5dA&amp;dl_branch=1</a><br />​<br />OLD VERSION: <a rel="nofollow" target="blank" href="https://youtu.be/4dS6_pX5sTM">https://youtu.be/4dS6_pX5sTM</a><br /><br /><br />Written, produced and animated by LOLNEIN<br />Mastered by <a rel="nofollow" target="blank" href="https://soundcloud.app.goo.gl/ZURrh7JKH9WZxNR99">https://soundcloud.app.goo.gl/ZURrh7JKH9WZxNR99</a><br /><br /><br />+++ Follow me everywhere! +++<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/lolneincom/​">https://instagram.com/lolneincom/​</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/LOLNEIN">https://twitter.com/LOLNEIN</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/lolnein">https://www.patreon.com/lolnein</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/lolnein">https://soundcloud.com/lolnein</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/lolnein">https://www.facebook.com/lolnein</a><br /><br />Lyrics:<br />So you have a problem and you don’t know what to do<br />Guess it’s time to find a suitable solution<br />You’re about to crazy for an hour now or two<br />Tell me when to call a mental institution<br /><br />You describe your problem and you ask me if I know<br />How to deal with this sort of situation<br />I say do I look to you like I am stack overflow<br />But you just ignore my subtle implication<br /><br />You’d be surprised<br />How many people also had this issue<br />In case you haven’t realized<br />Search engines are a thing too<br />You’d be surprised <br />Just try out Google Bing or Yahoo<br />Though it’s not advised<br />To expect good results on page two<br /><br />You still have a problem you say you’ve tried all the tricks <br />Your constant groans are getting kinda straining<br />The time you have spent whining could have been used to find a fix<br />I get the feeling you just love complaining<br /><br />I see<br />That you are frustrated<br />It must be<br />Crazy complicated <br />Wasn’t there<br />Any help on the internet<br />You say<br />You haven’t looked it up yet<br /><br />You’d be surprised<br />How many people also had this issue<br />In case you haven’t realized<br />Search engines are a thing too<br />You’d be surprised <br />Just try out Google Bing or Yahoo<br />Though it’s not advised<br />To expect good results on page two{% endraw %}
