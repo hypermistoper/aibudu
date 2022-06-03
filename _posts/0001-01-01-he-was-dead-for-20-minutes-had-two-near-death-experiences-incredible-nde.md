@@ -1,0 +1,15 @@
+---
+title: "He Was Dead for 20 Minutes & Had TWO Near Death Experiences! (Incredible NDE)"
+image: "https:\/\/i.ytimg.com\/vi\/oP1_6lK6UJY\/hqdefault.jpg"
+vid_id: "oP1_6lK6UJY"
+categories: "Entertainment"
+tags: ["near death experience heaven","near death experience","near death experience stories"]
+date: "2022-06-04T02:09:45+03:00"
+vid_date: "2022-05-19T15:24:38Z"
+duration: "PT34M54S"
+viewcount: "278818"
+likeCount: "9062"
+dislikeCount: ""
+channel: "Shaman Oaks"
+---
+{% raw %}Rob Gentile shares his Two Near Death Experiences (NDE) that changed his life.<br /><br />Rob's Social Links<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/robagentile">https://www.instagram.com/robagentile</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/RobAGentile">https://www.facebook.com/RobAGentile</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/RobAGentile1">https://twitter.com/RobAGentile1</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/quarks-of-light">https://www.linkedin.com/company/quarks-of-light</a><br /><br />📚 Rob's Book: Quarks of Light:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3sIkZf2">https://amzn.to/3sIkZf2</a><br /><br />In Quarks of Light, Rob shares his journey and provides a roadmap for overcoming adversity, discovering your true identity, staying in spirit, and connecting to the Universal language of love and light. <br /><br />*As an Amazon Associate I earn from qualifying purchases.<br /><br />Check out My Amazon Store:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3gI085Y">https://amzn.to/3gI085Y</a><br /><br />Try Audible For Free:<br /><a rel="nofollow" target="blank" href="https://amzn.to/35zRf87">https://amzn.to/35zRf87</a><br /><br />My Social Links:<br />IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/shamanoaks/">https://www.instagram.com/shamanoaks/</a><br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/shamanoaks/">https://www.facebook.com/shamanoaks/</a><br />TW: <a rel="nofollow" target="blank" href="https://www.twitter.com/shamanoaks/">https://www.twitter.com/shamanoaks/</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@shamanoaks">https://www.tiktok.com/@shamanoaks</a><br /><br />Join My Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/shamanoaks">https://www.patreon.com/shamanoaks</a><br /><br />Contact:<br />Website: <a rel="nofollow" target="blank" href="https://www.shamanoaks.com">https://www.shamanoaks.com</a><br />Email: shamanoaks@gmail.com<br /><br />Video Clips:<br /><a rel="nofollow" target="blank" href="https://filmpac.com">https://filmpac.com</a><br /><br />Music:<br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/75pdok/">https://www.epidemicsound.com/referral/75pdok/</a><br /><br />#nde #neardeathexperience #afterlife #heaven #nde2022 #heaven #robgentile #shamanoaks{% endraw %}
