@@ -1,0 +1,15 @@
+---
+title: "Essai Audi RS6 - Mes cervicales s'en souviennent encore !!!"
+image: "https:\/\/i.ytimg.com\/vi\/s5Ebqw3GFGc\/hqdefault.jpg"
+vid_id: "s5Ebqw3GFGc"
+categories: "Autos-Vehicles"
+tags: ["#essai audi rs6","#audi rs6 drag race","#bmw m5 competition"]
+date: "2022-06-03T11:58:24+03:00"
+vid_date: "2020-12-23T16:00:11Z"
+duration: "PT32M49S"
+viewcount: "642054"
+likeCount: "6965"
+dislikeCount: ""
+channel: "Le Vendeur Automobiles"
+---
+{% raw %}Pour recevoir une offre en location longue durée sur cette AUDI RS6, cliquez sur ce lien et remplissez le formulaire :<br /><a rel="nofollow" target="blank" href="https://devis.pca-services.fr/demande_devis.html?origine=levendeurautomobiles.com">https://devis.pca-services.fr/demande_devis.html?origine=levendeurautomobiles.com</a><br /><br />---------------------------------------------------------------------------------------------------------------------<br /><br />Vous êtes professionnel du secteur automobile et souhaitez former vos équipes à la vente grâce aux outils digitaux, cliquez sur ce lien, remplissez le formulaire et cliquez sur « ENVOYER » : <br /><a rel="nofollow" target="blank" href="https://manitude.fr/contact-formation-partenariat-automobile/">https://manitude.fr/contact-formation-partenariat-automobile/</a><br />Déjà plus de 150 commerciaux formés à date.<br /><br />---------------------------------------------------------------------------------------------------------------------<br /><br />Merci à Audi France : <br /><a rel="nofollow" target="blank" href="https://www.audi.fr/">https://www.audi.fr/</a><br /><br />---------------------------------------------------------------------------------------------------------------------<br /><br />Pour les demandes de SPONSORING ou de CREATION DE CONTENU DIGITAL, merci de m’envoyer directement un e-mail sur : nicolas@levendeurautomobiles.com<br /><br />Pour vous abonner à notre chaîne, c'est par ici:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCd4dFH3mGM82iqsNtUz-Srw/?sub_confirmation=1">https://www.youtube.com/channel/UCd4dFH3mGM82iqsNtUz-Srw/?sub_confirmation=1</a><br /><br />Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/levendeurautomobiles/">https://www.instagram.com/levendeurautomobiles/</a><br /><br />Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/Le-Vendeur-Automobiles-Paris-109340669089275/">https://www.facebook.com/Le-Vendeur-Automobiles-Paris-109340669089275/</a><br /><br />Notre site internet : <a rel="nofollow" target="blank" href="http://www.levendeurautomobiles.com/">http://www.levendeurautomobiles.com/</a><br /><br />La Page Linkedin de Nicolas : <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/nicolas-rolland-private-equity/">https://www.linkedin.com/in/nicolas-rolland-private-equity/</a><br /><br />La page Linkedin de Romain : <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/romain-griveau-76758150/">https://www.linkedin.com/in/romain-griveau-76758150/</a>{% endraw %}
