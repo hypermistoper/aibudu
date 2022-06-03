@@ -1,0 +1,15 @@
+---
+title: "AD INFINITUM - Afterlife - Ft Alea Der Bescheidene,  Madeleine Liljestam, Hans Platz & Linda Laukamp"
+image: "https:\/\/i.ytimg.com\/vi\/XS2MFoZUk_A\/hqdefault.jpg"
+vid_id: "XS2MFoZUk_A"
+categories: "People-Blogs"
+tags: ["INFINITUM","Afterlife","Bescheidene,"]
+date: "2022-06-03T17:23:12+03:00"
+vid_date: "2022-05-05T14:00:10Z"
+duration: "PT4M53S"
+viewcount: "20486"
+likeCount: "1522"
+dislikeCount: ""
+channel: "Ad Infinitum"
+---
+{% raw %}Afterlife - Live in Turbinenhaus 2021 - Featuring Madeleine Liljestam (Eleine), Alea Der Bescheidene (Saltatio Mortis), Hans Platz (Feuerschwanz/The Dark Side Of The Moon) &amp; Linda Laukamp (Eklipse)<br /><br />Order the album &quot;Chapter II - Legacy&quot; here: <a rel="nofollow" target="blank" href="https://smarturl.it/ChapterIILegacy-NPR">https://smarturl.it/ChapterIILegacy-NPR</a><br /><br />TOUR DATES 2022:<br />12.06.2022 | NL – Into The Grave Festival<br />13.06.2022 | DE – Frankfurt, Nachtleben<br />15.06.2022 | CH – Caribana Festival<br />24.06.2022 | DE – Saarbrücken, Garage (w/Epica &amp; Eluveitie)<br />26.06.2022 | FR – Rouens, Le 106 (w/ Eluveitie)<br />27.06.2022 | FR – Nancy, L'Autre Canal (w/ Eluveitie)<br />09.07.2022 | DE – Rockharz Festival<br />14.07.2022 | AT – Area 53 Festival<br />18.08.2022 | DE – Club Vaudeville, Lindau (w/Feuerschwanz)<br />20.08.2022 | CH – Rock The Lakes Festival<br /><br />On Tour with Amaranthe, Beyond the Black &amp; Butcher Babies:<br />06.10.2022 | AT – Vienna, Arena<br />07.10.2022 | DE – Leipzig, Haus Auensee<br />08.10.2022 | DE – Ludwigsburg, MHP Arena<br />09.10.2022 | BE – Antwerp, Trix<br />11.10.2022 | UK – Manchester, O2 Ritz<br />12.10.2022 | UK – London, Forum Kentish Town<br />14.10.2022 | FR – Lyon, Ninkasi Kao<br />15.10.2022 | ES – Barcelona, Salamandra<br />16.10.2022 | ES – Madrid, Mon Live<br />18.10.2022 | FR – Bordeaux, Rock School Barbey<br />19.10.2022 | FR – Paris, Elysée Montmartre<br />21.10.2022 | DE – Berlin, Columbiahalle<br />22.10.2022 | DE – Offenbach, Stadthalle<br />23.10.2022 | CH – Zürich, X-Tra*<br />25.10.2022 | IT – Milan, Live Club<br />26.10.2022 | CH – Lausanne, Metropole<br />28.10.2022 | DE – Geiselwind, Event Hall<br />29.10.2022 | CZ – Zlin, MOR Cafe<br />30.10.2022 | HU – Budapest, Barba Negra<br />31.10.2022 | DE – Munich, Zenith<br />02.11.2022 | PL – Warsaw, Progresja<br />04.11.2022 | DE – Oberhausen, Turbinenhalle<br />05.11.2022 | DE – Hamburg, Zeltphilharmonie*<br />06.11.2022 | NL – Utrecht, Tivoli Ronda<br />08.11.2022 | DK – Copenhagen, Amager Bio<br />09.11.2022 | NO – Oslo, Sentrum Scene<br />11.11.2022 | SE – Gothenburg, Pustervik<br />12.11.2022 | SE – Stockholm, Klubben Fryshuset<br /><br />17.12.2022 | DE – Schwäbisch Gmünd, Phönix (Festival)<br /><br />Band:<br />Melissa Bonny (vocals)<br />Adrian Thessenvitz (guitars)<br />Korbinian Benedict (bass)<br />Niklas Müller (drums)<br /><br />Video credits:<br />Video Production: Vincent De Fallois<br />Lights: Matthäus Scheuerer<br />Live sound: Philipp Sesselmann<br />Mix: Philipp Rösch<br /><br />Special thanks to GEMA, Neustart Kultur, David Alvarado and Stadt Kulmbach{% endraw %}
