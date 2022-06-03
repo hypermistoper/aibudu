@@ -1,0 +1,15 @@
+---
+title: "This Is The CRAZIEST PARKOUR POV Escape From ANGRIEST GIRLFRIEND In The WORLD!"
+image: "https:\/\/i.ytimg.com\/vi\/xjCyifR1hdI\/hqdefault.jpg"
+vid_id: "xjCyifR1hdI"
+categories: "Gaming"
+tags: ["CRAZIEST","PARKOUR","Escape"]
+date: "2022-06-03T22:07:51+03:00"
+vid_date: "2021-12-08T16:02:38Z"
+duration: "PT11M23S"
+viewcount: "2337367"
+likeCount: "29753"
+dislikeCount: ""
+channel: "Kwebbelkop"
+---
+{% raw %}This Is The CRAZIEST PARKOUR POV Escape From ANGRIEST GIRLFRIEND In The WORLD! If you enjoyed this video, watch more here: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL5kGYXRS_Mu02YfsKq_6JUZXtHonoL0ce">https://www.youtube.com/playlist?list=PL5kGYXRS_Mu02YfsKq_6JUZXtHonoL0ce</a><br /><br />Check out the original video:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=8wyKGk2GGgI&amp;t=62s&amp;ab_channel=Run%26Jump">https://www.youtube.com/watch?v=8wyKGk2GGgI&amp;t=62s&amp;ab_channel=Run%26Jump</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=GL3wkqTxnXg&amp;ab_channel=Run%26Jump">https://www.youtube.com/watch?v=GL3wkqTxnXg&amp;ab_channel=Run%26Jump</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=KqK9rFUOBv0&amp;ab_channel=Run%26Jump">https://www.youtube.com/watch?v=KqK9rFUOBv0&amp;ab_channel=Run%26Jump</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=QJPuRzw2iK4&amp;ab_channel=Run%26Jump">https://www.youtube.com/watch?v=QJPuRzw2iK4&amp;ab_channel=Run%26Jump</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=uhJkn1Dox-0&amp;ab_channel=Run%26Jump">https://www.youtube.com/watch?v=uhJkn1Dox-0&amp;ab_channel=Run%26Jump</a><br /><br />👕MERCHANDISE: <a rel="nofollow" target="blank" href="https://kops.com">https://kops.com</a><br /><br />Check out my best friend!<br />🔴 Jam 🔴 <a rel="nofollow" target="blank" href="https://youtu.be/nKA6fjdUSoA">https://youtu.be/nKA6fjdUSoA</a><br />🔵 Bloo 🔵 <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=zCJGyjMKG58">https://www.youtube.com/watch?v=zCJGyjMKG58</a><br /><br />🎮 MY GEAR<br />My Capture Card! <a rel="nofollow" target="blank" href="http://e.lga.to/Kwebbelkop">http://e.lga.to/Kwebbelkop</a><br /><br />▶HOT NEW GAMES COMING OUT I AM EXCITED ABOUT!!!<br />Battlefield 2042<br /><a rel="nofollow" target="blank" href="https://shop-links.co/cfSqpJWUZXC">https://shop-links.co/cfSqpJWUZXC</a><br />Halo Infinity<br /><a rel="nofollow" target="blank" href="https://shop-links.co/cfSqtcXYrla">https://shop-links.co/cfSqtcXYrla</a><br /><br />🔊JOIN MY DISCORD SERVER!<br /><a rel="nofollow" target="blank" href="https://discord.com/invite/kwebbelkop">https://discord.com/invite/kwebbelkop</a><br /><br />😄 This video is child friendly / kid friendly / family friendly ENJOY! 😄<br /><br />🎵 CREDITS<br />Can't Stop Won't Stop - Mighty &amp; High<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ZPi3ZtReWBw">https://www.youtube.com/watch?v=ZPi3ZtReWBw</a>{% endraw %}
