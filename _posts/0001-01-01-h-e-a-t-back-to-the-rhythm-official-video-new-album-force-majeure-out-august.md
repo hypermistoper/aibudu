@@ -1,0 +1,15 @@
+---
+title: "H.E.A.T. 'Back To The Rhythm' - Official Video - New Album 'Force Majeure' out August 5th"
+image: "https:\/\/i.ytimg.com\/vi\/e4bj3LM3G5A\/hqdefault.jpg"
+vid_id: "e4bj3LM3G5A"
+categories: "Music"
+tags: ["earmusic","new album","music video"]
+date: "2022-06-03T18:50:22+03:00"
+vid_date: "2022-04-08T17:00:12Z"
+duration: "PT4M48S"
+viewcount: "205825"
+likeCount: "6100"
+dislikeCount: ""
+channel: "earMUSIC"
+---
+{% raw %}Pre-order 'FORCE MAJEURE' here: <a rel="nofollow" target="blank" href="https://Heat.lnk.to/ForceMajeureYT">https://Heat.lnk.to/ForceMajeureYT</a><br /><br />Swedish Hard Rock Kings H.E.A.T return with their second energetic single 'Back To The Rhythm'. Taken from their upcoming album 'Force Majeure', it is the sound of a band at the peak of their powers. 'Force Majeure' arrives worldwide on August 5th 2022.<br /><br />Sonically and visually, the band take it up a notch. For the music videos as well as the artwork, a vibrant fictional world - H.E.A.T City - has been built for this release, creating an exciting surrounding for the band’s energetic album. <br /><br />The band is back with original singer Kenny Leckremo on lead, taking everyone on a speedy and energetic ride through H.E.A.T city. For most people, the last two years have probably been marked by exactly what has given H.E.A.T’s album its name – a &quot;force majeure&quot;.<br />But, H.E.A.T don't let such forces stop them, quite the opposite. <br /><br />Produced by Richard Frantzén at Virtual Star Studios.<br /><a rel="nofollow" target="blank" href="https://www.virtualstarstudios.se">https://www.virtualstarstudios.se</a><br /><br />Follow the latest news on H.E.A.T and ‘Force Majeure’ here: <br /><br />H.E.A.T on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/heatsweden">https://www.facebook.com/heatsweden</a> <br />H.E.A.T on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/heatsweden">https://www.instagram.com/heatsweden</a><br />H.E.A.T on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/heatsweden">https://twitter.com/heatsweden</a> <br /><br /><a rel="nofollow" target="blank" href="https://www.heatsweden.com">https://www.heatsweden.com</a> <br /><br />Catch up with the latest news on all earMUSIC releases here: <br /><br /><a rel="nofollow" target="blank" href="https://www.ear-music.net/">https://www.ear-music.net/</a> <br /><a rel="nofollow" target="blank" href="https://ear-music.shop/">https://ear-music.shop/</a> <br /><br />earMUSIC on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/earmusicofficial">https://www.facebook.com/earmusicofficial</a> <br />earMUSIC on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/earmusic">https://www.instagram.com/earmusic</a> <br />earMUSIC on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/earmusicedel">https://twitter.com/earmusicedel</a> <br /><br />#HEAT #forcemajeure{% endraw %}
