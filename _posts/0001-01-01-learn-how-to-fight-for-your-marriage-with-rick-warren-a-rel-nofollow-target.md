@@ -1,0 +1,15 @@
+---
+title: "Learn How To Fight For Your Marriage with Rick Warren"
+image: "https:\/\/i.ytimg.com\/vi\/rwEZ4W_uqEo\/hqdefault.jpg"
+vid_id: "rwEZ4W_uqEo"
+categories: "Howto-Style"
+tags: ["Rick Warren (Musical Artist)","Marriage (Quotation Subject)","Religion (TV Genre)"]
+date: "2022-06-04T04:20:42+03:00"
+vid_date: "2014-10-28T13:12:08Z"
+duration: "PT1H31M14S"
+viewcount: "625272"
+likeCount: ""
+dislikeCount: ""
+channel: "Saddleback Church"
+---
+{% raw %}<a rel="nofollow" target="blank" href="http://www.saddleback.com/online">http://www.saddleback.com/online</a> --If your marriage is going to last, you’re going to have to fight for it — because everything in society is pulling against it. In part one of his new series on building great relationships, Pastor Rick Warren looks at what the Bible says about marriage. You’ll learn six reasons that God created marriage and discover why it is so important in today’s culture. In the second part of the message, Pastor Rick welcomes his wife, Kay, for an open, honest, funny, and heartfelt discussion about how to fight for your marriage in the four seasons of married life. (Sermon by Rick Warren with Kay Warren) <br /><br /><br />To learn more about our Saddleback Church Southern California &amp; international locations, visit: <a rel="nofollow" target="blank" href="http://www.saddleback.com/online">http://www.saddleback.com/online</a> <br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br />For more information on How To Save Your Marriage, check out these additional resources: <br /><br />The List that Saved My Marriage | Today's Christian Woman<br /><a rel="nofollow" target="blank" href="http://www.todayschristianwoman.com">http://www.todayschristianwoman.com</a> <br /><br />10 Unexpected Ways to Save Your Marriage - Oprah.com<br /><a rel="nofollow" target="blank" href="http://www.oprah.com/.../10-Unexpected-Ways-to-Save-Your-...">http://www.oprah.com/.../10-Unexpected-Ways-to-Save-Your-...</a><br /><br />How To Save Your Marriage When You Feel Hopeless ...<br /><a rel="nofollow" target="blank" href="http://www.yourtango.com/experts/dr...marriage/how-save-your-marriage">http://www.yourtango.com/experts/dr...marriage/how-save-your-marriage</a><br /><br />If you think your marriage is unsalvageable, think again.<br />Can a Marriage Be Saved By One Spouse? Letter #1<br /><a rel="nofollow" target="blank" href="http://www.marriagebuilders.com/graphic/mbi5009_qa.html">http://www.marriagebuilders.com/graphic/mbi5009_qa.html</a><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br />(Marriage) (Save your marriage) (fight for your marriage) (How to fight for your marriage) (relationships) (Marriage counseling) (Rick Warren) (Pastor Rick Warren) (Sermon) (Saddleback Church) (Saddleback) (Orange County) (Lake Forest) (Message) (Kay Warren) (commitment) (tips for your marriage) (love your spouse) (Wives) (Husbands) (family) (awesome marriage) (AwesomeIs) (Awesome) (winning relationships){% endraw %}
