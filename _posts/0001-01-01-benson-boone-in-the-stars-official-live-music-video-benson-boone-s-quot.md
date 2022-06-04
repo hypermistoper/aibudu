@@ -1,0 +1,15 @@
+---
+title: "Benson Boone - In The Stars (Official Live Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/lAXsWFkKsK4\/hqdefault.jpg"
+vid_id: "lAXsWFkKsK4"
+categories: "Music"
+tags: ["benson boone","in the stars","in the stars live"]
+date: "2022-06-04T12:07:11+03:00"
+vid_date: "2022-06-02T14:00:34Z"
+duration: "PT4M1S"
+viewcount: "85798"
+likeCount: "5549"
+dislikeCount: ""
+channel: "Benson Boone"
+---
+{% raw %}Benson Boone's &quot;In the Stars&quot; Live Official Music Video - Listen to the song now at: <a rel="nofollow" target="blank" href="https://BensonBoone.lnk.to/InTheStars">https://BensonBoone.lnk.to/InTheStars</a><br /><br />Follow Benson Boone:<br /><br /><a rel="nofollow" target="blank" href="http://www.BensonBoone.com">http://www.BensonBoone.com</a><br /><a rel="nofollow" target="blank" href="http://www.Instagram.com/BensonBoone">http://www.Instagram.com/BensonBoone</a><br /><a rel="nofollow" target="blank" href="http://www.Twitter.com/BensonBoone">http://www.Twitter.com/BensonBoone</a><br /><a rel="nofollow" target="blank" href="http://www.Facebook.com/BensonBoone">http://www.Facebook.com/BensonBoone</a><br /><br />Lyrics:<br />Sunday mornings were your favorite<br />I used to meet you down on Woods Creek road<br />You did your hair up like you were famous<br />Even though it’s only church where we were goin <br />Now Sunday mornings I just sleep in<br />It’s like I buried my faith with you<br />Screaming at a god I don’t know if I believe in<br />Cause I don’t know what else I can do<br />I’m still holding on<br />To everything that’s dead and gone<br />I don’t wanna say goodbye<br />Cause this one means forever<br />Now you’re in the stars<br />And six feet’s never felt so far <br />Here I am alone between the heavens and the embers<br />Oh it hurts so hard<br />For a million different reasons<br />You took the best of my heart<br />And left the rest in pieces<br />Digging through your old birthday letters<br />A crumpled 20 still in the box<br />I don’t think that I could ever find a way to spend it<br />Even if it’s the last 20 that I’ve got<br />I’m still holding on<br />To everything that’s dead and gone<br />I don’t wanna say goodbye<br />Cause this one means forever<br />Now you’re in the stars<br />And six feet’s never felt so far <br />Here I am alone between the heavens and the embers<br />Oh it hurts so hard<br />For a million different reasons<br />You took the best of my heart<br />And left the rest in pieces<br />I’m still holding, holding, holding on<br />I’m still holding, holding, holding on<br />I’m still holding, holding, holding on<br />I’m still, still holding on<br />I’m still holding on<br />To everything that’s dead and gone<br />I don’t wanna say goodbye<br />Cause this one means forever<br />Now you’re in the stars<br />And six feet’s never felt so far <br />Here I am alone between the heavens and the embers<br />Oh it hurts so hard<br />For a billion different reasons<br />You took the best of my heart<br />And left the rest in pieces<br /><br /><br />#bensonboone #inthestars #inthestarslive{% endraw %}
