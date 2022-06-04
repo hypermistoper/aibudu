@@ -1,0 +1,15 @@
+---
+title: "Mero Paisa || Nepali Comedy Short Film || Local Production || June 2022"
+image: "https:\/\/i.ytimg.com\/vi\/07IHcgEl0RM\/hqdefault.jpg"
+vid_id: "07IHcgEl0RM"
+categories: "Entertainment"
+tags: ["Local Production","Local Production New Video","Local Production New Episode"]
+date: "2022-06-04T17:26:04+03:00"
+vid_date: "2022-06-04T02:15:00Z"
+duration: "PT20M14S"
+viewcount: "55551"
+likeCount: "3085"
+dislikeCount: ""
+channel: "Local Production"
+---
+{% raw %}Behuli Channel Link : <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCSJc4aGNyiBjIx1nlLrqDlA">https://www.youtube.com/channel/UCSJc4aGNyiBjIx1nlLrqDlA</a><br /><br />Mero Paisa || Nepali Comedy Short Film || Local Production || June 2022<br />Follow Us <br />For Business Inquiry <br />ajayghimire06@gmail.com<br /><br />Manoj Paudel <br />Facebook  : <a rel="nofollow" target="blank" href="https://www.facebook.com/manoj.paudel...">https://www.facebook.com/manoj.paudel...</a><br />Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/manojpaudel_official/">https://www.instagram.com/manojpaudel_official/</a><br /><br />Ajay Ghimire <br /><br />facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/ajayghimire06">https://www.facebook.com/ajayghimire06</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/ghimire.ajay/">https://www.instagram.com/ghimire.ajay/</a><br /><br />Sujan gurung <br /><br />facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/profile.php?...">https://www.facebook.com/profile.php?...</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/sujaney_123/">https://www.instagram.com/sujaney_123/</a><br /><br />Samikshya Thapa : <br /><a rel="nofollow" target="blank" href="https://instagram.com/samikshathapa829?igshid=1dkzludgaacmy">https://instagram.com/samikshathapa829?igshid=1dkzludgaacmy</a><br /><br />Sabitra Giri<br />Facebook<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/sabitra.giri.19">https://www.facebook.com/sabitra.giri.19</a><br /><br /><br />Namrata Gurung<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/nammulyghe.g...">https://www.facebook.com/nammulyghe.g...</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/namrata1232...">https://www.instagram.com/namrata1232...</a><br /><br />Arbin Khadka<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/arbin.khadka.3762">https://www.facebook.com/arbin.khadka.3762</a><br /><br />priya Ale<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/priya.magar57">https://www.facebook.com/priya.magar57</a><br /><br />Aastha Gurung<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/ahtsa.grung">https://www.facebook.com/ahtsa.grung</a><br /><br />Susmita Thapa<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/search/top/?">https://www.facebook.com/search/top/?</a><br /><br />Thank you{% endraw %}
