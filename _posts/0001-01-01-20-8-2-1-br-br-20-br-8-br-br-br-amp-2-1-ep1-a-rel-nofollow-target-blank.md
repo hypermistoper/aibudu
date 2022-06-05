@@ -1,0 +1,15 @@
+---
+title: "富山市玩到立山黑部🗻20米雪牆原來是這樣誕生? 沿途8種交通工具體驗｜超值2日1夜巴士團全記錄下集 #富山 #立山黑部 #昇龍道"
+image: "https:\/\/i.ytimg.com\/vi\/NTTuSmOqG0Y\/hqdefault.jpg"
+vid_id: "NTTuSmOqG0Y"
+categories: "Travel-Events"
+tags: ["在日生活","日本","香港人"]
+date: "2022-06-05T13:57:38+03:00"
+vid_date: "2022-06-05T08:00:09Z"
+duration: "PT14M18S"
+viewcount: "3481"
+likeCount: "222"
+dislikeCount: ""
+channel: "風信子與旦那・日本生活及旅行"
+---
+{% raw %}【昇龍道必去之②】富山市+立山黑部大雪谷🗻<br />漫步富山市、品嚐人氣抵食壽司！<br />解構!! 20米雪牆原來是這樣誕生?<br />沿途更可體驗8種交通工具?! 🚌出發吧~~<br /><br />今次旅行團的相關行程及資訊：<br />▶高山古街散步🇯🇵昇龍道必去｜飛驒牛&amp;日本清酒掃街🍶江戶建築超美~ 超值2日1夜巴士團全記錄ep1 <a rel="nofollow" target="blank" href="https://youtu.be/XCkmjvZSBbo">https://youtu.be/XCkmjvZSBbo</a><br /><br />▶【立山黑部】4K遊大雪谷🏔️米芝蓮3星景點✨近5年最高的雪牆!! 一生要來一次❄️<br /><a rel="nofollow" target="blank" href="https://youtu.be/oJZG3fRtXUo">https://youtu.be/oJZG3fRtXUo</a><br /><br />▶交通及旅行團資訊：<br /><a rel="nofollow" target="blank" href="https://www.mshya.com/2022/04/4.html">https://www.mshya.com/2022/04/4.html</a><br /><br />💖希望大家喜歡這次的分享。各位的支持是我創作的動力，敬請追蹤 Subscribe 及按下訂閱的提示小鈴噹，謝謝。💖<br /><br />部份Footage來源:<br />【公式】立山黒部アルペンルート絶景動画チャンネル<br /><br />-----  風信子旅行團  -----<br />【箱根】新開♨️箱根頂級溫泉酒店開箱✨12萬1晚??!! 一生人一次的超豪享受🤩【FUFU箱根】全客房私人風呂兼有2種源泉<br /><a rel="nofollow" target="blank" href="https://youtu.be/tUfepyWKL8M">https://youtu.be/tUfepyWKL8M</a><br /><br />【福島縣】福島的禁地ep1｜冒着生命危險的記錄 走入最接近第一核電廠的地帶｜全程用輻射探測儀｜最珍貴最真實的片段<br /><a rel="nofollow" target="blank" href="https://youtu.be/CY6bN7wRQqI">https://youtu.be/CY6bN7wRQqI</a><br /><br />【宮城縣】初遊仙台市 原來與JoJo有關? 藏王狐狸村🦊超可愛!! 秋保溫泉+日本三景松島 #日本旅遊 #日本 #宮城<br /><a rel="nofollow" target="blank" href="https://youtu.be/7zTolQuAXxE">https://youtu.be/7zTolQuAXxE</a><br /><br />【北海道】冬遊北海道5日4夜❄️函館｜萬円豪食活毛蟹! 可能是函館最好的酒店? <br /><a rel="nofollow" target="blank" href="https://youtu.be/baSvCv_Syi0">https://youtu.be/baSvCv_Syi0</a><br /><br />【德島縣】一起床就在雲內! 日本竟有世外桃源?⛰️絕境深谷水上SUP 驚險爆燈! 16景點一氣呵成@德島縣: 三好市/東三好町/劍町/美馬市<br /><a rel="nofollow" target="blank" href="https://youtu.be/2ji8wHFz2yw">https://youtu.be/2ji8wHFz2yw</a><br /><br />【岡山縣】日本最美古鄉?! 米芝蓮級綠色指南2星⭐⭐ 漫遊倉敷美觀/岡山縣｜文具控聖地~850款可愛紙膠紙｜牛仔褲街👖白桃甜品<br /><a rel="nofollow" target="blank" href="https://youtu.be/XSQYvUsEvcc">https://youtu.be/XSQYvUsEvcc</a><br /><br />★*&quot;`'*-.,_,.-*'`&quot;*-.,_☆,.-*`'`*-.,_,.-*`'`*★-.,_,.-*`<br />FB每天更新、IG有更多日本風景～<br />▶我的頻道<br />fb page: <a rel="nofollow" target="blank" href="https://www.facebook.com/a.life.traveler">https://www.facebook.com/a.life.traveler</a><br />ig : <a rel="nofollow" target="blank" href="http://instagram.com/lifetravelogue">http://instagram.com/lifetravelogue</a><br />Website: <a rel="nofollow" target="blank" href="http://www.mshya.com">http://www.mshya.com</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/mshya">https://www.patreon.com/mshya</a><br />Podcast節目: <a rel="nofollow" target="blank" href="https://spoti.fi/39RWYY5">https://spoti.fi/39RWYY5</a><br />★*&quot;`'*-.,_,.-*'`&quot;*-.,_☆,.-*`'`*-.,_,.-*`'`*★-.,_,.-*<br /><br />#日本旅遊 #日本旅行 #風信子 #日本美食 #旅遊vlog #日本vlog #在日港人 #居日港人 #在日香港人 #在日生活 #日本自駕遊 #日本自由行 #香港youtuber #日本旅遊 #立山 #立山黑部 #長野 #富山縣 #富山  #立山黒部アルペンルート #hkyoutuber #富山市 #昇龍道{% endraw %}
