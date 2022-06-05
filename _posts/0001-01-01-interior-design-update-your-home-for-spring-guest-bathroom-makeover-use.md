@@ -1,0 +1,15 @@
+---
+title: "INTERIOR DESIGN | Update Your Home for Spring | Guest Bathroom Makeover"
+image: "https:\/\/i.ytimg.com\/vi\/mKljEyLUsAQ\/hqdefault.jpg"
+vid_id: "mKljEyLUsAQ"
+categories: "Howto-Style"
+tags: ["interior design","interior decorating","decorating"]
+date: "2022-06-05T10:05:06+03:00"
+vid_date: "2022-06-04T19:00:24Z"
+duration: "PT14M58S"
+viewcount: "23428"
+likeCount: "2778"
+dislikeCount: ""
+channel: "Kinwoven - Robeson Design"
+---
+{% raw %}Use these tips &amp; inspiration to makeover your bathroom!  You can DIY this bathroom update on any budget.  Comment below and let me know if you've ever seen a green bathroom before?! <br />👇👇<br /><br />Black Whale Lighting Website: <a rel="nofollow" target="blank" href="https://bit.ly/3F1gtgv">https://bit.ly/3F1gtgv</a><br />Black Whale Lighting Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/3LmZdVp">https://bit.ly/3LmZdVp</a><br /><br />If you’re interested in any of my Cabi clothes, contact my stylist Tammi Zellmer<br />Tammi's Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/3vsLJSm">https://bit.ly/3vsLJSm</a><br />Tammi's Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/3vsLPcG">https://bit.ly/3vsLPcG</a><br /><br />What are the Design Sessions?  Watch this to answer all of your questions: <a rel="nofollow" target="blank" href="https://bit.ly/3jUzNlU">https://bit.ly/3jUzNlU</a><br />The Design Sessions were created to help you make your home beautiful. It doesn't matter if you're just getting started or are well on your way to becoming an expert, the Design Sessions will give you everything you need to decorate and design your home with confidence. Once you join, you will have access to over 90+ in-depth training sessions.<br />Sign up for the Design Sessions here: <a rel="nofollow" target="blank" href="https://bit.ly/37w7aJa">https://bit.ly/37w7aJa</a><br /><br />|| WATCH THESE VIDEOS ||<br />Using What You Have in this Family Room when I first moved in: <a rel="nofollow" target="blank" href="https://bit.ly/3G3C6gx">https://bit.ly/3G3C6gx</a><br />Watch the rest of my Spring Updates Series: <a rel="nofollow" target="blank" href="https://bit.ly/3lnX1l5">https://bit.ly/3lnX1l5</a><br /><br />|| Do ALL the Subscribing || <br />Follow Me on Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/2prycLJ">http://bit.ly/2prycLJ</a>  <br />Follow Kinwoven on Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/2SP9Cjg">https://bit.ly/2SP9Cjg</a> <br />Follow Sharrah on Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/2NyAMJD">http://bit.ly/2NyAMJD</a> <br />Subscribe to My Channel: <a rel="nofollow" target="blank" href="http://bit.ly/1HQxHwB">http://bit.ly/1HQxHwB</a>          <br />Subscribe to My Daughters Channel: <a rel="nofollow" target="blank" href="http://bit.ly/2ksIyIV">http://bit.ly/2ksIyIV</a><br /><br /><br />Videography by Angela Johnson <br />Editing by Dorian Tucker <br />Royalty-free music by Epidemic Sound{% endraw %}
