@@ -1,0 +1,15 @@
+---
+title: "Are You Sure About That?"
+image: "https:\/\/i.ytimg.com\/vi\/HltTLAvZAFU\/hqdefault.jpg"
+vid_id: "HltTLAvZAFU"
+categories: "Entertainment"
+tags: ["memology 101","memology 102","m101 news"]
+date: "2022-06-05T18:38:36+03:00"
+vid_date: "2022-06-04T21:13:47Z"
+duration: "PT41S"
+viewcount: "177657"
+likeCount: "15927"
+dislikeCount: ""
+channel: "Memology 101"
+---
+{% raw %}Must be nice to lie without having to face the consequences.<br /><br />SUPPORT THE CHANNEL<br />➡️YouTube Memberships: <a rel="nofollow" target="blank" href="https://bit.ly/39yRdh8">https://bit.ly/39yRdh8</a><br />➡️PayPal: <a rel="nofollow" target="blank" href="https://www.paypal.me/Memology101">https://www.paypal.me/Memology101</a><br />➡️Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/AntonioChavez">https://www.patreon.com/AntonioChavez</a><br /><br />SOURCES<br />➡️<a rel="nofollow" target="blank" href="https://twitter.com/CNBC/status/1339565907937509376">https://twitter.com/CNBC/status/1339565907937509376</a><br />➡️<a rel="nofollow" target="blank" href="https://twitter.com/POTUS/status/1532795505239007232">https://twitter.com/POTUS/status/1532795505239007232</a><br /><br />CREDITS<br />➡️Background music: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=aT8ix3ZNlLM">https://www.youtube.com/watch?v=aT8ix3ZNlLM</a><br /><br />FOLLOW ME<br />➡️Main channel - Memology 101: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC1X9HTMhyL4UpmjgkrN41oQ">https://www.youtube.com/channel/UC1X9HTMhyL4UpmjgkrN41oQ</a><br />➡️Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/NewsM101">https://twitter.com/NewsM101</a>  <br />➡️Parler: <a rel="nofollow" target="blank" href="https://parler.com/profile/M101News">https://parler.com/profile/M101News</a><br />➡️Bitchute: <a rel="nofollow" target="blank" href="https://bit.ly/2TK6sNu">https://bit.ly/2TK6sNu</a><br />➡️Odysee: <a rel="nofollow" target="blank" href="https://odysee.com/@Memology101:e0">https://odysee.com/@Memology101:e0</a><br />➡️Discord: <a rel="nofollow" target="blank" href="https://discord.gg/UPh5F4E">https://discord.gg/UPh5F4E</a><br />➡️TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@memology101">https://www.tiktok.com/@memology101</a><br /><br />OTHER CHANNELS<br />➡️Memology 102:  <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCBfB4NCL1v1Wx_tMD6hpLkw">https://www.youtube.com/channel/UCBfB4NCL1v1Wx_tMD6hpLkw</a><br />➡️DSP Tries It - Memology 101:  <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCTGXPDKjEKJcM9eCVFq5LRw">https://www.youtube.com/channel/UCTGXPDKjEKJcM9eCVFq5LRw</a>  <br />➡️M101 News: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC9M0fKN795Qje1I5E5w7xZw">https://www.youtube.com/channel/UC9M0fKN795Qje1I5E5w7xZw</a>   <br /><br />ADDITIONAL CREDITS<br />➡️Memology 101 Netflix Intro:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/pleasesubscribedad">https://www.youtube.com/user/pleasesubscribedad</a><br /><br />Trends: #joebiden{% endraw %}
