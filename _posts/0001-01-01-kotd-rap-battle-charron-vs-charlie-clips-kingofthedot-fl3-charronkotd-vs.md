@@ -1,0 +1,15 @@
+---
+title: "KOTD - Rap Battle - Charron vs Charlie Clips"
+image: "https:\/\/i.ytimg.com\/vi\/UkTXSD6-pQg\/hqdefault.jpg"
+vid_id: "UkTXSD6-pQg"
+categories: "Entertainment"
+tags: ["King Of The Dot (Business Operation)","Battle Rap","Rapping (Literature Subject)"]
+date: "2022-06-06T16:38:30+03:00"
+vid_date: "2014-12-22T17:17:30Z"
+duration: "PT27M37S"
+viewcount: "1659388"
+likeCount: "16565"
+dislikeCount: ""
+channel: "King Of The Dot Entertainment"
+---
+{% raw %}@KingOfTheDot - #FL3 - @CharronKOTD vs @CharlieClips<br />Hosted by: @OrganikHipHop <br /><br />Sponsors:<br />Gully Klassics - <a rel="nofollow" target="blank" href="http://gullyklassics.com/">http://gullyklassics.com/</a><br />Pindab - <a rel="nofollow" target="blank" href="http://www.pindab.com/">http://www.pindab.com/</a><br />Scarboroughs Finest - <a rel="nofollow" target="blank" href="http://www.scarboroughsfinest.ca/:">http://www.scarboroughsfinest.ca/:</a> <a rel="nofollow" target="blank" href="http://www.legendaryhammers.com">http://www.legendaryhammers.com</a><br />Loui Dallas - <a rel="nofollow" target="blank" href="http://www.irepresent.ca">http://www.irepresent.ca</a><br />Trevor D - <a rel="nofollow" target="blank" href="http://www.trevor-d.com/">http://www.trevor-d.com/</a><br />Sully Wong - <a rel="nofollow" target="blank" href="http://shop.sullywong.com/">http://shop.sullywong.com/</a><br /><br /><a rel="nofollow" target="blank" href="http://www.KOTDTV.com">http://www.KOTDTV.com</a><br /><a rel="nofollow" target="blank" href="http://www.KOTDStore.com">http://www.KOTDStore.com</a><br /><a rel="nofollow" target="blank" href="http://www.KingOfTheDot.com">http://www.KingOfTheDot.com</a><br /><a rel="nofollow" target="blank" href="http://www.Facebook.com/KOTDBattles">http://www.Facebook.com/KOTDBattles</a><br /><a rel="nofollow" target="blank" href="http://www.instagram/KOTDBattles">http://www.instagram/KOTDBattles</a><br /><a rel="nofollow" target="blank" href="http://www.twitter.com/KingOfTheDot">http://www.twitter.com/KingOfTheDot</a><br /><a rel="nofollow" target="blank" href="http://www.youtube.com/KingOfTheDot">http://www.youtube.com/KingOfTheDot</a><br /><a rel="nofollow" target="blank" href="http://www.youtube.com/GroundZeroBattles">http://www.youtube.com/GroundZeroBattles</a><br /><a rel="nofollow" target="blank" href="http://www.youtube.com/ProveYoselfBattles">http://www.youtube.com/ProveYoselfBattles</a><br /><a rel="nofollow" target="blank" href="http://www.youtube.com/KOTDMedia">http://www.youtube.com/KOTDMedia</a><br /><br />FOLLOW THE KOTD TEAM ON TWITTER:<br />@KingOfTheDot<br />@OrganikHipHop<br />@RexKOTD<br />@GullyTK<br />@BishopBrigante<br />@KingFlyKOTD<br />@DjDoctaKOTD<br />@ScottJacksonBB<br />@RyanPVPKOTD<br />@SketchMenace<br />@ddubbkotd<br />@ReverenceNS<br />@Lemme_kno<br />@WestnyleFX<br />@PhillyDFilms<br />@seansirianni<br />@M_3rcy<br />@Lemme_kno<br />@MouseMediaPro<br />@JProepsilon<br />@LushOne<br />@AvocadoIsGod<br />@Malathion01<br />@JDSFilms<br />@Mix62 <br />@lasparka604<br />@elcheapostudios<br />@HipHopVancouver<br />@MistaConspiracy<br />@LifeOverCrime{% endraw %}
