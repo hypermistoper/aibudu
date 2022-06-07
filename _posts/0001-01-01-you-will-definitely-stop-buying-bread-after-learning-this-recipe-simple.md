@@ -1,0 +1,15 @@
+---
+title: "You will definitely stop buying bread after learning this recipe! Simple, healthy and delicious"
+image: "https:\/\/i.ytimg.com\/vi\/44oHGcG0Npg\/hqdefault.jpg"
+vid_id: "44oHGcG0Npg"
+categories: "Howto-Style"
+tags: ["No","Knead","Easy"]
+date: "2022-06-07T18:36:37+03:00"
+vid_date: "2022-06-07T13:00:01Z"
+duration: "PT5M11S"
+viewcount: "5421"
+likeCount: "404"
+dislikeCount: ""
+channel: "Helly's Simple Recipe"
+---
+{% raw %}You will definitely stop buying bread after learning this recipe! Simple, healthy, and delicious<br /><br /><br />Ingredients and Recipe:<br />220ml warm milk<br />42g honey<br />Mix well<br />3g active dry yeast<br />Mix and wait 5 minutes<br />300g whole wheat flour<br />3g salt<br />Mix well<br />30ml olive oil<br />Knead the dough<br />Cover and rise until double size<br />Unsalted butter<br />The loaf pan size is 9x5 inches<br />Spread the butter evenly<br />Move the dough to a work surface<br />Sprinkle some flour<br />Fold the dough <br />Sprinkle some flour<br />Flatten the dough with a rolling pin<br />The dough should be about 35x20cm<br />50g chopped mix nuts and cranberries<br />Sprinkle evenly on the dough<br />Roll up the dough from one of the short ends<br />Pinch the edges<br />Place the loaf in a baking pan<br />Cover and rise until double size<br />Bake for 30 minutes at 375F/190C<br />Cover the top with tinfoil when the outside is golden brown<br />Place on a rack to cool<br />Mix 2tsp honey and 1tsp water<br />Brush the honey water on the bread (optional)<br />Cut it open to see the inside<br />The bread is so soft and fluffy!<br />This bread is super easy to make and it's super delicious!<br />Subscribe, like, comment, and share!<br />Thank you for watching!<br /><br /><br /><br />***Cooking gears I used in all my videos*** <br />US: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/hellysimplerecipe">https://www.amazon.com/shop/hellysimplerecipe</a><br />Canada: <a rel="nofollow" target="blank" href="https://www.amazon.ca/shop/hellysimplerecipe">https://www.amazon.ca/shop/hellysimplerecipe</a><br /><br /><br />*** SUBSCRIBE ***<br />to my YouTube Channels for more videos and click the bell so you will not miss any of my videos: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/HellysSimpleRecipe/featured">https://www.youtube.com/c/HellysSimpleRecipe/featured</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCvuO5RHwhsJUbSWXK6w7bjA">https://www.youtube.com/channel/UCvuO5RHwhsJUbSWXK6w7bjA</a><br /><br /><br />*** FOLLOW MY PAGE ***<br />Instagram:  <a rel="nofollow" target="blank" href="https://www.instagram.com/helly_simple_recipe/">https://www.instagram.com/helly_simple_recipe/</a><br />Facebook:  <a rel="nofollow" target="blank" href="https://www.facebook.com/helly.li.35">https://www.facebook.com/helly.li.35</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/li_helly">https://twitter.com/li_helly</a>{% endraw %}
