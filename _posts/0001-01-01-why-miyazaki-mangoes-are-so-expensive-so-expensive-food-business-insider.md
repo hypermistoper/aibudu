@@ -1,0 +1,15 @@
+---
+title: "Why Miyazaki Mangoes Are So Expensive | So Expensive Food | Business Insider"
+image: "https:\/\/i.ytimg.com\/vi\/MRyWyWIWhrc\/hqdefault.jpg"
+vid_id: "MRyWyWIWhrc"
+categories: "News-Politics"
+tags: ["Business Insider","Business News","So Expensive Food"]
+date: "2022-06-08T07:43:09+03:00"
+vid_date: "2022-06-07T17:00:10Z"
+duration: "PT10M"
+viewcount: "175407"
+likeCount: "3529"
+dislikeCount: ""
+channel: "Business Insider"
+---
+{% raw %}Taiyo no Tamago, or Egg of the Sun, are stunning, plump, red, perfectly unscratched, and incredibly sweet mangoes that are farmed in the Miyazaki Prefecture of Japan. Every year, the best mangoes are auctioned off to the highest bidder, with the record set in 2019 at 500,000 yen for a pair — almost $4,000. But although farmers in Miyazaki dedicate an entire year ( or their entire lives?) to preparing these mangoes for auction, there is no guarantee that the fruit will fetch such a high price. So why are Taiyo no Tamago mangoes so difficult to grow? And what makes them so expensive?<br /><br />MORE SO EXPENSIVE VIDEOS: <br />Why These 5 Centuries-Old Crafts Are So Expensive | So Expensive | Business Insider<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=MrHr5D0O6lg">https://www.youtube.com/watch?v=MrHr5D0O6lg</a><br />Why 5 Of The World's Priciest Salts And Spices Are So Expensive | So Expensive Food<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=60Myw4fYyBM">https://www.youtube.com/watch?v=60Myw4fYyBM</a><br />Why 4 Of The World's Priciest Seafoods Are So Expensive | So Expensive Food | Business Insider<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=yiujIT_zeaQ&amp;t=11s">https://www.youtube.com/watch?v=yiujIT_zeaQ&amp;t=11s</a><br /><br />------------------------------------------------------<br /><br />#mangoes #soexpensive #businessinsider <br /><br />Business Insider tells you all you need to know about business, finance, tech, retail, and more.<br /><br />Visit us at: <a rel="nofollow" target="blank" href="https://www.businessinsider.com">https://www.businessinsider.com</a><br />Subscribe: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/businessinsider">https://www.youtube.com/user/businessinsider</a><br />BI on Facebook: <a rel="nofollow" target="blank" href="https://read.bi/2xOcEcj">https://read.bi/2xOcEcj</a><br />BI on Instagram: <a rel="nofollow" target="blank" href="https://read.bi/2Q2D29T">https://read.bi/2Q2D29T</a><br />BI on Twitter: <a rel="nofollow" target="blank" href="https://read.bi/2xCnzGF">https://read.bi/2xCnzGF</a><br />BI on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Business_Insider/5319643143">https://www.snapchat.com/discover/Business_Insider/5319643143</a><br />Boot Camp on Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Boot_Camp/3383377771">https://www.snapchat.com/discover/Boot_Camp/3383377771</a><br /><br />Why Miyazaki Mangoes Are So Expensive | So Expensive Food | Business Insider{% endraw %}
