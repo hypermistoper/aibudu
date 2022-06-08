@@ -1,0 +1,15 @@
+---
+title: "The Porsche 911 Turbo S Lightweight is the First 9-Second Factory 911! - One Take"
+image: "https:\/\/i.ytimg.com\/vi\/GzDV7IMM58M\/hqdefault.jpg"
+vid_id: "GzDV7IMM58M"
+categories: "Autos-Vehicles"
+tags: ["the smoking tire","smoking tire","hoonigan"]
+date: "2022-06-08T22:21:22+03:00"
+vid_date: "2022-06-08T15:51:30Z"
+duration: "PT19M28S"
+viewcount: "11376"
+likeCount: "1203"
+dislikeCount: ""
+channel: "TheSmokingTire"
+---
+{% raw %}This video is sponsored by LetsGetChecked. Go to <a rel="nofollow" target="blank" href="http://trylgc.com/TheSmokingTire">http://trylgc.com/TheSmokingTire</a> and enter code THESMOKINGTIRE for 30% off your test from our sponsor Let'sGetChecked!<br /><br />How significant is the $10,000 lightweight package for the 992 Porsche Turbo S? It subtracts 80 lbs from the overall package, resulting in 0-60 times in the *low 2's* and a quarter mile number in the 9's at 140 MPH. This is an insanely quick car, especially for only (I know, &quot;only&quot;) $200,000. The world's most well rounded daily driver supercar has only gotten better, and faster accelerating than any 911 before it. <br /><br />Porsche provided the vehicle, insurance, and a tank of fuel for this review. <br /><br />Use Off The Record! and ALWAYS fight your tickets! Enter code TST10 for a 10% discount on your first case on the Off The Record app, or go to <a rel="nofollow" target="blank" href="https://off-the-record.sjv.io/c/2765520/1021446/13139">https://off-the-record.sjv.io/c/2765520/1021446/13139</a><br /><br />Want to watch the live stream, get ad-free podcasts, or exclusive podcasts? Join our Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/thesmokingtirepodcast">https://www.patreon.com/thesmokingtirepodcast</a><br /><br />Follow us!<br />T: @thesmokingtire @zackklapman <br />IG: @thesmokingtire @fakezackklapman <br /><br />Check out our PODCAST! Over 100,000 listeners and counting!<br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/thesmokingtirepodcast">https://www.youtube.com/thesmokingtirepodcast</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/4nl2RnapQB8ChnkuPMfjnu">https://open.spotify.com/show/4nl2RnapQB8ChnkuPMfjnu</a><br />Apple podcasts: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/the-smoking-tire/id496797178">https://podcasts.apple.com/us/podcast/the-smoking-tire/id496797178</a><br />Google Podcasts: <a rel="nofollow" target="blank" href="https://podcasts.google.com/feed/aHR0cHM6Ly9mZWVkcy5zaW1wbGVjYXN0LmNvbS9jMlJ6VEd0YQ?sa=X&amp;ved=0CA0QrrcFahcKEwiQ5Oeno4ruAhUAAAAAHQAAAAAQAQ">https://podcasts.google.com/feed/aHR0cHM6Ly9mZWVkcy5zaW1wbGVjYXN0LmNvbS9jMlJ6VEd0YQ?sa=X&amp;ved=0CA0QrrcFahcKEwiQ5Oeno4ruAhUAAAAAHQAAAAAQAQ</a><br /><br />NEW SHIRTS!<br /><a rel="nofollow" target="blank" href="https://www.blipshift.com/tst">https://www.blipshift.com/tst</a><br /><br />The Porsche 911 Turbo S Lightweight is the First 9-Second Factory 911! - One Take <br />#992turbos <br />#911turbos{% endraw %}
