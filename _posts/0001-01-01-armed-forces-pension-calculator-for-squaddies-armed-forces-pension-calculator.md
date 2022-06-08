@@ -1,0 +1,15 @@
+---
+title: "Armed Forces Pension Calculator For Squaddies"
+image: "https:\/\/i.ytimg.com\/vi\/iR97xBpN9GY\/hqdefault.jpg"
+vid_id: "iR97xBpN9GY"
+categories: "Education"
+tags: ["Armed Forces Pension Calculator","what is the armed forces pension calculator","pensions"]
+date: "2022-06-08T13:23:39+03:00"
+vid_date: "2021-12-29T10:52:15Z"
+duration: "PT10M16S"
+viewcount: "755"
+likeCount: "19"
+dislikeCount: ""
+channel: "The Savvy Squaddie"
+---
+{% raw %}Armed Forces Pension Calculator For Squaddies<br /><br />The Armed Forces Pension Calculator is an extremely handy tool to project your potential future pension that you could get when you leave the forces. However, it can be a bit confusing and daunting to look at and fill out if you don’t know what it all means. <br /><br />In this video, I go through an example career of Joe Bloggs to show you how to use the Armed Forces Pension Calculator and explain what each section means when it comes to Joes entitlement when he retires. Joe's career expands over both the AFPS 05 and AFPS 15.<br /><br />Your pension is a hugely important thing. It is what will help fund your retirement and prevent you from having to stay in work after retirement age. Take it seriously. Take the time to learn and understand something that will be so pivotal to your future, providing you have a career in the forces and not leave after 4 years that is. <br /><br /><br />Links:<br /><br />Armed Forces Pension Calculator -  <a rel="nofollow" target="blank" href="https://mod-pc.co.uk/">https://mod-pc.co.uk/</a><br /><br />Forces Pension Society - <a rel="nofollow" target="blank" href="https://forcespensionsociety.org/2020/09/did-you-know-there-are-more-than-8000-unclaimed-armed-forces-pensions/">https://forcespensionsociety.org/2020/09/did-you-know-there-are-more-than-8000-unclaimed-armed-forces-pensions/</a><br /><br />Pensions For Squaddies - <br /><a rel="nofollow" target="blank" href="https://youtu.be/Ldm5Wml5x30">https://youtu.be/Ldm5Wml5x30</a><br /><br /><br />Timestamps:<br /><br />0:00 Intro<br />0:35 Joes Career Progression<br />0:54 McCloud Caveat<br />1:23 Armed Forces Pension Calculator Example<br />2:24 Armed Forces Pension Calculator Results<br />2:47 EDP or Early Departure Payment at Exit<br />3:49 EDP or Early Departure Payment Lump Sum at Exit<br />4:18 EDP or Early Departure Payment at 55<br />4:34 Deferred Pension at 65 – AFPS 05<br />5:10 Lump Sum at 65 – AFPS 05<br />5:33 Deferred Pension at State Pension Age – AFPS 15<br />5:58 Commutation and Inverse Commutation<br />6:58 Forces Pension Society Article<br />7:26 Results for Claiming Pension Early<br />8:02 The Pension Graph<br />8:28 Time In Service Pension Slider<br />9:11 Pension Growth Factor<br />9:25 Final Thoughts<br />10:09 Outro<br /><br /><br />DISCLAIMER:<br />I am not a professional financial advisor and this video is not financial advice. Please do your own research before making any decisions with your money and seek professional financial advice if need be.{% endraw %}
