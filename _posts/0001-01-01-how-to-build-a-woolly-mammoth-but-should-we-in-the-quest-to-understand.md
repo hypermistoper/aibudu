@@ -1,0 +1,15 @@
+---
+title: "How To Build A Woolly Mammoth (But Should We?)"
+image: "https:\/\/i.ytimg.com\/vi\/W1GAQLKXZj8\/hqdefault.jpg"
+vid_id: "W1GAQLKXZj8"
+categories: "Education"
+tags: ["mammoth","woolly mammoth","migrations"]
+date: "2022-06-09T23:06:36+03:00"
+vid_date: "2022-06-08T22:24:28Z"
+duration: "PT8M7S"
+viewcount: "125456"
+likeCount: "9747"
+dislikeCount: ""
+channel: "PBS Eons"
+---
+{% raw %}In the quest to understand how evolution basically built the woolly mammoth, we may have found the blueprints for building them ourselves.<br /><br />Thanks to Julio Lacerda (<a rel="nofollow" target="blank" href="https://twitter.com/JuliotheArtist),">https://twitter.com/JuliotheArtist),</a> Roman Uchytel (<a rel="nofollow" target="blank" href="https://prehistoric-fauna.com),">https://prehistoric-fauna.com),</a> and Dmitry Bogdanov for the mammoth art featured in this episode!<br /><br />*****<br />PBS Member Stations rely on viewers like you. To support your local station, go to <a rel="nofollow" target="blank" href="http://to.pbs.org/DonateEons">http://to.pbs.org/DonateEons</a><br />*****<br /><br />Produced by Complexly for PBS Digital Studios<br /><br />Super special thanks to the following Patreon patrons for helping make Eons possible:<br />Heather Wagnon, Sam &amp; Matt, Kyle Brown, Stephen Patterson, Mark Foster, Karen Farrell, Trevor Long, Raphael Haase, daniel blankstein, Roberto Adrian, Ramirez Flores, Jason Rostoker, Jonathan Rust, Avery Sanford, Mary Tevington, Bart &amp; Elke van Iersel - De Jong, William Craig II, Tracey, James Dowling-Healey, Irene Wood, Derek Helling, WilCatRhClPPh33, Mark Talbott-Williams, Nomi Alchin, Eric Roberto Rodriguez, Hillary Ryde-Collins, Yu Mei, Dan Ritter, 4th_phase, Jayme Coyle, Albert Folsom, Oscar Amoros Huguet, Patrick Wells, Steven G, Dan Caffee, Stephanie Tan, Nick Ryhajlo, Sean Dennis, Ben Cooper, Robert Noah, Matt Parker, Heathe Kyle Yeakley, Jerrit Erickson, Anton Bryl, MissyElliottSmith, Stefan Weber, Merri Snaidman, Gabriel Cortez, Marcus Lejon, Todd Dittman, Betsy Radley, Anthony, Philip Slingerland, John Vanek, Eric Vonk, Jon Monteiro, James Bording, Miles Chaston, Michael McClellan, Jeff Graham, Daisuke Goto, Gregory Kintz, Chandler Bass, Tsee Lee, Robert Hill<br /><br />If you'd like to support the channel, head over to <a rel="nofollow" target="blank" href="http://patreon.com/eons">http://patreon.com/eons</a> and pledge for some cool rewards!<br /><br />Want to follow Eons elsewhere on the internet?<br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/eonsshow">https://www.facebook.com/eonsshow</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/eonsshow">https://twitter.com/eonsshow</a><br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/eonsshow/">https://www.instagram.com/eonsshow/</a><br /><br />References: <a rel="nofollow" target="blank" href="https://docs.google.com/document/d/1ws4UR3jylMjllIRhrAsPxkM9o4IqBCdtTfW9t40EgCI/edit?usp=sharing">https://docs.google.com/document/d/1ws4UR3jylMjllIRhrAsPxkM9o4IqBCdtTfW9t40EgCI/edit?usp=sharing</a>{% endraw %}
