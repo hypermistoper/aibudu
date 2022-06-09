@@ -1,0 +1,15 @@
+---
+title: "COMMENCE - Euthanised [Official Lyric Video]"
+image: "https:\/\/i.ytimg.com\/vi\/5fNaOuzRWBQ\/hqdefault.jpg"
+vid_id: "5fNaOuzRWBQ"
+categories: "People-Blogs"
+tags: ["COMMENCE","Euthanised","[Official"]
+date: "2022-06-09T08:28:42+03:00"
+vid_date: "2022-05-08T16:00:02Z"
+duration: "PT3M19S"
+viewcount: "10212"
+likeCount: "74"
+dislikeCount: ""
+channel: "Commence"
+---
+{% raw %}Listen on Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/track/3eFivFQjyb57l6AVRWpcsk?si=01c972f48b2f4fb9">https://open.spotify.com/track/3eFivFQjyb57l6AVRWpcsk?si=01c972f48b2f4fb9</a><br /><br />&quot;Euthanised&quot; by COMMENCE<br /><br />Visuals by Daniel Fischer @mimik_consvmer<br />Produced by Aaron Rusch Productions <br /><br />Follow us on our Socials:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/commence_band/">https://www.instagram.com/commence_band/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/CommenceBand/">https://www.facebook.com/CommenceBand/</a><br /><br />Stream on Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/7j4VhSiGYOEPBN12EytL7b?si=WdaoHzKnQye37dE_5If4TQ">https://open.spotify.com/artist/7j4VhSiGYOEPBN12EytL7b?si=WdaoHzKnQye37dE_5If4TQ</a><br /><br />Lyrics:<br /><br />Tethered to a world, that meets none of your needs<br />And left here all alone, it will do as may please<br />Because along the wearing path you will come to know<br />That the only thing in life that is set in stone<br />Is the smothering fact that we all die alone<br />So in the time we have we all build a home<br />That is nestled in the comfort of the back of the mind<br />A sanctuary and rest for all the dreams that died<br /><br />In the hour of nine, a cycle complete<br />Transcended to earth, converged in deceit<br />Eight-legged nightmares crawl in my skin<br />A never ending penance of sin<br />The seven headed beast arose from the sea<br />Devouring the roots of the long dead tree<br />Six in trinity, a scar in the clouds<br />A broken mind inside a thorned crown<br /><br />Hold her close as she rots inside<br />Were we born to burn alive<br />Hold her close as she wastes away<br />Can we die for one more day<br /><br />Flay me and wear my skin<br />Flay me and wear my fucking skin<br /><br />Euthanised<br /><br />Flay me and wear my skin<br />Flay me and wear my skin<br /><br />The bark it still singes upon my charred skin<br />A hollow vessel, defined by dead men<br />Billions of blank eyes stare in to the void<br />A binary bible for celestial toys<br />Consume and recite all the wills of a lord<br />Whose image is plastered on fluorescent boards<br />A scripted beginning yet thus is no end<br />The cycle repeats, again and again<br /><br />Hold her close as she rots inside<br />Were we born to burn alive<br />Hold her close as she wastes away<br />Can we die for one more day<br /><br />Hold her close as she rots inside<br />Were we born to burn alive<br />Hold her close as she wastes away<br />Can we die for one more day<br /><br />© Commence 2022{% endraw %}
