@@ -1,0 +1,15 @@
+---
+title: "Two-Letter Blends \"u\" (Complete Audio) | CV Blends | Unit 1 - Lesson 7"
+image: "https:\/\/i.ytimg.com\/vi\/elaQRM2Vv8c\/hqdefault.jpg"
+vid_id: "elaQRM2Vv8c"
+categories: "Education"
+tags: ["Two-Letter","Blends","(Complete"]
+date: "2022-06-09T04:01:45+03:00"
+vid_date: "2021-03-22T13:50:46Z"
+duration: "PT9M29S"
+viewcount: "12131"
+likeCount: "85"
+dislikeCount: ""
+channel: "Ken's Kids Channel"
+---
+{% raw %}🌈 Step by Step Reading for Toddlers and Preschoolers <br /><br />•Two-Letter Blends with Short Vowel/u/ (Lesson 6)<br /><br />Hello everyone! <br />Here's our video on two-letter blends with short vowel /u/. Reading is made easy through synthetic phonics. Practice learning these blends twice a day for 1 to 2 weeks until your child is able to blend them naturally. Let your little one listen to the blending of the sounds until he/she tries to imitate them. <br /><br />Do it everyday, at least two times a day. The second time you're going to show them the video, I highly recommend you as a parent or guardian to be reading them aloud with your kid. Your kid will be imitating your mouth and will be able to recognize how the sounds are produced. You have no idea how they are going to be learning a lot with you reading to your kid. Sooner,  you'll be amazed by your child's progress in 2 weeks. <br /><br />Don't forget to review the two-letter blends with short vowel /a/ , /e/, /i/ and /o/. This video is designed for parents who wished to teach their child READING at their very own home. <br /><br />Check out our playlist on Reading Phonics to get updated with the steps.<br /><br />LEARNING ACTIVITY SHEETS: <br /><a rel="nofollow" target="blank" href="https://drive.google.com/drive/folders/1acqeK4u-Anf7B1E6z6lWmyN_iQ0jFE8_">https://drive.google.com/drive/folders/1acqeK4u-Anf7B1E6z6lWmyN_iQ0jFE8_</a><br /><br /><br /><br /><br />-------------------------------------------------------------------<br />You may also like to watch our STORYTIME videos:<br /><br />Cinderella <br /><a rel="nofollow" target="blank" href="https://youtu.be/LX3RPaWov4U">https://youtu.be/LX3RPaWov4U</a><br /><br />Goldilocks and the Three Bears<br /><a rel="nofollow" target="blank" href="https://youtu.be/BbqccsUQh1s">https://youtu.be/BbqccsUQh1s</a><br /><br />Enjoy learning!<br />----------------------------------------------------------------------<br /><br />Let's be friends!  Follow us on our: <br /><br />❤FACEBOOK PAGE <br /><a rel="nofollow" target="blank" href="https://m.facebook.com/profile.php?id=110860030597846&amp;ref=content_filter">https://m.facebook.com/profile.php?id=110860030597846&amp;ref=content_filter</a><br /><br />❤INSTAGRAM <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/">https://www.instagram.com/</a><br /><br />--------------------------------------------------------------------<br /><br />Disclaimer:<br />I do not own the background music found in this video. All rights belong to their respective owners. No copyright infringement. For educational purposes only.{% endraw %}
