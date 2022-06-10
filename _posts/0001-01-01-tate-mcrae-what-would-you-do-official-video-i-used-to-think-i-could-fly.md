@@ -1,0 +1,15 @@
+---
+title: "Tate McRae - what would you do? (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/gXl0zgUhsAU\/hqdefault.jpg"
+vid_id: "gXl0zgUhsAU"
+categories: "Music"
+tags: ["tate mcrae","what would you do","tate mcrae what would you do"]
+date: "2022-06-10T21:22:58+03:00"
+vid_date: "2022-05-20T15:00:10Z"
+duration: "PT3M20S"
+viewcount: "2981817"
+likeCount: "106004"
+dislikeCount: ""
+channel: "TateMcRaeVEVO"
+---
+{% raw %}‘i used to think i could fly’ out now: <a rel="nofollow" target="blank" href="https://TateMcRae.lnk.to/iutticf">https://TateMcRae.lnk.to/iutticf</a><br /><br />TATE MCRAE - WHAT WOULD YOU DO?<br />Director: Tusk<br />Writer: Tusk &amp; Michelle Dawley<br />EP &amp; Production Company: Tusk<br />Creative Director: Michelle Dawley &amp; Tusk<br />Producer: Cookie Walukas<br />DP: Justin McWilliams<br />PD: Michelle Patterson<br />Supervising Choreographer: Michelle Dawley<br />Choreographer: Noelle Marsh<br />1st AD: Cody Boesen<br />Makeup Artist: Gilbert Soliz<br />Hair Stylist: Ryan Richman<br />Stylist: Siena Montesano  <br />UPM: Natasha Suarez &amp; Fia Oruene<br />Associate Producer: Riley Bradford<br />Leadperson: Graham Murtough<br />Gaffer: Sebastien Nuta, Julian Tuzzeo<br />KG: Brad Powers<br />1st AC: Paolo Arriola<br />Steadi: Connor O’Brien <br />Casting: Copelan Cash / Esprit Casting<br />Ex-Boyfriend: Mason Cutler<br />Party Cameo: Jasmine Mason<br />Car Bro: Tony Cota<br />Shop Owner: Malaya<br />Angry Customer: Andy Dexterity<br />BG Wardrobe: Jordan Funkey<br />BG HMU: Elle Reed<br />Edit: Christa Philippeaux &amp; Tusk<br />Color: Matt Osborne / Company 3<br />VFX: Mauricio Neira<br />Beauty: Michael Tanji<br />Photographer: Lissyelle Laricchia<br />Label: Val Pensa, Sam Houston, Tonianne Tartaro, Steph Pensa, Molly Yorkes, Jen Tanner, Layla Mustafa, Alex Rea, Karina Lopez, Daria Epakchi<br />MGMT: Dirk Hemsath, David Conway, Matt Feldman<br /><br />get &quot;she's all i wanna be&quot; <a rel="nofollow" target="blank" href="https://smarturl.it/TatexSAIWB">https://smarturl.it/TatexSAIWB</a><br />get &quot;feel like shit&quot;: <a rel="nofollow" target="blank" href="https://smarturl.it/TatexFLS">https://smarturl.it/TatexFLS</a><br />get my new ep &quot;too young to be sad&quot;: <a rel="nofollow" target="blank" href="https://smarturl.it/tooyoungtobesad">https://smarturl.it/tooyoungtobesad</a> <br /><br />watch all of my music videos: <a rel="nofollow" target="blank" href="https://smarturl.it/TateMcRaeMusicVideos">https://smarturl.it/TateMcRaeMusicVideos</a><br /><br />-----<br />don't forget to follow me:) <br /><a rel="nofollow" target="blank" href="https://www.tatemcrae.com/">https://www.tatemcrae.com/</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/tatemcrae/">https://www.instagram.com/tatemcrae/</a><br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/tatemcrae">https://twitter.com/tatemcrae</a><br />TIKTOK: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@tatemcrae">https://www.tiktok.com/@tatemcrae</a><br /><br />#TateMcRae #whatwouldyoudo #officialvideo #pop{% endraw %}
