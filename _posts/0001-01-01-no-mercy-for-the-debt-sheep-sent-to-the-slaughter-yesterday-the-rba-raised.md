@@ -1,0 +1,15 @@
+---
+title: "No Mercy for the Debt Sheep sent to the Slaughter"
+image: "https:\/\/i.ytimg.com\/vi\/aZa2hJIsqeQ\/hqdefault.jpg"
+vid_id: "aZa2hJIsqeQ"
+categories: "News-Politics"
+tags: ["Monetary Policy","Economics","Mortgage Stress"]
+date: "2022-06-10T04:43:36+03:00"
+vid_date: "2022-06-08T11:39:42Z"
+duration: "PT42M33S"
+viewcount: "17875"
+likeCount: "1263"
+dislikeCount: ""
+channel: "In the Interests of the People"
+---
+{% raw %}Yesterday, the RBA raised its official cash rate by 0.5% to now sit at 0.85%. This increase was above market expectations and was the RBA has signalled that more rate rises are coming. This is particularly so given that the RBA has signalled that inflation is expected to go higher, not lower in the coming months.<br /><br />Adams and North in the past two months have been warning that rates will go up, however, the key question is now how much pain is the RBA willing to inflict before it becomes too much and they need to stop.<br /><br />This is the 64 million question which no one is able to forecast – including the RBA board. The RBA Board signalled that the one areas that they remain unsure are households and what impact will rising interest rates have on consumption.<br /><br />However, one of the most critical points that has emerged from the mainstream media coverage is that many people don’t accept the level of mortgage and rental stress outlined in the DFA dataset set. North suggests that mortgage stress is at 43% which would signify a major economic problem – however, the banks and market economists suggest that Australian households are in a strong position to handle these jobs.<br /><br />As Adams and North mentioned in the last show – there will be a certain percentage of Australian households who will be sacrificed and they will go to the wall. There will be no compassion to these particular households. Especially those who have purchased in during 2022 and who likely took a variable mortgage - these are the sheep that will go to the slaughter.<br /><br />Go to the Walk The World Universe at <a rel="nofollow" target="blank" href="https://walktheworld.com.au/">https://walktheworld.com.au/</a><br /><br />Find more at <a rel="nofollow" target="blank" href="https://digitalfinanceanalytics.com/blog/">https://digitalfinanceanalytics.com/blog/</a> where you can subscribe to our research alerts<br /><br />Please consider supporting our work via Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/DigitalFinanceAnalytics">https://www.patreon.com/DigitalFinanceAnalytics</a><br /><br />Or make a one off contribution to help cover our costs via PayPal at: <a rel="nofollow" target="blank" href="https://www.paypal.me/MartinDFA">https://www.paypal.me/MartinDFA</a><br /><br />We also can received bitcoins at: 13zBL1oRib9VJu8Uc9zUGNhxKDBBgUpDN1<br /><br />Please share this post to help to spread the word about the state of things.... <br /><br />Caveat Emptor! Note: this is NOT financial or property advice!!{% endraw %}
