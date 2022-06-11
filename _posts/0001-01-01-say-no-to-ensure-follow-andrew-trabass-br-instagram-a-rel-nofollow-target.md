@@ -1,0 +1,15 @@
+---
+title: "SAY NO TO ENSURE"
+image: "https:\/\/i.ytimg.com\/vi\/tsQTxTxJyiU\/hqdefault.jpg"
+vid_id: "tsQTxTxJyiU"
+categories: "Comedy"
+tags: ["Andrew Trabass","Trabass","trabass comedy sketch"]
+date: "2022-06-11T04:41:42+03:00"
+vid_date: "2022-06-06T14:00:22Z"
+duration: "PT11M12S"
+viewcount: "12712"
+likeCount: "1279"
+dislikeCount: ""
+channel: "Andrew Trabass"
+---
+{% raw %}Follow Andrew Trabass:<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/trabass/">https://instagram.com/trabass/</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TRABASS_TV">https://twitter.com/TRABASS_TV</a><br />SoundCloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/trabass-tv">https://soundcloud.com/trabass-tv</a><br /><br />Watch More Andrew Trabass:<br />Comedy Sketches: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLGQyLHJIdRPDu1JbwovbgAmaEDaQfGDnh">https://youtube.com/playlist?list=PLGQyLHJIdRPDu1JbwovbgAmaEDaQfGDnh</a><br />Movies: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLGQyLHJIdRPBynai3GskpQ4a_S5rPMpSw">https://youtube.com/playlist?list=PLGQyLHJIdRPBynai3GskpQ4a_S5rPMpSw</a><br />Music: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLCE711CF34C1879C5">https://youtube.com/playlist?list=PLCE711CF34C1879C5</a><br />Latest Uploads: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLGQyLHJIdRPBzyhNYmIlRRAuraoO6-Suq">https://youtube.com/playlist?list=PLGQyLHJIdRPBzyhNYmIlRRAuraoO6-Suq</a><br />Popular Uploads: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLE646748FBC2F0F5D">https://youtube.com/playlist?list=PLE646748FBC2F0F5D</a><br />Vlogs: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9tYvRbbuK_8rUIW8VvmVomA9sEQhO8ad">https://youtube.com/playlist?list=PL9tYvRbbuK_8rUIW8VvmVomA9sEQhO8ad</a><br /><br />Listen To Trabass Music On:<br />iTunes: <a rel="nofollow" target="blank" href="http://apple.co/1PCIWu7">http://apple.co/1PCIWu7</a><br />Spotify: <a rel="nofollow" target="blank" href="http://bit.ly/1M7n3k9">http://bit.ly/1M7n3k9</a><br />Amazon MP3: <a rel="nofollow" target="blank" href="http://amzn.to/1HIpJAO">http://amzn.to/1HIpJAO</a><br /><br />Andrew Trabass Bio:<br />Andrew Trabass, or known simply as &quot;Trabass&quot;, is an international entertainer. Trabass started on his career at the young age of 14, while living in Jamaica making comedic short films. Armed with only a cellphone camera, and a vision brought on by boredom, Trabass shot his first short film that went viral through out the island. Trabass realized that entertainment through movies, music and art was a great way for him to express himself and decided that he was going to try and live his dreams of being a worldwide name in entertainment. Trabass moved to United States and created his internationally known brand, Trabass TV. Trabass TV focuses on Movies, Music, and different types of self expression thought up by Trabass.{% endraw %}
