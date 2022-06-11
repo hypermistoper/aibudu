@@ -1,0 +1,15 @@
+---
+title: "Are You Scared of The Quarry?"
+image: "https:\/\/i.ytimg.com\/vi\/V_NI_Vuash0\/hqdefault.jpg"
+vid_id: "V_NI_Vuash0"
+categories: "Entertainment"
+tags: ["the quarry","shane madej","ryan bergara"]
+date: "2022-06-11T05:51:51+03:00"
+vid_date: "2022-06-10T19:00:06Z"
+duration: "PT29M10S"
+viewcount: "82720"
+likeCount: "8140"
+dislikeCount: ""
+channel: "Watcher"
+---
+{% raw %}Thank you to 2K, publishers of The Quarry, for sponsoring this video! Go to <a rel="nofollow" target="blank" href="https://www.quarrygame.com">https://www.quarrygame.com</a> to experience the horror of Hackett's Woods for yourself! #ad <br /><br />Join, if you dare, as Ryan reads the internet's scariest imagined stories to his pal Shane. <br /><br />CONTENT WARNING: This video contains content that some might find disturbing. Viewer discretion is advised.  <br /><br />Possible triggers: mentions of emotional/physical distress and gore.<br /><br />Story submission link! <a rel="nofollow" target="blank" href="https://forms.gle/ZLoUQAFYis7QN3DYA">https://forms.gle/ZLoUQAFYis7QN3DYA</a><br /><br />Bloopers! Behind the scenes looks! Other exclusive content available at<br /><a rel="nofollow" target="blank" href="http://www.patreon.com/watcher​">http://www.patreon.com/watcher​</a><br /><br />WATCHER MERCH:<br /><a rel="nofollow" target="blank" href="https://www.gianthugs.com/collections...">https://www.gianthugs.com/collections...</a><br /><br />CREATED BY<br />Ryan Bergara<br /><br />DIRECTOR<br />Mark Celestino<br /><br />WRITER<br />Garrett Werner<br /><br />PRODUCER<br />Lizzie Lockard<br /><br />HOSTED BY<br />Ryan Bergara &amp; Shane Madej<br /><br />PRODUCTION COORDINATOR<br />Meredith Edmonds<br /><br />EDITOR<br />Sam Young<br /><br />SOUND DESIGN<br />Ethan Ramos<br />Sam Young<br /><br />GFX<br />Ethan Ramos<br />Charlie Richardson<br />Lauren Yamin<br /><br />ILLUSTRATOR<br />Mollie Ong<br /><br />CAMERA OPERATORS<br />Karen Du<br />Liz Ehlers<br />TJ Marchbank<br /><br />SOUND MIXER<br />Kevin Bazell<br /><br />PRODUCTION ASSISTANT<br />Jordan Saldaña<br /><br />POST SUPERVISOR<br />Sam Young<br /><br />HEAD OF DEVELOPMENT<br />Katie LeBlanc<br /><br />HEAD OF PRODUCTION<br />Lizzie Lockard<br /><br />EXECUTIVE PRODUCERS<br />Ryan Bergara  Shane Madej  Steven Lim<br /><br /><br />Social:<br /><a rel="nofollow" target="blank" href="http://www.instagram.com/wearewatcher">http://www.instagram.com/wearewatcher</a><br /><a rel="nofollow" target="blank" href="http://www.twitter.com/wearewatcher">http://www.twitter.com/wearewatcher</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/watcherenter...">https://www.facebook.com/watcherenter...</a><br /><a rel="nofollow" target="blank" href="https://wearewatcher.tumblr.com/">https://wearewatcher.tumblr.com/</a><br /><br />Business Inquiries: <br />hello@watcherentertainment.com<br /><br />Music Provided by Audio Network<br />SFX by Audioblocks<br />Watcher Logo Designed by Jennet Liaw<br />Watcher Logo Sound Design by Yuta Endo (@yuuutaendo)<br /><br />Watcher. A network from Steven Lim, Ryan Bergara, and Shane Madej.{% endraw %}
