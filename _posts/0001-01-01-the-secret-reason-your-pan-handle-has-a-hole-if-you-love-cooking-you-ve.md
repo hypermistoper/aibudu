@@ -1,0 +1,15 @@
+---
+title: "The Secret Reason Your Pan Handle Has a Hole"
+image: "https:\/\/i.ytimg.com\/vi\/hTf-Wzl6FGI\/hqdefault.jpg"
+vid_id: "hTf-Wzl6FGI"
+categories: "Entertainment"
+tags: ["bright side","brightside","pan"]
+date: "2022-06-11T21:10:51+03:00"
+vid_date: "2022-06-11T13:00:17Z"
+duration: "PT8M39S"
+viewcount: "12066"
+likeCount: "649"
+dislikeCount: ""
+channel: "BRIGHT SIDE"
+---
+{% raw %}If you love cooking, you've definitely noticed those details of ordinary items. For example, why does a pan have that hole? It turns out, the holes on the pan handles are not just for hanging them neatly around the kitchen. They’re also there to keep your cooking spoons in place while cooking. I'm also gonna share why the little indents on the bottom of most cups aren’t a manufacturing defect. And I bet you noticed that your plastic milk containers sometimes feature a big, round dent on the side. I'll tell you why it's there!<br /><br />#brightside<br /><br />Credit:<br /><br />Ri 2014 - Thermos flask: By Vera de Kok - Own work, CC BY 4.0 <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/,">https://creativecommons.org/licenses/by/4.0/,</a> <a rel="nofollow" target="blank" href="https://commons.wikimedia.org/w/index.php?curid=41691349">https://commons.wikimedia.org/w/index.php?curid=41691349</a><br /><br />Animation is created by Bright Side.<br /><br />----------------------------------------------------------------------------------------<br />Music by Epidemic Sound <a rel="nofollow" target="blank" href="https://www.epidemicsound.com">https://www.epidemicsound.com</a> <br /><br />Check our Bright Side podcast on Spotify and leave a positive review! <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV">https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV</a> <br /><br />Subscribe to Bright Side: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a> <br />----------------------------------------------------------------------------------------<br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/brightside">https://www.facebook.com/brightside</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brightside.official">https://www.instagram.com/brightside.official</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brightside.official?lang=en">https://www.tiktok.com/@brightside.official?lang=en</a> <br /><br />Stock materials (photos, footages and other):<br /><a rel="nofollow" target="blank" href="https://www.depositphotos.com">https://www.depositphotos.com</a><br /><a rel="nofollow" target="blank" href="https://www.shutterstock.com">https://www.shutterstock.com</a><br /><a rel="nofollow" target="blank" href="https://www.eastnews.ru">https://www.eastnews.ru</a><br />----------------------------------------------------------------------------------------<br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="http://www.brightside.me">http://www.brightside.me</a>{% endraw %}
