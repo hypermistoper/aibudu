@@ -1,0 +1,15 @@
+---
+title: "Prone position(복와위) 방법, 주의사항, post management !"
+image: "https:\/\/i.ytimg.com\/vi\/RWD2UZA7KJw\/hqdefault.jpg"
+vid_id: "RWD2UZA7KJw"
+categories: "Education"
+tags: ["소년간호사","간호사","간호"]
+date: "2022-06-12T05:12:35+03:00"
+vid_date: "2021-11-24T04:43:23Z"
+duration: "PT14M5S"
+viewcount: "5390"
+likeCount: "124"
+dislikeCount: ""
+channel: "소년간호사"
+---
+{% raw %}- 중환자실에서 대중화된 Prone position(복와위) !. 외국 영상으로 공부하기 힘들어 소년간호사가 직접 제작해봤습니다. Proning을 이미 시행하고 있거나, 앞으로 시행할 예정인 의료기관 등 많은 분들에게 도움이 되었으면 좋겠습니다 : )<br /><br />- 서면화된 자료 PDF book 널시피 링크 : <br /><a rel="nofollow" target="blank" href="https://blog.naver.com/PostView.naver?blogId=hjs8419&amp;Redirect=View&amp;logNo=222577283514&amp;categoryNo=20&amp;isAfterWrite=true&amp;isMrblogPost=false&amp;isHappyBeanLeverage=true&amp;contentLength=39277">https://blog.naver.com/PostView.naver?blogId=hjs8419&amp;Redirect=View&amp;logNo=222577283514&amp;categoryNo=20&amp;isAfterWrite=true&amp;isMrblogPost=false&amp;isHappyBeanLeverage=true&amp;contentLength=39277</a><br /><br /><br />* 참고문헌<br /><br />- Vanessa Martins Oliveira et al(2017). Safe Prone checklist: construction and implementation of a tool for performing the prone maneuver. PMC articles.<br />- Andrea Y et al(2020). Prone Therapy Manual. medical professional video center. <a rel="nofollow" target="blank" href="https://medprofvideos.mayoclinic.org/videos/manual-prone-positioning">https://medprofvideos.mayoclinic.org/videos/manual-prone-positioning</a><br />- Scott Weingart(2014). The logistics of Proning for ARDS. EMCrit RACC. <a rel="nofollow" target="blank" href="https://emcrit.org/emcrit/logistics-proning/">https://emcrit.org/emcrit/logistics-proning/</a><br />- YNHHS ICU Leadership Committee(2017). Adult prone positioning in ICU intubated patients precedure and guidelines for patient care, Yale New Haven Health System.<br />-  mallorca physiotherapy. What is proning anyway? - a mallorca physiotherapy blog article/<br />- cardiopulmonary resuscitation and posterior defibrillation in the prone position. CPR Educators.INC. <a rel="nofollow" target="blank" href="https://cpreducatorsinc.com/cardiopulmonary-resuscitation-and-posterior-defibrillation-in-the-prone-position/">https://cpreducatorsinc.com/cardiopulmonary-resuscitation-and-posterior-defibrillation-in-the-prone-position/</a><br /><br />1) 소년간호사 Blog : <a rel="nofollow" target="blank" href="https://blog.naver.com/hjs8419">https://blog.naver.com/hjs8419</a><br />2) Instagram : <a rel="nofollow" target="blank" href="https://instagram.com/n_the_boy">https://instagram.com/n_the_boy</a><br />3) Youtube : <a rel="nofollow" target="blank" href="https://www.youtube.com/c/nightingaletheboy">https://www.youtube.com/c/nightingaletheboy</a> <br />4) 교육영상사용 &amp; 제작문의 : 매니저 - 2020jntb@gmail.com<br />5) 피드백 &amp; 상담 &amp; 기타문의 : 소년간호사 - hjs8419@naver.com <br /><br />* 소년간호사 채널의 모든 영상은 ‘link’를 이용하여 다른 곳에 개시 및 공유 가능합니다. <br />   영상 하나하나 정성을 들여 제작하고 있습니다. 저작자 표시 및 출처를 기재해주시고, 영상의 무단 업로드는 금지합니다.<br />* 학교&amp;병원 내 집단 교육 목적으로 맞춤화된 영상을 원하시는 경우 소년간호사 “매니저 E-mail”을 통해 문의해주세요.{% endraw %}
