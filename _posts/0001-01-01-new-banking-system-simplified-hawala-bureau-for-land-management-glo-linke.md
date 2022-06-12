@@ -1,0 +1,15 @@
+---
+title: "New Banking System Simplified (Hawala)"
+image: "https:\/\/i.ytimg.com\/vi\/s7G3v6WhdpM\/hqdefault.jpg"
+vid_id: "s7G3v6WhdpM"
+categories: "News-Politics"
+tags: ["moors","moorishe amerikan konsulate","Moorish American Consulate"]
+date: "2022-06-12T05:27:21+03:00"
+vid_date: "2022-06-10T06:07:58Z"
+duration: "PT3H12M"
+viewcount: "688"
+likeCount: "69"
+dislikeCount: ""
+channel: "light tajiri bey"
+---
+{% raw %}Bureau for Land Management (GLO) linke: <a rel="nofollow" target="blank" href="https://glorecords.blm.gov/details/patent/default.aspx?accession=0001-404&amp;docClass=MW&amp;sid=ivdbe1cs.cj3#patentDetailsTabIndex=1">https://glorecords.blm.gov/details/patent/default.aspx?accession=0001-404&amp;docClass=MW&amp;sid=ivdbe1cs.cj3#patentDetailsTabIndex=1</a><br /><br />census website: <a rel="nofollow" target="blank" href="https://www.census.gov/quickfacts/fact/table/federalwaycitywashington/RHI725220">https://www.census.gov/quickfacts/fact/table/federalwaycitywashington/RHI725220</a><br /><br />AMPAC Government Banking Video:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Eu2-haTbCfA&amp;t=1s">https://www.youtube.com/watch?v=Eu2-haTbCfA&amp;t=1s</a><br /><br />articlle iii kourte acctiones witnessed by 2 constitutionallie innferiore county courts, for your downloading ande use withe your konsular kourte acctiones to innclude the constitutione for the united states 1789 ande 1791: <br /><a rel="nofollow" target="blank" href="https://drive.google.com/drive/folders/11BZg3i4X-7Eup7QzjXCqTkiKmZIpcehn?usp=sharing">https://drive.google.com/drive/folders/11BZg3i4X-7Eup7QzjXCqTkiKmZIpcehn?usp=sharing</a><br /><br />you are innvited to join our calls evvery <br />evvery thursdaye at 7pm et or as announced! <br />diall in is 1+425+436+6280 access 368903 <br />onlinne meetinge id is: lightbeymoorishnation1<br />where: online meetinge linke is: <a rel="nofollow" target="blank" href="https://www.freeconferencecall.com/wall/lightbeymoorishnation1?">https://www.freeconferencecall.com/wall/lightbeymoorishnation1?</a><br /><br />here is the linke to documentes for use, edditing, downloading, formatting, ande freely disstributing by all moors for all moors. <br /><a rel="nofollow" target="blank" href="https://drive.google.com/drive/folders/1tWBl32LHwGpXGNLZQWf35kVFrke_L6M9?usp=sharing">https://drive.google.com/drive/folders/1tWBl32LHwGpXGNLZQWf35kVFrke_L6M9?usp=sharing</a> <br /><br />here is the linke to the de jure moorishe nationall reepublic federall governmente seall:<br /><a rel="nofollow" target="blank" href="https://drive.google.com/file/d/1Vjo9CfesCaZtY8Q7B07hRJEk_s7iX3Nu/view?usp=sharing">https://drive.google.com/file/d/1Vjo9CfesCaZtY8Q7B07hRJEk_s7iX3Nu/view?usp=sharing</a><br /><br />here is the linke to the de jure moorishe american konsulate seall: <br /><a rel="nofollow" target="blank" href="https://drive.google.com/file/d/1EhrMjMbYPPpjd0cQ3ut7TezaO_nERAmd/view?usp=sharing">https://drive.google.com/file/d/1EhrMjMbYPPpjd0cQ3ut7TezaO_nERAmd/view?usp=sharing</a>{% endraw %}
