@@ -1,0 +1,15 @@
+---
+title: "Main Idea for Kids | What is the main idea? | Finding the main idea in books and stories"
+image: "https:\/\/i.ytimg.com\/vi\/vjIprpVupu0\/hqdefault.jpg"
+vid_id: "vjIprpVupu0"
+categories: "Education"
+tags: ["What is the main idea","finding the main idea","main idea for kids"]
+date: "2022-06-12T12:15:10+03:00"
+vid_date: "2021-04-06T14:00:17Z"
+duration: "PT7M39S"
+viewcount: "72644"
+likeCount: "472"
+dislikeCount: ""
+channel: "Learn Bright"
+---
+{% raw %}When a child is learning to read it can be difficult to identify the main idea.  In this video we help your kid learn all about the main idea in stories and books.  We will learn how to identify what the main idea of a story or book is, tricks on figuring it out, and throughout the video we provide practice opportunities with sample stories that your student can try.<br /><br />As you know the main idea is the most important meaning of a sentence, paragraph, story, or even a picture. The main idea is sometimes called the topic. The main idea sentence could be at the beginning, middle, or end of a paragraph. When a child is able to identify the main idea and it's supporting details their reading comprehension and enjoyment goes way up! <br /><br />After (or before) watching the video, we invite you to download our complete main idea lesson plan.  This lesson gives you even more instruction, teaching ideas, activities and worksheets that will help your child/student finally learn how to identify the main idea. (Also, its 100% FREE): <a rel="nofollow" target="blank" href="https://learnbright.org/?s=main+idea">https://learnbright.org/?s=main+idea</a><br /><br />Thank you for watching and learning with us! We’re constantly releasing new content and videos so click that “Subscribe” button and you’ll notified. <br /><br />Find and Follow Us Online:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/LearnBright/">https://www.facebook.com/LearnBright/</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/LearnBrightEducation">https://instagram.com/LearnBrightEducation</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://pinterest.com/LearnBrightEducation">https://pinterest.com/LearnBrightEducation</a> <br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/LearnBright">https://www.youtube.com/LearnBright</a> <br />Website: <a rel="nofollow" target="blank" href="https://learnbright.org/">https://learnbright.org/</a><br /><br />Are you a K-6 grade teacher looking for more teaching resources?  We don’t only provide video content but high quality lesson plans as well.  100% free with handouts, worksheets, classroom activities and more!  <br /><br />Browse our entire collection of Reading lesson plans: <a rel="nofollow" target="blank" href="https://learnbright.org/lessons/?filter_subject=reading">https://learnbright.org/lessons/?filter_subject=reading</a><br /><br />#MainIdea<br />#Reading{% endraw %}
